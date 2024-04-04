@@ -24,7 +24,10 @@ async function fetchPosts() {
     }
   }
 
-  const htmlContent = marked(markdownContent);
+  // Use Showdown to convert Markdown to HTML
+  const converter = new showdown.Converter();
+  const htmlContent = converter.makeHtml(markdownContent);
+
   splitIntoPages(htmlContent);
   displayCurrentPage();
   displayPagination();
@@ -32,13 +35,14 @@ async function fetchPosts() {
 
 function splitIntoPages(htmlContent) {
   const charsPerPage = 10000; // Example character count, adjust as needed
+  htmlContentPages = [];
   for (let i = 0; i < htmlContent.length; i += charsPerPage) {
     htmlContentPages.push(htmlContent.substring(i, i + charsPerPage));
   }
 }
 
 function displayCurrentPage() {
-  contentContainer.innerHTML = htmlContentPages[currentPage - 1];
+  contentContainer.innerHTML = htmlContentPages[currentPage - 1] || '';
 }
 
 function displayPagination() {
@@ -47,7 +51,8 @@ function displayPagination() {
     const pageLink = document.createElement('a');
     pageLink.href = '#';
     pageLink.innerText = i;
-    pageLink.addEventListener('click', () => {
+    pageLink.addEventListener('click', (e) => {
+      e.preventDefault();
       currentPage = i;
       displayCurrentPage();
     });
@@ -63,4 +68,3 @@ function setCurrentYear() {
 
 setCurrentYear();
 fetchPosts();
-
