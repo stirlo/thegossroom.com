@@ -1,32 +1,8 @@
 const contentContainer = document.querySelector('.content-container');
 const paginationContainer = document.querySelector('.pagination');
-const postsPerPage = 15;
+const postsPerPage = 20; // Adjust based on your preference
 let currentPage = 1;
-
-function displayPosts(posts) {
-  const startIndex = (currentPage - 1) * postsPerPage;
-  const endIndex = startIndex + postsPerPage;
-  const currentPosts = posts.slice(startIndex, endIndex);
-
-  contentContainer.innerHTML = marked(currentPosts.join('\n'));
-}
-
-function displayPagination(totalPosts) {
-  const totalPages = Math.ceil(totalPosts / postsPerPage);
-  let paginationHTML = '';
-
-  for (let i = 1; i <= totalPages; i++) {
-    paginationHTML += `<a href="#" data-page="${i}">${i}</a>`;
-  }
-
-  paginationContainer.innerHTML = paginationHTML;
-  paginationContainer.addEventListener('click', (event) => {
-    if (event.target.tagName === 'A') {
-      currentPage = parseInt(event.target.dataset.page);
-      fetchPosts(); // Refetch posts for the new page
-    }
-  });
-}
+let htmlContentPages = [];
 
 async function fetchPosts() {
   const owner = 'stirlo';
@@ -34,34 +10,49 @@ async function fetchPosts() {
   const path = 'archive';
 
   const apiUrl = `https://api.github.com/repos/${owner}/${repo}/contents/${path}`;
-
-  // Show loading indicator
   contentContainer.innerHTML = '<p>Loading posts...</p>';
-  let loadedFilesCount = 0;
 
   const response = await fetch(apiUrl);
   const files = await response.json();
 
-  const posts = [];
-  const totalFiles = files.filter(file => file.type === 'file' && file.name.endsWith('.md')).length;
-
-  for (const file of files) {
+  let markdownContent = '';
+  for (const file of files.reverse()) {
     if (file.type === 'file' && file.name.endsWith('.md')) {
-      // Update loading message with progress
-      loadedFilesCount++;
-      contentContainer.innerHTML = `<p>Loading posts... (${loadedFilesCount}/${totalFiles})<br>Currently loading: ${file.name}</p>`;
-
-      const response = await fetch(file.download_url);
-      const markdown = await response.text();
-      posts.push(...markdown.split('\n\n'));
+      const fileResponse = await fetch(file.download_url);
+      const markdown = await fileResponse.text();
+      markdownContent += markdown + '\n\n';
     }
   }
 
-  posts.reverse();
+  const htmlContent = marked(markdownContent);
+  splitIntoPages(htmlContent);
+  displayCurrentPage();
+  displayPagination();
+}
 
-  // Hide loading indicator by displaying the posts
-  displayPosts(posts);
-  displayPagination(posts.length);
+function splitIntoPages(htmlContent) {
+  const charsPerPage = 10000; // Example character count, adjust as needed
+  for (let i = 0; i < htmlContent.length; i += charsPerPage) {
+    htmlContentPages.push(htmlContent.substring(i, i + charsPerPage));
+  }
+}
+
+function displayCurrentPage() {
+  contentContainer.innerHTML = htmlContentPages[currentPage - 1];
+}
+
+function displayPagination() {
+  paginationContainer.innerHTML = '';
+  for (let i = 1; i <= htmlContentPages.length; i++) {
+    const pageLink = document.createElement('a');
+    pageLink.href = '#';
+    pageLink.innerText = i;
+    pageLink.addEventListener('click', () => {
+      currentPage = i;
+      displayCurrentPage();
+    });
+    paginationContainer.appendChild(pageLink);
+  }
 }
 
 function setCurrentYear() {
