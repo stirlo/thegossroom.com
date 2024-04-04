@@ -1,4 +1,3 @@
-javascript
 const contentContainer = document.querySelector('.content-container');
 const paginationContainer = document.querySelector('.pagination');
 const postsPerPage = 15;
