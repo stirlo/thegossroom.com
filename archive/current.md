@@ -1,3 +1,8 @@
+## Kanye News for April 04, 2024
+
+### [**perezhilton.com** Meghan Markle Breaks Royal Protocol! Gypsy Rose Blanchard Wilding Out! Stephen Hilton vs Perez Hilton! Shakira’s New Man! Kanye West Being Awful! Diddy…](https://perezhilton.com/meghan-markle-breaks-royal-protocol-gypsy-rose-blanchard-wilding-out-stephen-hilton-vs-perez-hilton-shakiras-new-man-kanye-west-being-awful-diddy/)
+
+
 ## Elon Musk News for April 04, 2024
 
 ### [**dailymail.co.uk** 	Elon Musk backs JK Rowling over new hate crime law in Scotland after cops received thousands of complaints but rule out prosecuting Harry Potter author over her online posts](	https://www.dailymail.co.uk/news/article-13268421/elon-musk-backs-jk-rowling-scotland-hate-crime-law-twitter-posts.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
