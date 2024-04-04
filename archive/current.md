@@ -22,8 +22,6 @@
 
 ### [**tmz.com** Drake Bell Explains Child Endangerment Case Against Him, DMs Gone Wrong](https://www.tmz.com/2024/04/03/drake-bell-explain-child-endangerment-case-allegations-podcast-dm/)
 
-### [**perezhilton.com** Drake Bell Reflects On Allegations He 'Groomed' Teen Girl -- What Really Happened?!](https://perezhilton.com/drake-bell-explains-child-endangerment-case-grooming-allegations/)
-
 
 ## Biden News for April 04, 2024
 
