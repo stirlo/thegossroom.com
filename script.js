@@ -23,7 +23,7 @@ function displayPagination(totalPosts) {
   paginationContainer.addEventListener('click', (event) => {
     if (event.target.tagName === 'A') {
       currentPage = parseInt(event.target.dataset.page);
-      fetchPosts();
+      fetchPosts(); // Refetch posts for the new page
     }
   });
 }
@@ -35,13 +35,22 @@ async function fetchPosts() {
 
   const apiUrl = `https://api.github.com/repos/${owner}/${repo}/contents/${path}`;
 
+  // Show loading indicator
+  contentContainer.innerHTML = '<p>Loading posts...</p>';
+  let loadedFilesCount = 0;
+
   const response = await fetch(apiUrl);
   const files = await response.json();
 
   const posts = [];
+  const totalFiles = files.filter(file => file.type === 'file' && file.name.endsWith('.md')).length;
 
   for (const file of files) {
     if (file.type === 'file' && file.name.endsWith('.md')) {
+      // Update loading message with progress
+      loadedFilesCount++;
+      contentContainer.innerHTML = `<p>Loading posts... (${loadedFilesCount}/${totalFiles})<br>Currently loading: ${file.name}</p>`;
+
       const response = await fetch(file.download_url);
       const markdown = await response.text();
       posts.push(...markdown.split('\n\n'));
@@ -50,6 +59,7 @@ async function fetchPosts() {
 
   posts.reverse();
 
+  // Hide loading indicator by displaying the posts
   displayPosts(posts);
   displayPagination(posts.length);
 }
@@ -62,3 +72,4 @@ function setCurrentYear() {
 
 setCurrentYear();
 fetchPosts();
+
