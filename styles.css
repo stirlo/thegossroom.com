@@ -1,19 +1,19 @@
 css
 :root {
-  --bg-color: #fff0f5;
-  --text-color: #333;
-  --primary-color: #ff69b4;
-  --secondary-color: #98fb98;
-  --tertiary-color: #ffffe0;
+  --bg-color: #F6E000;
+  --text-color: #BA38F2;
+  --primary-color: #FFA07D;
+  --secondary-color: #F2059F;
+  --tertiary-color: #AD05b3;
 }
 
 @media (prefers-color-scheme: dark) {
   :root {
-    --bg-color: #000080;
-    --text-color: #fff;
-    --primary-color: #8b0000;
-    --secondary-color: #b8860b;
-    --tertiary-color: #ffd700;
+    --bg-color: #792F7A;
+    --text-color: #F205B3;
+    --primary-color: #BA38F2;
+    --secondary-color: #F2C12E;
+    --tertiary-color: #D9886A;
   }
 }
 
