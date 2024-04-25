@@ -1,22 +1,24 @@
-css
+/* CSS Variables for easy theme management */
 :root {
-  --bg-color: #F6E000;
-  --text-color: #BA38F2;
-  --primary-color: #FFA07D;
-  --secondary-color: #F2059F;
-  --tertiary-color: #AD05b3;
+  --bg-color: #F6E000; /* Light background color */
+  --text-color: #BA38F2; /* Light text color */
+  --primary-color: #FFA07D; /* Light primary color */
+  --secondary-color: #F2059F; /* Light secondary color */
+  --tertiary-color: #AD05B3; /* Light tertiary color */
 }
 
+/* Dark mode adjustments */
 @media (prefers-color-scheme: dark) {
   :root {
-    --bg-color: #792F7A;
-    --text-color: #F205B3;
-    --primary-color: #BA38F2;
-    --secondary-color: #F2C12E;
-    --tertiary-color: #D9886A;
+    --bg-color: #792F7A; /* Dark background color */
+    --text-color: #F205B3; /* Dark text color */
+    --primary-color: #BA38F2; /* Dark primary color */
+    --secondary-color: #F2C12E; /* Dark secondary color */
+    --tertiary-color: #D9886A; /* Dark tertiary color */
   }
 }
 
+/* Base styles */
 body {
   font-family: Arial, sans-serif;
   background-color: var(--bg-color);
