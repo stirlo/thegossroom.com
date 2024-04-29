@@ -2132,3 +2132,62 @@
 2024-04-29 17:40:44 - Latest stories written to /home/pi/thegossroom.com/archive/latest.md
 2024-04-29 17:40:47 - SSH agent started.
 2024-04-29 17:40:47 - SSH key added.
+2024-04-29 17:40:51 - Changes pushed to GitHub.
+2024-04-29 17:40:51 - Starting to manage RSS feeds...
+2024-04-29 17:40:51 - Processing URL: http://feeds.feedburner.com/entertainmentweekly/latest
+2024-04-29 17:40:52 - No updates found for http://feeds.feedburner.com/entertainmentweekly/latest.
+2024-04-29 17:40:52 - Processing URL: http://syndication.eonline.com/syndication/feeds/rssfeeds/topstories.xml
+2024-04-29 17:40:52 - Warning: No content retrieved from http://syndication.eonline.com/syndication/feeds/rssfeeds/topstories.xml
+2024-04-29 17:40:52 - Processing URL: http://www.9celebrity.com/feed/
+2024-04-29 17:40:52 - No updates found for http://www.9celebrity.com/feed/.
+2024-04-29 17:40:52 - Processing URL: http://www.highheelconfidential.com/feed/
+2024-04-29 17:40:53 - Warning: No content retrieved from http://www.highheelconfidential.com/feed/
+2024-04-29 17:40:53 - Processing URL: https://hypebeast.com/rss
+2024-04-29 17:40:54 - No updates found for https://hypebeast.com/rss.
+2024-04-29 17:40:54 - Processing URL: https://metro.co.uk/tag/showbiz/rss/
+2024-04-29 17:40:54 - Warning: No content retrieved from https://metro.co.uk/tag/showbiz/rss/
+2024-04-29 17:40:54 - Processing URL: https://people.com/tag/celebrities/rss
+2024-04-29 17:40:55 - New content found for https://people.com/tag/celebrities/rss, updating database...
+2024-04-29 17:40:55 - Database updated successfully for https://people.com/tag/celebrities/rss
+2024-04-29 17:40:55 - Processing URL: https://perezhilton.com/feed/
+2024-04-29 17:40:56 - No updates found for https://perezhilton.com/feed/.
+2024-04-29 17:40:56 - Processing URL: https://sneakernews.com/feed/
+2024-04-29 17:40:56 - New content found for https://sneakernews.com/feed/, updating database...
+2024-04-29 17:40:56 - Database updated successfully for https://sneakernews.com/feed/
+2024-04-29 17:40:56 - Processing URL: https://variety.com/v/feed/
+2024-04-29 17:40:57 - No updates found for https://variety.com/v/feed/.
+2024-04-29 17:40:57 - Processing URL: https://www.dailymail.co.uk/articles.rss
+2024-04-29 17:40:57 - No updates found for https://www.dailymail.co.uk/articles.rss.
+2024-04-29 17:40:57 - Processing URL: https://www.elle.com/rss/everything/
+2024-04-29 17:40:59 - Warning: No content retrieved from https://www.elle.com/rss/everything/
+2024-04-29 17:40:59 - Processing URL: https://www.esquire.com/rss/
+2024-04-29 17:40:59 - Warning: No content retrieved from https://www.esquire.com/rss/
+2024-04-29 17:40:59 - Processing URL: https://www.gq.com/rss/all
+2024-04-29 17:40:59 - New content found for https://www.gq.com/rss/all, updating database...
+2024-04-29 17:40:59 - Database updated successfully for https://www.gq.com/rss/all
+2024-04-29 17:40:59 - Processing URL: https://www.harpersbazaar.com/rss
+2024-04-29 17:40:59 - No updates found for https://www.harpersbazaar.com/rss.
+2024-04-29 17:40:59 - Processing URL: https://www.hellomagazine.com/rss/showbiz.rss
+2024-04-29 17:41:00 - New content found for https://www.hellomagazine.com/rss/showbiz.rss, updating database...
+2024-04-29 17:41:00 - Database updated successfully for https://www.hellomagazine.com/rss/showbiz.rss
+2024-04-29 17:41:00 - Processing URL: https://www.highsnobiety.com/feed/
+2024-04-29 17:41:00 - New content found for https://www.highsnobiety.com/feed/, updating database...
+2024-04-29 17:41:00 - Database updated successfully for https://www.highsnobiety.com/feed/
+2024-04-29 17:41:00 - Processing URL: https://www.hollywoodreporter.com/feed/
+2024-04-29 17:41:01 - No updates found for https://www.hollywoodreporter.com/feed/.
+2024-04-29 17:41:01 - Processing URL: https://www.huffpost.com/section/entertainment/feed
+2024-04-29 17:41:01 - No updates found for https://www.huffpost.com/section/entertainment/feed.
+2024-04-29 17:41:01 - Processing URL: https://www.justjared.com/rss.xml
+2024-04-29 17:41:01 - New content found for https://www.justjared.com/rss.xml, updating database...
+2024-04-29 17:41:01 - Database updated successfully for https://www.justjared.com/rss.xml
+2024-04-29 17:41:01 - Processing URL: https://www.newsclebrity.com/feed/
+2024-04-29 17:41:01 - Warning: No content retrieved from https://www.newsclebrity.com/feed/
+2024-04-29 17:41:01 - Processing URL: https://www.tmz.com/rss.xml
+2024-04-29 17:41:01 - No updates found for https://www.tmz.com/rss.xml.
+2024-04-29 17:41:01 - Processing URL: https://www.usmagazine.com/celebrity-news/feed/
+2024-04-29 17:41:02 - No updates found for https://www.usmagazine.com/celebrity-news/feed/.
+2024-04-29 17:41:02 - Processing URL: https://www.vogue.com/rss/index.xml
+2024-04-29 17:41:03 - No updates found for https://www.vogue.com/rss/index.xml.
+2024-04-29 17:41:03 - Latest stories written to /home/pi/thegossroom.com/archive/latest.md
+2024-04-29 17:49:06 - SSH agent started.
+2024-04-29 17:49:06 - SSH key added.
