@@ -1,1 +1,0 @@
-# Stories for Sam Ashgari

@@ -1,1 +1,0 @@
-# Stories for Joe Biden
