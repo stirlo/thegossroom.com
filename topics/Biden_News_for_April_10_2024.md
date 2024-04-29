@@ -1,0 +1,725 @@
+# Stories for Biden News for April 10, 2024
+title =
+content = ## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	'He looks like he could take me': Biden tells heckler to 'shush up' - but backs off when he sees him - then threatens to 'expire' Republicans who don't back his healthcare plans](https://www.dailymail.co.uk/news/article-13289475/He-looks-like-Biden-tells-heckler-shush-backs-sees-threatens-expire-Republicans-dont-healthcare-plans.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	David Cameron is snubbed by the US speaker over aid to Ukraine as he meets with Donald Trump and Anthony Blinken](https://www.dailymail.co.uk/news/article-13290097/David-Cameron-snubbed-speaker-aid-Ukraine-meets-Donald-Trump-Anthony-Blinken.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 10, 2024
+
+### [**dailymail.co.uk** 	Australian designer who accused Kylie Jenner of 'ripping off' her designs demands an apology from the 'morally corrupt' star - who wore her dresses FIVE YEARS before launching her own lookalike KHY collection](https://www.dailymail.co.uk/tvshowbiz/article-13269363/designer-accused-kylie-jenner-ripping-jessica-johansen-bell-demands-apology.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	'He looks like he could take me': Biden tells heckler to 'shush up' - but backs off when he sees him - then threatens to 'expire' Republicans who don't back his healthcare plans](https://www.dailymail.co.uk/news/article-13289475/He-looks-like-Biden-tells-heckler-shush-backs-sees-threatens-expire-Republicans-dont-healthcare-plans.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**perezhilton.com** Jelly Roll Bailed On Meeting Diddy Over Bad Vibes -- A Month Before Everything Came Out!](https://perezhilton.com/jelly-roll-bailed-meeting-diddy-bad-vibes/)
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	David Cameron is snubbed by the US speaker over aid to Ukraine as he meets with Donald Trump and Anthony Blinken](https://www.dailymail.co.uk/news/article-13290097/David-Cameron-snubbed-speaker-aid-Ukraine-meets-Donald-Trump-Anthony-Blinken.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 10, 2024
+
+### [**dailymail.co.uk** 	Australian designer who accused Kylie Jenner of 'ripping off' her designs demands an apology from the 'morally corrupt' star - who wore her dresses FIVE YEARS before launching her own lookalike KHY collection](https://www.dailymail.co.uk/tvshowbiz/article-13269363/designer-accused-kylie-jenner-ripping-jessica-johansen-bell-demands-apology.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	'He looks like he could take me': Biden tells heckler to 'shush up' - but backs off when he sees him - then threatens to 'expire' Republicans who don't back his healthcare plans](https://www.dailymail.co.uk/news/article-13289475/He-looks-like-Biden-tells-heckler-shush-backs-sees-threatens-expire-Republicans-dont-healthcare-plans.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	David Cameron is snubbed by the US speaker over aid to Ukraine as he meets with Donald Trump and Anthony Blinken](https://www.dailymail.co.uk/news/article-13290097/David-Cameron-snubbed-speaker-aid-Ukraine-meets-Donald-Trump-Anthony-Blinken.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 10, 2024
+
+### [**perezhilton.com** Designer Calls Kylie Jenner 'Morally Corrupt' For Stealing Her Designs!](https://perezhilton.com/designer-jessica-johansen-bell-calls-kylie-jenner-morally-corrupt-allegedly-stole-designs/)
+
+### [**dailymail.co.uk** 	Australian designer who accused Kylie Jenner of 'ripping off' her designs demands an apology from the 'morally corrupt' star - who wore her dresses FIVE YEARS before launching her own lookalike KHY collection](https://www.dailymail.co.uk/tvshowbiz/article-13269363/designer-accused-kylie-jenner-ripping-jessica-johansen-bell-demands-apology.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman is reunited with her family FIFTY TWO years after being snatched from the Colombia streets at four years old](https://www.dailymail.co.uk/news/article-13289477/Woman-reunited-Colombia-family-kidnapped-family.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	David Cameron is snubbed by the US speaker over aid to Ukraine as he meets with Donald Trump and Anthony Blinken](https://www.dailymail.co.uk/news/article-13290097/David-Cameron-snubbed-speaker-aid-Ukraine-meets-Donald-Trump-Anthony-Blinken.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Elon Musk News for April 10, 2024
+
+### [**dailymail.co.uk** 	The black market dealers delivering Elon Musk's Starlink to US adversaries - including Russia-backed rebels in Sudan](https://www.dailymail.co.uk/sciencetech/article-13288813/elon-musk-starlink-black-market-russia-ukraine-sudan-uae.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 10, 2024
+
+### [**dailymail.co.uk** 	Khloe Kardashian lets her curves do the talking in a nude thong swimsuit that barely covers her bottom while on a beach in Turks and Caicos](https://www.dailymail.co.uk/tvshowbiz/article-13289935/Khloe-Kardashian-lets-curves-talking-nude-thong-swimsuit-barely-covers-bottom-beach-Bahamas.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman is reunited with her family FIFTY TWO years after being snatched from the Colombia streets at four years old](https://www.dailymail.co.uk/news/article-13289477/Woman-reunited-Colombia-family-kidnapped-family.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**tmz.com** Jason Derulo Says Diddy Is Innocent Until Proven Guilty Amid Federal Drama](https://www.tmz.com/2024/04/09/jason-derulo-diddy-innocent-until-proven-guilty-federal-investigation/)
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	David Cameron is snubbed by the US speaker over aid to Ukraine as he meets with Donald Trump and Anthony Blinken](https://www.dailymail.co.uk/news/article-13290097/David-Cameron-snubbed-speaker-aid-Ukraine-meets-Donald-Trump-Anthony-Blinken.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 10, 2024
+
+### [**dailymail.co.uk** 	Khloe Kardashian lets her curves do the talking in a nude thong swimsuit that barely covers her bottom while on a beach in Turks and Caicos](https://www.dailymail.co.uk/tvshowbiz/article-13289935/Khloe-Kardashian-lets-curves-talking-nude-thong-swimsuit-barely-covers-bottom-beach-Bahamas.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman is reunited with her family FIFTY TWO years after being snatched from the Colombia streets at four years old](https://www.dailymail.co.uk/news/article-13289477/Woman-reunited-Colombia-family-kidnapped-family.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	David Cameron is snubbed by the US speaker over aid to Ukraine as he meets with Donald Trump and Anthony Blinken](https://www.dailymail.co.uk/news/article-13290097/David-Cameron-snubbed-speaker-aid-Ukraine-meets-Donald-Trump-Anthony-Blinken.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 10, 2024
+
+### [**dailymail.co.uk** 	Khloe Kardashian lets her curves do the talking in a nude thong swimsuit that barely covers her bottom while on a beach in Turks and Caicos](https://www.dailymail.co.uk/tvshowbiz/article-13289935/Khloe-Kardashian-lets-curves-talking-nude-thong-swimsuit-barely-covers-bottom-beach-Bahamas.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman is reunited with her family FIFTY TWO years after being snatched from the Colombia streets at four years old](https://www.dailymail.co.uk/news/article-13289477/Woman-reunited-Colombia-family-kidnapped-family.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	David Cameron is snubbed by the US speaker over aid to Ukraine as he meets with Donald Trump and Anthony Blinken](https://www.dailymail.co.uk/news/article-13290097/David-Cameron-snubbed-speaker-aid-Ukraine-meets-Donald-Trump-Anthony-Blinken.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 10, 2024
+
+### [**dailymail.co.uk** 	Khloe Kardashian lets her curves do the talking in a nude thong swimsuit that barely covers her bottom while on a beach in Turks and Caicos](https://www.dailymail.co.uk/tvshowbiz/article-13289935/Khloe-Kardashian-lets-curves-talking-nude-thong-swimsuit-barely-covers-bottom-beach-Bahamas.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman is reunited with her family FIFTY TWO years after being snatched from the Colombia streets at four years old](https://www.dailymail.co.uk/news/article-13289477/Woman-reunited-Colombia-family-kidnapped-family.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Biden turns on Netanyahu, declares Israel's Gaza policy a 'mistake', calls for an immediate ceasefire and says there is 'no excuse' not to allow more aid in strongest condemnation yet](https://www.dailymail.co.uk/news/article-13291459/biden-netanyahu-israel-gaza-policy-mistake-ceasefire-aid-condemnation.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	David Cameron is snubbed by the US speaker over aid to Ukraine as he meets with Donald Trump and Anthony Blinken](https://www.dailymail.co.uk/news/article-13290097/David-Cameron-snubbed-speaker-aid-Ukraine-meets-Donald-Trump-Anthony-Blinken.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 10, 2024
+
+### [**dailymail.co.uk** 	Khloe Kardashian lets her curves do the talking in a nude thong swimsuit that barely covers her bottom while on a beach in Turks and Caicos](https://www.dailymail.co.uk/tvshowbiz/article-13289935/Khloe-Kardashian-lets-curves-talking-nude-thong-swimsuit-barely-covers-bottom-beach-Bahamas.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman is reunited with her family FIFTY TWO years after being snatched from the Colombia streets at four years old](https://www.dailymail.co.uk/news/article-13289477/Woman-reunited-Colombia-family-kidnapped-family.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman is reunited with her family FIFTY TWO years after being snatched from the Colombia streets at four years old](https://www.dailymail.co.uk/news/article-13289477/Woman-reunited-Colombia-family-kidnapped-family.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 10, 2024
+
+### [**dailymail.co.uk** 	Meek Mill says 'sick' rumors about him and Diddy being gay confused his 12-year-old son - as star goes on tirade AGAIN about speculation he was named in bombshell lawsuit](https://www.dailymail.co.uk/tvshowbiz/article-13290393/Meek-says-rumors-Diddy-gay-confused-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 10, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian shows off her sizzling curves in a tiny black bikini while stripping off her wet T-shirt as her sister Khloe calls out her 'thirsty' post](https://www.dailymail.co.uk/tvshowbiz/article-13291411/Kim-Kardashian-shows-sizzling-curves-tiny-black-bikini-stripping-wet-T-shirt-sister-Khloe-calls-thirsty-post.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Rishi Sunak backs Joe Biden's call for Israeli ceasefire in Gaza to allow aid to enter for up to two months as PM says Benjamin Netanyahu 'needs to do more' to alleviate civilian suffering](https://www.dailymail.co.uk/news/article-13291901/Rishi-Sunak-backs-Joe-Biden-call-Israeli-ceasefire-Gaza.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## J. Cole News for April 10, 2024
+
+### [**highsnobiety.com** <![CDATA[The 15 Best J. Cole Songs To Celebrate Hip-Hop]]>](https://www.highsnobiety.com/p/best-j-cole-songs/)
+
+
+## Kardashian News for April 10, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian shows off her sizzling curves in a tiny black bikini while stripping off her wet T-shirt as her sister Khloe calls out her 'thirsty' post](https://www.dailymail.co.uk/tvshowbiz/article-13291411/Kim-Kardashian-shows-sizzling-curves-tiny-black-bikini-stripping-wet-T-shirt-sister-Khloe-calls-thirsty-post.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Rishi Sunak backs Joe Biden's call for Israeli ceasefire in Gaza to allow aid to enter for up to two months as PM says Benjamin Netanyahu 'needs to do more' to alleviate civilian suffering](https://www.dailymail.co.uk/news/article-13291901/Rishi-Sunak-backs-Joe-Biden-call-Israeli-ceasefire-Gaza.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman invited to go on holiday with Madeleine McCann suspect Christian Brueckner feared he would RAPE her and armed herself with a knife, she tells his sex trial](https://www.dailymail.co.uk/news/article-13291865/Woman-invited-holiday-Madeleine-McCann-suspect-Christian-Brueckner-feared-rape-armed-knife-sex-trial.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Rishi Sunak backs Joe Biden's call for Israeli ceasefire in Gaza to allow aid to enter for up to two months as PM says Benjamin Netanyahu 'needs to do more' to alleviate civilian suffering](https://www.dailymail.co.uk/news/article-13291901/Rishi-Sunak-backs-Joe-Biden-call-Israeli-ceasefire-Gaza.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 10, 2024
+
+### [**highsnobiety.com** <![CDATA[For All the Dogs: The 31 Best Drake Songs On Any Given Day]]>](https://www.highsnobiety.com/p/25-best-drake-songs/)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman invited to go on holiday with Madeleine McCann suspect Christian Brueckner feared he would RAPE her and armed herself with a knife, she tells his sex trial](https://www.dailymail.co.uk/news/article-13291865/Woman-invited-holiday-Madeleine-McCann-suspect-Christian-Brueckner-feared-rape-armed-knife-sex-trial.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Rishi Sunak backs Joe Biden's call for Israeli ceasefire in Gaza to allow aid to enter for up to two months as PM says Benjamin Netanyahu 'needs to do more' to alleviate civilian suffering](https://www.dailymail.co.uk/news/article-13291901/Rishi-Sunak-backs-Joe-Biden-call-Israeli-ceasefire-Gaza.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	Donald Trump plans to 'green light' Putin's advances in Ukraine and could cut funding altogether, says former head of CIA John Brennan as Zelensky invites the former President to visit Kyiv](https://www.dailymail.co.uk/news/article-13291743/Donald-Trump-putin-zelensky-ukraine-invite.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 10, 2024
+
+### [**tmz.com** Kim Kardashian Chats Up Kris Humphries' Former Pal at Lakers Game](https://www.tmz.com/2024/04/10/kim-kardashian-chats-cozy-kris-humphries-former-friend-lakers-game/)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 10, 2024
+
+### [**hollywoodreporter.com** Cailee Spaeny Talks ‘Civil War,’ Taylor Swift’s ‘Mare of Easttown’ Fandom and Manifesting ‘Matrix 5’](https://www.hollywoodreporter.com/movies/movie-features/cailee-spaeny-talks-civil-war-taylor-swift-1235870573/)
+
+### [**dailymail.co.uk** 	Travis Kelce opens up on life with Taylor Swift in rare moment on New Heights podcast... as he reveals he is 'having a blast' and 'doesn't know' how he got pop superstar into the NFL: 'She wasn't into sports'](https://www.dailymail.co.uk/sport/nfl/article-13292651/Travis-Kelce-opens-life-Taylor-Swift-rare-moment-New-Heights-podcast-reveals-having-blast-doesnt-know-got-pop-superstar-NFL-wasnt-sports.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 10, 2024
+
+### [**perezhilton.com** Zendaya Says She Didn't Have Choice In Child Stardom -- And She WON'T Do That To Her Kids!](https://perezhilton.com/zendaya-having-kids-tom-holland-baby-family-planning/)
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 10, 2024
+
+### [**dailymail.co.uk** 	Woman invited to go on holiday with Madeleine McCann suspect Christian Brueckner feared he would RAPE her and armed herself with a knife, she tells his sex trial](https://www.dailymail.co.uk/news/article-13291865/Woman-invited-holiday-Madeleine-McCann-suspect-Christian-Brueckner-feared-rape-armed-knife-sex-trial.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Rishi Sunak backs Joe Biden's call for Israeli ceasefire in Gaza to allow aid to enter for up to two months as PM says Benjamin Netanyahu 'needs to do more' to alleviate civilian suffering](https://www.dailymail.co.uk/news/article-13291901/Rishi-Sunak-backs-Joe-Biden-call-Israeli-ceasefire-Gaza.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	Donald Trump plans to 'green light' Putin's advances in Ukraine and could cut funding altogether, says former head of CIA John Brennan as Zelensky invites the former President to visit Kyiv](https://www.dailymail.co.uk/news/article-13291743/Donald-Trump-putin-zelensky-ukraine-invite.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 10, 2024
+
+### [**tmz.com** Drake Bell Defends Parents of Child Actors After 'Quiet on Set' Backlash](https://www.tmz.com/2024/04/10/drake-bell-defends-parents-child-stars-quiet-on-set-backlash-nickelodeon-brian-peck/)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya lends her support to boyfriend Tom Holland as he is urged to speak out in support of Romeo and Juliet co-star Frances Amewudah-Rivers amid a 'barrage of deplorable racial abuse'](https://www.dailymail.co.uk/tvshowbiz/article-13292823/Zendaya-lends-support-boyfriend-Tom-Holland-urged-speak-support-Romeo-Juliet-star-Frances-Amewudah-Rivers-amid-barrage-deplorable-racial-abuse.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 10, 2024
+
+### [**dailymail.co.uk** 	Friend of Christian Brueckner feared the Madeleine McCann suspect 'was part of a mafia pornography ring', trial hears after witness says she feared he would rape her](https://www.dailymail.co.uk/news/article-13291865/Woman-invited-holiday-Madeleine-McCann-suspect-Christian-Brueckner-feared-rape-armed-knife-sex-trial.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Rishi Sunak backs Joe Biden's call for Israeli ceasefire in Gaza to allow aid to enter for up to two months as PM says Benjamin Netanyahu 'needs to do more' to alleviate civilian suffering](https://www.dailymail.co.uk/news/article-13291901/Rishi-Sunak-backs-Joe-Biden-call-Israeli-ceasefire-Gaza.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	Donald Trump plans to 'green light' Putin's advances in Ukraine and could cut funding altogether, says former head of CIA John Brennan as Zelensky invites the former President to visit Kyiv](https://www.dailymail.co.uk/news/article-13291743/Donald-Trump-putin-zelensky-ukraine-invite.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Harry Styles News for April 10, 2024
+
+### [**perezhilton.com** Louis Tomlinson Is Tired Of Fighting The Harry Styles Conspiracy Theories!](https://perezhilton.com/louis-tomlinson-tired-harry-styles-ship-conspiracy-theories/)
+
+
+## Megan Thee Stallion News for April 10, 2024
+
+### [**tmz.com** Megan Thee Stallion Goes Nude for Women's Health, Revisits Tory Lanez Saga](https://www.tmz.com/2024/04/10/megan-thee-stallion-nude-naked-womens-health-magazine-tory-lanez/)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 10, 2024
+
+### [**tmz.com** Travis Kelce Jokes About Wooing Taylor Swift, 'I Don't Know How The F*** I Did It'](https://www.tmz.com/2024/04/10/travis-kelce-jokes-about-wooing-taylor-swift-i-don-t-know-how-the-f-i-did-it/)
+
+
+## Tom Holland News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya lends her support to boyfriend Tom Holland as he is urged to speak out in support of Romeo and Juliet co-star Frances Amewudah-Rivers amid a 'barrage of deplorable racial abuse'](https://www.dailymail.co.uk/tvshowbiz/article-13292823/Zendaya-lends-support-boyfriend-Tom-Holland-urged-speak-support-Romeo-Juliet-star-Frances-Amewudah-Rivers-amid-barrage-deplorable-racial-abuse.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Rishi Sunak backs Joe Biden's call for Israeli ceasefire in Gaza to allow aid to enter for up to two months as PM says Benjamin Netanyahu 'needs to do more' to alleviate civilian suffering](https://www.dailymail.co.uk/news/article-13291901/Rishi-Sunak-backs-Joe-Biden-call-Israeli-ceasefire-Gaza.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	Donald Trump plans to 'green light' Putin's advances in Ukraine and could cut funding altogether, says former head of CIA John Brennan as Zelensky invites the former President to visit Kyiv](https://www.dailymail.co.uk/news/article-13291743/Donald-Trump-putin-zelensky-ukraine-invite.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Megan Thee Stallion News for April 10, 2024
+
+### [**dailymail.co.uk** 	Megan Thee Stallion goes completely nude in stunning Women's Health cover story... as the rapper opens up about healing journey after Tory Lanez shot her in the foot: 'I was depressed'](https://www.dailymail.co.uk/tvshowbiz/article-13293039/Megan-Thee-Stallion-nude-Womens-Health-cover.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 10, 2024
+
+### [**perezhilton.com** Meghan Markle's Half-Sister Samantha Drags Princess Catherine Into Defamation Lawsuit!](https://perezhilton.com/meghan-markle-sister-samantha-princess-catherine-defamantion-lawsuit-appeal/)
+
+
+## Prince Harry News for April 10, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 10, 2024
+
+### [**tmz.com** Travis Kelce Jokes About Wooing Taylor Swift, 'I Don't Know How The F*** I Did It'](https://www.tmz.com/2024/04/10/travis-kelce-jokes-about-wooing-taylor-swift-i-don-t-know-how-the-f-i-did-it/)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya reflects on being her family's breadwinner at a 'very early' age and 'never really having the opportunity' to be a kid in her quest to be 'perfect'](https://www.dailymail.co.uk/tvshowbiz/article-13289895/Zendaya-reflects-familys-breadwinner-early-age-childhood.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	Donald Trump plans to 'green light' Putin's advances in Ukraine and could cut funding altogether, says former head of CIA John Brennan as Zelensky invites the former President to visit Kyiv](https://www.dailymail.co.uk/news/article-13291743/Donald-Trump-putin-zelensky-ukraine-invite.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Rishi Sunak backs Joe Biden's call for Israeli ceasefire in Gaza to allow aid to enter for up to two months as PM says Benjamin Netanyahu 'needs to do more' to alleviate civilian suffering](https://www.dailymail.co.uk/news/article-13291901/Rishi-Sunak-backs-Joe-Biden-call-Israeli-ceasefire-Gaza.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 10, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 10, 2024
+
+### [**tmz.com** Travis Kelce Jokes About Wooing Taylor Swift, 'I Don't Know How The F*** I Did It'](https://www.tmz.com/2024/04/10/travis-kelce-jokes-about-wooing-taylor-swift-i-don-t-know-how-the-f-i-did-it/)
+
+### [**perezhilton.com** Travis Kelce 'Nervous' On Set Of Are You Smarter Than A Celebrity Over Taylor Swift Jokes?!](https://perezhilton.com/travis-kelce-nervous-taylor-swift-jokes-are-you-smarter-than-a-celebrity/)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Biden says he's 'considering' ENDING the prosecution of Julian Assange after Australia urged U.S. to drop WikiLeaks founder's case](https://www.dailymail.co.uk/news/article-13293795/biden-julian-assange-australia-drop-wikileaks-case.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bieber News for April 10, 2024
+
+### [**perezhilton.com** Justin &amp; Hailey Bieber 'Spending Time Apart' -- But Here's Why Divorce 'Is Not An Option'!](https://perezhilton.com/justin-hailey-bieber-spending-time-apart-no-divorce-family-faith/)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**tmz.com** Donald Trump Orders Chick-fil-A For Supporters in Atlanta, Hands Out Shakes](https://www.tmz.com/2024/04/10/donald-trump-chick-fil-a-order-chicken-milkshakes-atlanta/)
+
+### [**dailymail.co.uk** 	Donald Trump plans to 'green light' Putin's advances in Ukraine and could cut funding altogether, says former head of CIA John Brennan as Zelensky invites the former President to visit Kyiv](https://www.dailymail.co.uk/news/article-13291743/Donald-Trump-putin-zelensky-ukraine-invite.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 10, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 10, 2024
+
+### [**tmz.com** Travis Kelce Jokes About Wooing Taylor Swift, 'I Don't Know How The F*** I Did It'](https://www.tmz.com/2024/04/10/travis-kelce-jokes-about-wooing-taylor-swift-i-don-t-know-how-the-f-i-did-it/)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Biden says he's 'considering' ENDING the prosecution of Julian Assange after Australia urged U.S. to drop WikiLeaks founder's case](https://www.dailymail.co.uk/news/article-13293795/biden-julian-assange-australia-drop-wikileaks-case.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 10, 2024
+
+### [**dailymail.co.uk** 	Donald Trump plans to 'green light' Putin's advances in Ukraine and could cut funding altogether, says former head of CIA John Brennan as Zelensky invites the former President to visit Kyiv](https://www.dailymail.co.uk/news/article-13291743/Donald-Trump-putin-zelensky-ukraine-invite.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 10, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 10, 2024
+
+### [**tmz.com** Travis Kelce Jokes About Wooing Taylor Swift, 'I Don't Know How The F*** I Did It'](https://www.tmz.com/2024/04/10/travis-kelce-jokes-about-wooing-taylor-swift-i-don-t-know-how-the-f-i-did-it/)
+
+
+## Adele News for April 10, 2024
+
+### [**dailymail.co.uk** 	Friend of Christian Brueckner feared the Madeleine McCann suspect 'was part of a mafia pornography ring', trial hears after witness says she feared he would rape her](https://www.dailymail.co.uk/news/article-13291865/Woman-invited-holiday-Madeleine-McCann-suspect-Christian-Brueckner-feared-rape-armed-knife-sex-trial.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**perezhilton.com** Fans Think Kylie Jenner Is Copying Bianca Censori Now! Look!](https://perezhilton.com/fans-think-kylie-jenner-copying-bianca-censori/)
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Biden says he's 'considering' ENDING the prosecution of Julian Assange after Australia urged U.S. to drop WikiLeaks founder's case](https://www.dailymail.co.uk/news/article-13293795/biden-julian-assange-australia-drop-wikileaks-case.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 10, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 10, 2024
+
+### [**tmz.com** Travis Kelce Jokes About Wooing Taylor Swift, 'I Don't Know How The F*** I Did It'](https://www.tmz.com/2024/04/10/travis-kelce-jokes-about-wooing-taylor-swift-i-don-t-know-how-the-f-i-did-it/)
+
+### [**perezhilton.com** Travis Kelce STILL Has No Idea 'How The F**k' He Got Taylor Swift To Go Out With Him!](https://perezhilton.com/travis-kelce-no-idea-how-taylor-swift-relationship-started/)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya cements her best-dressed status in sparkly white tennis-themed gown with daring thigh-high slit as she arrives at UK premiere of her VERY racy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13294141/Zendaya-cements-best-dressed-status-sparkly-white-tennis-themed-gown-daring-thigh-high-slit-arrives-Challengers-UK-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 10, 2024
+
+### [**dailymail.co.uk** 	Friend of Christian Brueckner feared the Madeleine McCann suspect 'was part of a mafia pornography ring', trial hears after witness says she feared he would rape her](https://www.dailymail.co.uk/news/article-13291865/Woman-invited-holiday-Madeleine-McCann-suspect-Christian-Brueckner-feared-rape-armed-knife-sex-trial.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 10, 2024
+
+### [**dailymail.co.uk** 	Biden says he's 'considering' ENDING the prosecution of Julian Assange after Australia urged U.S. to drop WikiLeaks founder's case](https://www.dailymail.co.uk/news/article-13293795/biden-julian-assange-australia-drop-wikileaks-case.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Megan Thee Stallion News for April 10, 2024
+
+### [**hollywoodreporter.com** Megan Thee Stallion Reflects on Tory Lanez Shooting: “People Didn’t Treat Me Like I Was Human”](https://www.hollywoodreporter.com/news/music-news/megan-thee-stallion-tory-lanez-shooting-depression-recovery-1235871335/)
+
+
+## Meghan Markle News for April 10, 2024
+
+### [**perezhilton.com** King Charles Might Invite Prince Harry &amp; Meghan Markle For Summer Reunion!](https://perezhilton.com/king-charles-might-invite-prince-harry-meghan-markle-for-summer-reunion/)
+
+
+## Prince Harry News for April 10, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 10, 2024
+
+### [**tmz.com** Travis Kelce Jokes About Wooing Taylor Swift, 'I Don't Know How The F*** I Did It'](https://www.tmz.com/2024/04/10/travis-kelce-jokes-about-wooing-taylor-swift-i-don-t-know-how-the-f-i-did-it/)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya cements her best-dressed status in sparkly white tennis-themed gown with daring thigh-high slit as she arrives at UK premiere of her VERY racy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13294141/Zendaya-cements-best-dressed-status-sparkly-white-tennis-themed-gown-daring-thigh-high-slit-arrives-Challengers-UK-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 10, 2024
+
+### [**dailymail.co.uk** 	Friend of Christian Brueckner feared the Madeleine McCann suspect 'was part of a mafia pornography ring', trial hears after witness says she feared he would rape her](https://www.dailymail.co.uk/news/article-13291865/Woman-invited-holiday-Madeleine-McCann-suspect-Christian-Brueckner-feared-rape-armed-knife-sex-trial.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 10, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Maya Rudolph News for April 10, 2024
+
+### [**hollywoodreporter.com** Maya Rudolph Unpacks Her Single Woman Journey in ‘Loot’ Season 2](https://www.hollywoodreporter.com/tv/tv-features/maya-rudolph-loot-season-2-interview-1235871277/)
+
+
+## Prince Harry News for April 10, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 10, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 10, 2024
+
+### [**tmz.com** Travis Kelce Jokes About Wooing Taylor Swift, 'I Don't Know How The F*** I Did It'](https://www.tmz.com/2024/04/10/travis-kelce-jokes-about-wooing-taylor-swift-i-don-t-know-how-the-f-i-did-it/)
+
+### [**perezhilton.com** Taylor Swift &amp; Travis Kelce Try (And Fail) To Go On Incognito Date In LA!](https://perezhilton.com/taylor-swift-travis-kelce-incognito-date-la/)
+
+
+## Zendaya News for April 10, 2024
+
+### [**dailymail.co.uk** 	Zendaya cements her best-dressed status in sparkly white tennis-themed gown with daring thigh-high slit as she arrives at UK premiere of her VERY racy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13294141/Zendaya-cements-best-dressed-status-sparkly-white-tennis-themed-gown-daring-thigh-high-slit-arrives-Challengers-UK-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)

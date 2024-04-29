@@ -1,0 +1,838 @@
+# Stories for Bia News for April 18, 2024
+title =
+content = ## Bia News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West sheds his usual all-black look for white sweats while wife Bianca Censori goes BAREFOOT as they join the crowds for Disneyland visit](https://www.dailymail.co.uk/tvshowbiz/article-13319483/Kanye-West-white-sweats-wife-Bianca-Censori-BAREFOOT-Disneyland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**tmz.com** Prince Harry Officially Swaps Country of Residence from UK to U.S.](https://www.tmz.com/2024/04/17/prince-harry-changes-country-residence-uk-usa-america/)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**perezhilton.com** Are Taylor Swift &amp; Travis Kelce Planning To Attend The Met Gala?! Insider Says...](https://perezhilton.com/taylor-swift-travis-kelce-attending-met-gala-plans/)
+
+### [**dailymail.co.uk** 	As Courtney Love brands Taylor Swift 'unimportant', FEMAIL lays bare her most SCATHING celebrity takedowns - from furious feud with Madonna to her open 'hatred' of late husband Kurt Cobain's bandmate Dave Grohl](https://www.dailymail.co.uk/femail/article-13314713/courtney-love-celebrity-takedowns-dave-grohl-beyonce-taylor-swift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Zendaya says new movie Challengers is 'incredibly sexy' despite there being NO sex scenes in the movie: 'Tennis is the sex!'](https://www.dailymail.co.uk/tvshowbiz/article-13320711/zendaya-movie-challengers-sex-scenes-tennis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 18, 2024
+
+### [**perezhilton.com** Disneyland Allowed Bianca Censori To Go Barefoot?!](https://perezhilton.com/kanye-west-disneyland-bianca-censori-barefoot/)
+
+### [**dailymail.co.uk** 	Kanye West sheds his usual all-black look for white sweats while wife Bianca Censori goes BAREFOOT as they join the crowds for Disneyland visit](https://www.dailymail.co.uk/tvshowbiz/article-13319483/Kanye-West-white-sweats-wife-Bianca-Censori-BAREFOOT-Disneyland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 18, 2024
+
+### [**perezhilton.com** Kyle Marisa Roth’s Fans Are Mad At Me  - And I’m Not Sorry! Meghan Markle Is A Hustler! Taylor Swift And More! | Perez Hilton](https://perezhilton.com/kyle-marisa-roths-fans-are-mad-at-me-and-im-not-sorry-meghan-markle-is-a-hustler-taylor-swift-and-more-perez-hilton/)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	As Courtney Love brands Taylor Swift 'unimportant', FEMAIL lays bare her most SCATHING celebrity takedowns - from furious feud with Madonna to her open 'hatred' of late husband Kurt Cobain's bandmate Dave Grohl](https://www.dailymail.co.uk/femail/article-13314713/courtney-love-celebrity-takedowns-dave-grohl-beyonce-taylor-swift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Zendaya says new movie Challengers is 'incredibly sexy' despite there being NO sex scenes in the movie: 'Tennis is the sex!'](https://www.dailymail.co.uk/tvshowbiz/article-13320711/zendaya-movie-challengers-sex-scenes-tennis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**perezhilton.com** Prince Harry Cuts Ties With England -- Lists USA As His ‘New Country’!](https://perezhilton.com/prince-harry-cuts-ties-england-lists-usa-as-new-country/)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Zendaya says new movie Challengers is 'incredibly sexy' despite there being NO sex scenes in the movie: 'Tennis is the sex!'](https://www.dailymail.co.uk/tvshowbiz/article-13320711/zendaya-movie-challengers-sex-scenes-tennis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 18, 2024
+
+### [**dailymail.co.uk** 	Fans slam Disneyland for allowing Bianca Censori to break the strict dress code by going barefoot at the theme park with Kanye West](https://www.dailymail.co.uk/tvshowbiz/article-13321531/Fans-slam-Disneyland-allowing-Bianca-Censori-break-strict-dress-code-going-barefoot-theme-park-Kanye-West.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Simone Biles News for April 18, 2024
+
+### [**perezhilton.com** What 'Really Hurt' Simone Biles About Husband Jonathan Owens' Awful Comments](https://perezhilton.com/simone-biles-broke-down-hurt-husband-jonathan-owens-comments/)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Zendaya says new movie Challengers is 'incredibly sexy' despite there being NO sex scenes in the movie: 'Tennis is the sex!'](https://www.dailymail.co.uk/tvshowbiz/article-13320711/zendaya-movie-challengers-sex-scenes-tennis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 18, 2024
+
+### [**dailymail.co.uk** 	Fans slam Disneyland for allowing Bianca Censori to break the strict dress code by going barefoot at the theme park with Kanye West](https://www.dailymail.co.uk/tvshowbiz/article-13321531/Fans-slam-Disneyland-allowing-Bianca-Censori-break-strict-dress-code-going-barefoot-theme-park-Kanye-West.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**hollywoodreporter.com** Michael J. Fox on Why He Believes Taylor Swift, Ryan Reynolds Will Have an “Amazing” Impact on the World](https://www.hollywoodreporter.com/news/general-news/michael-j-fox-believes-taylor-swift-ryan-reynolds-impact-world-1235876572/)
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Zendaya says new movie Challengers is 'incredibly sexy' despite there being NO sex scenes in the movie: 'Tennis is the sex!'](https://www.dailymail.co.uk/tvshowbiz/article-13320711/zendaya-movie-challengers-sex-scenes-tennis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 18, 2024
+
+### [**dailymail.co.uk** 	Fans slam Disneyland for allowing Bianca Censori to break the strict dress code by going barefoot at the theme park with Kanye West](https://www.dailymail.co.uk/tvshowbiz/article-13321531/Fans-slam-Disneyland-allowing-Bianca-Censori-break-strict-dress-code-going-barefoot-theme-park-Kanye-West.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**tmz.com** Kanye West Suspect in Battery Report After Man Allegedly Grabs at His Wife](https://www.tmz.com/2024/04/17/kanye-west-suspect-battery-police-assault-bianca-censori/)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 18, 2024
+
+### [**dailymail.co.uk** 	Fans slam Disneyland for allowing Bianca Censori to break the strict dress code by going barefoot at the theme park with Kanye West](https://www.dailymail.co.uk/tvshowbiz/article-13321531/Fans-slam-Disneyland-allowing-Bianca-Censori-break-strict-dress-code-going-barefoot-theme-park-Kanye-West.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 18, 2024
+
+### [**tmz.com** TMZ TV Hot Takes: Sydney Sweeney Blasted, Bianca Censori, Jontay Porter](https://www.tmz.com/2024/04/18/tmz-tv-hot-takes-sydney-sweeney-bianca-censori-kanye-west-jontay-porter-raptors/)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 18, 2024
+
+### [**dailymail.co.uk** 	Meghan Markle's jam boosts sales... for the King! Royal fans rush out to buy Charles' £6.95 strawberry preserve with range selling out within days of Duchess' launch](https://www.dailymail.co.uk/news/article-13322301/Meghan-Markles-jam-boosts-sales-King-Royal-fans-rush-buy-Charles-6-95-strawberry-preserve-range-selling-days-Duchess-launch.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**dailymail.co.uk** 	Vanessa Feltz, Nigel Farage, Jeremy Kyle... and even Donald Trump and Kim Jong-Un help broadcaster James Whale celebrate his MBE with glitzy bash at Mayfair restaurant](https://www.dailymail.co.uk/news/article-13321443/James-Whale-celebrate-MBE-glitzy-bash-Mayfair-restaurant.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 18, 2024
+
+### [**dailymail.co.uk** 	Meghan Markle's jam boosts sales... for the King! Royal fans rush out to buy Charles' £6.95 strawberry preserve with range selling out within days of Duchess' launch](https://www.dailymail.co.uk/news/article-13322301/Meghan-Markles-jam-boosts-sales-King-Royal-fans-rush-buy-Charles-6-95-strawberry-preserve-range-selling-days-Duchess-launch.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 18, 2024
+
+### [**dailymail.co.uk** 	Meghan Markle's jam boosts sales... for the King! Royal fans rush out to buy Charles' £6.95 strawberry preserve with range selling out within days of Duchess' launch](https://www.dailymail.co.uk/news/article-13322301/Meghan-Markles-jam-boosts-sales-King-Royal-fans-rush-buy-Charles-6-95-strawberry-preserve-range-selling-days-Duchess-launch.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**tmz.com** Kim Kardashian Kisses Emma Roberts During 'American Horror Story'](https://www.tmz.com/2024/04/18/kim-kardashian-emma-roberts-kiss-american-horror-story-delicate/)
+
+
+## Meghan Markle News for April 18, 2024
+
+### [**dailymail.co.uk** 	Meghan Markle's jam boosts sales... for the King! Royal fans rush out to buy Charles' £6.95 strawberry preserve with range selling out within days of Duchess' launch](https://www.dailymail.co.uk/news/article-13322301/Meghan-Markles-jam-boosts-sales-King-Royal-fans-rush-buy-Charles-6-95-strawberry-preserve-range-selling-days-Duchess-launch.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Has Taylor Swift's Tortured Poets Department album been LEAKED? Swifties go into MELTDOWN as social media is flooded with clips of songs allegedly taken from popstar's highly-anticipated 11th record](https://www.dailymail.co.uk/tvshowbiz/article-13321139/taylor-swift-tortured-poets-department-leaked-album-clips-social-media.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 18, 2024
+
+### [**tmz.com** Diddy's Ex Daphne Joy Dresses in Sexy Outfit for Photo Shoot Amid Probe](https://www.tmz.com/2024/04/18/diddy-ex-girlfriend-daphne-joy-sexy-outfit-photo-shoot-federal-investigation/)
+
+
+## Joe Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**tmz.com** Taylor Swift's Album Purportedly Leaks Early, Fans Hear Matty Healy Lyrics](https://www.tmz.com/2024/04/18/taylor-swift-album-tortured-poets-department-leak-matty-healy-lyrics/)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 18, 2024
+
+### [**perezhilton.com** Kanye West Under Investigation For Punching Man Who Allegedly ‘Put His Hands Under’ Bianca Censori’s Dress!](https://perezhilton.com/kanye-west-investigation-punched-man-bianca-censori-assault/)
+
+### [**hollywoodreporter.com** Tobias Menzies Reflects on ‘Manhunt’ Ahead of Finale Fate: “Democracy Is Fragile” ](https://www.hollywoodreporter.com/tv/tv-features/tobias-menzies-manhunt-finale-fate-1235875901/)
+
+
+## Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**perezhilton.com** Was Taylor Swift Victimized By AI Again? New Album Seemingly Leaked -- But Swifties Are Fighting Back!](https://perezhilton.com/taylor-swift-tortured-poets-department-song-leaks-swifties-fight-back/)
+
+
+## Tom Brady News for April 18, 2024
+
+### [**tmz.com** Tom Brady Shows Off Chiseled Body During Shirtless Workout](https://www.tmz.com/2024/04/18/tom-brady-shows-off-chiseled-body-during-shirtless-workout/)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bieber News for April 18, 2024
+
+### [**highsnobiety.com** <![CDATA[No Comment, Just Justin Bieber's Insane Double Sweatpant Outfit]]>](https://www.highsnobiety.com/p/justin-bieber-balenciaga-sweatpants-outfit/)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 18, 2024
+
+### [**hollywoodreporter.com** Jimmy Kimmel, Stephen Colbert Fire Back at Donald Trump Over Renewed Oscars Criticism](https://www.hollywoodreporter.com/tv/tv-news/jimmy-kimmel-stephen-colbert-trump-oscars-1235876794/)
+
+
+## Joe Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**perezhilton.com** Kim Kardashian Gets Roasted Online For Posting Thirst Trap Pic Of Her Diving Into Knee-Deep Water!](https://perezhilton.com/kim-kardashian-roasted-diving-knee-deep-water-turks-and-caicos/)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Adele News for April 18, 2024
+
+### [**dailymail.co.uk** 	Madeleine McCann suspect Christian Brueckner seduced young mother in 'paedophile' chatroom and told her he thought her daughter, three, was 'cute' and 'could be a model', court hears](https://www.dailymail.co.uk/news/article-13322657/madeleine-mccann-suspect-christian-brueckner-chatroom-girlfriend-daughter-model.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 18, 2024
+
+### [**dailymail.co.uk** 	Quentin Tarantino SCRAPS plans for his final film The Movie Critic which had Brad Pitt set to star](https://www.dailymail.co.uk/tvshowbiz/article-13321683/Quentin-Tarantino-SCRAPS-plans-final-film-Movie-Critic-Brad-Pitt-set-star.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift fans go wild as her new album The Tortured Poets Department 'references former flame Matty Healy' as its 'leaked' hours before release](https://www.dailymail.co.uk/tvshowbiz/article-13324615/Taylor-Swift-album-Tortured-Poets-Department-references-Matty-Healy-leaked.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 18, 2024
+
+### [**tmz.com** Kanye West &amp; Bianca Censori Drive Around L.A. Hours After Alleged Battery](https://www.tmz.com/2024/04/18/kanye-west-bianca-censori-drive-luxury-cars-after-battery-report/)
+
+
+## Elon Musk News for April 18, 2024
+
+### [**dailymail.co.uk** 	Elon Musk confirms Tesla Cybertruck deliveries have been delayed due to potentially fatal fault: 'We are just being very cautious'](https://www.dailymail.co.uk/sciencetech/article-13324171/Elon-Musk-confirms-accelerator-problem-delayed-Cybertruck-deliveries.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Harry Styles News for April 18, 2024
+
+### [**dailymail.co.uk** 	Harry Styles' stalker is jailed after sending 8,000 cards to singer in less than a month and causing serious alarm and distress](https://www.dailymail.co.uk/tvshowbiz/article-13324851/Harry-Styles-stalker-jailed-sending-8-000-cards-distress.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 18, 2024
+
+### [**tmz.com** Sydney Sweeney's Acting Coach Says She's a Talented Actress, Not a Supermodel](https://www.tmz.com/2024/04/18/sydney-sweeney-acting-coach-talented-actress-not-supermodel/)
+
+
+## Taylor Swift News for April 18, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift fans go wild as her new album The Tortured Poets Department 'references former flame Matty Healy' as its 'leaked' hours before release](https://www.dailymail.co.uk/tvshowbiz/article-13324615/Taylor-Swift-album-Tortured-Poets-Department-references-Matty-Healy-leaked.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bieber News for April 18, 2024
+
+### [**highsnobiety.com** <![CDATA[No Comment, Only Justin Bieber's Insane Double Sweatpants Outfit]]>](https://www.highsnobiety.com/p/justin-bieber-balenciaga-sweatpants-outfit/)
+
+
+## Elon Musk News for April 18, 2024
+
+### [**dailymail.co.uk** 	Elon Musk confirms Tesla Cybertruck deliveries have been delayed due to potentially fatal fault: 'We are just being very cautious'](https://www.dailymail.co.uk/sciencetech/article-13324171/Elon-Musk-confirms-accelerator-problem-delayed-Cybertruck-deliveries.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Harry Styles News for April 18, 2024
+
+### [**dailymail.co.uk** 	Harry Styles' stalker is jailed after sending 8,000 cards to singer in less than a month and causing serious alarm and distress](https://www.dailymail.co.uk/tvshowbiz/article-13324851/Harry-Styles-stalker-jailed-sending-8-000-cards-distress.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 18, 2024
+
+### [**perezhilton.com** Meghan Markle's New Jam Boosts Sales... For King Charles' Competing Product! Ouch!](https://perezhilton.com/meghan-markle-jam-boosts-sales-king-charles/)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Cardi B News for April 18, 2024
+
+### [**perezhilton.com** Cardi B Thinks She's 'Too Skinny' -- And Has A DIRTY Plan For Putting On Lbs!](https://perezhilton.com/cardi-b-too-skinny-instagram-live-plan-gain-weight/)
+
+
+## Elon Musk News for April 18, 2024
+
+### [**dailymail.co.uk** 	Elon Musk confirms Tesla Cybertruck deliveries have been delayed due to potentially fatal fault: 'We are just being very cautious'](https://www.dailymail.co.uk/sciencetech/article-13324171/Elon-Musk-confirms-accelerator-problem-delayed-Cybertruck-deliveries.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Harry Styles News for April 18, 2024
+
+### [**dailymail.co.uk** 	Harry Styles' stalker is jailed after sending 8,000 cards to singer in less than a month and causing serious alarm and distress](https://www.dailymail.co.uk/tvshowbiz/article-13324851/Harry-Styles-stalker-jailed-sending-8-000-cards-distress.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 18, 2024
+
+### [**tmz.com** Shyne Says He Was Fall Guy for '99 Shooting, But Doesn't Accuse Diddy](https://www.tmz.com/2024/04/18/shyne-fall-guy-1999-club-shooting-stops-short-accusing-diddy-victim/)
+
+
+## Harry Styles News for April 18, 2024
+
+### [**dailymail.co.uk** 	Harry Styles' stalker is jailed after sending 8,000 cards to singer in less than a month and causing serious alarm and distress](https://www.dailymail.co.uk/tvshowbiz/article-13324851/Harry-Styles-stalker-jailed-sending-8-000-cards-distress.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Harry Styles News for April 18, 2024
+
+### [**dailymail.co.uk** 	Harry Styles' stalker is jailed after sending 8,000 cards to singer in less than a month and causing serious alarm and distress](https://www.dailymail.co.uk/tvshowbiz/article-13324851/Harry-Styles-stalker-jailed-sending-8-000-cards-distress.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 18, 2024
+
+### [**dailymail.co.uk** 	Israel 'ABORTS plan to carry out retaliatory strike on Iran': Netanyahu 'decided not to proceed following discussion with Joe Biden'](https://www.dailymail.co.uk/news/article-13322379/Israel-ABORTS-plan-carry-retaliatory-strike-Iran-Netanyahu-decided-not-proceed-following-discussion-Joe-Biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 18, 2024
+
+### [**dailymail.co.uk** 	Kanye West explodes as he is named as battery suspect by LAPD after 'punching man who grabbed Bianca Censori': Rapper says wife was sexually assaulted by perpetrator who shoved his hands under her dress](https://www.dailymail.co.uk/news/article-13322145/Kanye-suspect-police-report-punch-man-Bianca.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 18, 2024
+
+### [**perezhilton.com** Kim &amp; Kourtney Kardashian 'Jealous' Of Khloé Landing Lucrative New Brand Partnership: REPORT](https://perezhilton.com/kim-kourtney-kardashian-jealous-khloe-brand-deal-oodles-of-doodles/)
+
+
+## Meghan Markle News for April 18, 2024
+
+### [**perezhilton.com** Meghan Markle &amp; Bestie Abigail Spencer Reunite For Mini Suits Reunion -- LOOK!](https://perezhilton.com/meghan-markle-suits-reunion-abigail-spencer/)
+
+
+## Prince Harry News for April 18, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's decision to use date he and Meghan were evicted from Frogmore Cottage as start of his US residency reveals his 'irritation' at King Charles and is confirmation couple have no intention of living in UK in near future, royal experts say](https://www.dailymail.co.uk/news/article-13322811/Prince-Harrys-decision-use-date-Meghan-evicted-Frogmore-Cottage-start-residency-reveals-irritation-King-Charles-confirmation-couple-no-intention-living-UK-near-future-royal-experts-say.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 18, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney and Zendaya both wowed in Euphoria, so why are they treated so differently?](https://www.dailymail.co.uk/femail/article-13322583/Euphoria-zendaya-sydney-sweeney.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)

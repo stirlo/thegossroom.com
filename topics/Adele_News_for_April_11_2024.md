@@ -1,0 +1,540 @@
+# Stories for Adele News for April 11, 2024
+title =
+content = ## Adele News for April 11, 2024
+
+### [**dailymail.co.uk** 	Friend of Christian Brueckner feared the Madeleine McCann suspect 'was part of a mafia pornography ring', trial hears after witness says she feared he would rape her](https://www.dailymail.co.uk/news/article-13291865/Woman-invited-holiday-Madeleine-McCann-suspect-Christian-Brueckner-feared-rape-armed-knife-sex-trial.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 11, 2024
+
+### [**perezhilton.com** Kim Kardashian Is Caked Up By The Ocean In HAWT New Pics!](https://perezhilton.com/kim-kardashian-cake-boss-beach-ocean-bikini-pictures/)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 11, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 11, 2024
+
+### [**tmz.com** Travis Kelce Jokes About Wooing Taylor Swift, 'I Don't Know How The F*** I Did It'](https://www.tmz.com/2024/04/10/travis-kelce-jokes-about-wooing-taylor-swift-i-don-t-know-how-the-f-i-did-it/)
+
+
+## Zendaya News for April 11, 2024
+
+### [**dailymail.co.uk** 	Zendaya cements her best-dressed status in sparkly white tennis-themed gown with daring thigh-high slit as she arrives at UK premiere of her VERY racy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13294141/Zendaya-cements-best-dressed-status-sparkly-white-tennis-themed-gown-daring-thigh-high-slit-arrives-Challengers-UK-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Ariana Grande News for April 11, 2024
+
+### [**hollywoodreporter.com** ‘Wicked’ Lights Up CinemaCon with Ariana Grande, Cynthia Erivo and Director Jon M. Chu](https://www.hollywoodreporter.com/movies/movie-news/wicked-movie-footage-ariana-grande-cynthia-erivo-1235871401/)
+
+
+## Bia News for April 11, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bieber News for April 11, 2024
+
+### [**perezhilton.com** Justin Bieber And His Wife Separating? JoJo Siwa Has Gone Too Far!! Tori Spelling’s Poop Problem! And MORE!](https://perezhilton.com/justin-bieber-and-his-wife-separating-jojo-siwa-has-gone-too-far-tori-spellings-poop-problem-and-more/)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	David Cameron says he 'agrees' with Donald Trump that Gaza war must be brought to a close as quickly as possible after Mar-a-Lago meeting](https://www.dailymail.co.uk/news/article-13294139/david-cameron-donald-trump-gaza-israel.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 11, 2024
+
+### [**perezhilton.com** Drake Bell Says He Can't Even Sit On A Plane The Same After Childhood Assault](https://perezhilton.com/drake-bell-cant-sit-the-same-after-childhood-sa/)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden vows 'ironclad' support for Israel amid fears missile attack by Iran is imminent after Tehran clears airspace for 'military drills'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 11, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 11, 2024
+
+### [**hollywoodreporter.com** Zendaya Says She Got “Really Lightheaded” While Wearing Viral Mugler Robotic Bodysuit](https://www.hollywoodreporter.com/lifestyle/style/zendaya-lightheaded-wearing-mugler-robotic-bodysuit-1235871518/)
+
+### [**dailymail.co.uk** 	Zendaya cements her best-dressed status in sparkly white tennis-themed gown with daring thigh-high slit as she arrives at UK premiere of her VERY racy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13294141/Zendaya-cements-best-dressed-status-sparkly-white-tennis-themed-gown-daring-thigh-high-slit-arrives-Challengers-UK-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	David Cameron says he 'agrees' with Donald Trump that Gaza war must be brought to a close as quickly as possible after Mar-a-Lago meeting](https://www.dailymail.co.uk/news/article-13294139/david-cameron-donald-trump-gaza-israel.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 11, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 11, 2024
+
+### [**dailymail.co.uk** 	Zendaya cements her best-dressed status in sparkly white tennis-themed gown with daring thigh-high slit as she arrives at UK premiere of her VERY racy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13294141/Zendaya-cements-best-dressed-status-sparkly-white-tennis-themed-gown-daring-thigh-high-slit-arrives-Challengers-UK-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	David Cameron says he 'agrees' with Donald Trump that Gaza war must be brought to a close as quickly as possible after Mar-a-Lago meeting](https://www.dailymail.co.uk/news/article-13294139/david-cameron-donald-trump-gaza-israel.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 11, 2024
+
+### [**dailymail.co.uk** 	How that handshake from Diana reached right around the world... It was on this day that the Princess of Wales struck a blow for humanity - and for the thousands who were demonised because they had HIV and AIDS](https://www.dailymail.co.uk/news/article-13287757/Dianas-handshake-world-Princess-blow-AIDS.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 11, 2024
+
+### [**dailymail.co.uk** 	Zendaya cements her best-dressed status in sparkly white tennis-themed gown with daring thigh-high slit as she arrives at UK premiere of her VERY racy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13294141/Zendaya-cements-best-dressed-status-sparkly-white-tennis-themed-gown-daring-thigh-high-slit-arrives-Challengers-UK-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## 50 Cent News for April 11, 2024
+
+### [**dailymail.co.uk** 	DJ Mister Cee dead at 57: 50 Cent leads tributes to rap producer who worked with Notorious B.I.G.: 'R.I.P. to the legend'](https://www.dailymail.co.uk/tvshowbiz/article-13294761/DJ-Mister-Cee-dead-57-50-Cent-producer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	David Cameron says he 'agrees' with Donald Trump that Gaza war must be brought to a close as quickly as possible after Mar-a-Lago meeting](https://www.dailymail.co.uk/news/article-13294139/david-cameron-donald-trump-gaza-israel.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## 50 Cent News for April 11, 2024
+
+### [**dailymail.co.uk** 	DJ Mister Cee dead at 57: 50 Cent leads tributes to rap producer who worked with Notorious B.I.G.: 'R.I.P. to the legend'](https://www.dailymail.co.uk/tvshowbiz/article-13294761/DJ-Mister-Cee-dead-57-50-Cent-producer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince Harry's US visa application papers have been handed over to a judge who will decide whether or not they should be made public](https://www.dailymail.co.uk/news/article-13292677/prince-harry-visa-judge-decide-public.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## 50 Cent News for April 11, 2024
+
+### [**dailymail.co.uk** 	DJ Mister Cee dead at 57: 50 Cent leads tributes to rap producer who worked with Notorious B.I.G.: 'R.I.P. to the legend'](https://www.dailymail.co.uk/tvshowbiz/article-13294761/DJ-Mister-Cee-dead-57-50-Cent-producer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## 50 Cent News for April 11, 2024
+
+### [**dailymail.co.uk** 	DJ Mister Cee dead at 57: 50 Cent leads tributes to rap producer who worked with Notorious B.I.G.: 'R.I.P. to the legend'](https://www.dailymail.co.uk/tvshowbiz/article-13294761/DJ-Mister-Cee-dead-57-50-Cent-producer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**dailymail.co.uk** 	Humiliation for Saudi Arabia as it's 'forced to scale back $1.5trillion plans for 106-mile-long city The Line to just 1.5miles with workers already being laid off at desert construction site'](https://www.dailymail.co.uk/news/article-13292521/Saudi-Arabia-forced-scaleback-Line-project-NEOM.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## 50 Cent News for April 11, 2024
+
+### [**dailymail.co.uk** 	DJ Mister Cee dead at 57: 50 Cent leads tributes to rap producer who worked with Notorious B.I.G.: 'R.I.P. to the legend'](https://www.dailymail.co.uk/tvshowbiz/article-13294761/DJ-Mister-Cee-dead-57-50-Cent-producer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**dailymail.co.uk** 	Passengers' screaming argument forces UK flight to Turkey to divert to Serbia: Footage 'shows unruly holidaymaker dragged off plane by police'](https://www.dailymail.co.uk/news/article-13295933/Passengers-screaming-argument-forces-UK-flight-Turkey-divert-Serbia-Footage-shows-unruly-holidaymaker-dragged-plane-police.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince Harry hosts 'Beyond Burnout' session at BetterUp summit in San Francisco as life-coaching firm's Chief Impact Officer - and poses with The Office star Mindy Kaling who appeared on Meghan's axed Archetypes podcast](https://www.dailymail.co.uk/news/article-13295879/Prince-Harry-Burnout-session-BetterUp-summit-San-Francisco.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 11, 2024
+
+### [**dailymail.co.uk** 	Zendaya and Tom Holland silence split rumours as they share a rare PDA at the premiere of her steamy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13296017/Zendaya-boyfriend-Tom-Holland-silence-split-rumours-share-rare-PDA.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## 50 Cent News for April 11, 2024
+
+### [**dailymail.co.uk** 	DJ Mister Cee dead at 57: 50 Cent leads tributes to rap producer who worked with Notorious B.I.G.: 'R.I.P. to the legend'](https://www.dailymail.co.uk/tvshowbiz/article-13294761/DJ-Mister-Cee-dead-57-50-Cent-producer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 11, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori copies his ex Kim Kardashian AGAIN as she steps out in a plunging white dress previously worn by the reality star](https://www.dailymail.co.uk/tvshowbiz/article-13296057/Kanye-Wests-wife-Bianca-Censori-copies-ex-Kim-Kardashian-steps-plunging-white-dress-similar-one-reality-star-wore-birthday-party.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## 50 Cent News for April 11, 2024
+
+### [**dailymail.co.uk** 	DJ Mister Cee dead at 57: 50 Cent leads tributes to rap producer who worked with Notorious B.I.G.: 'R.I.P. to the legend'](https://www.dailymail.co.uk/tvshowbiz/article-13294761/DJ-Mister-Cee-dead-57-50-Cent-producer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 11, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori copies his ex Kim Kardashian AGAIN as she steps out in a plunging white dress previously worn by the reality star](https://www.dailymail.co.uk/tvshowbiz/article-13296057/Kanye-Wests-wife-Bianca-Censori-copies-ex-Kim-Kardashian-steps-plunging-white-dress-similar-one-reality-star-wore-birthday-party.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## 50 Cent News for April 11, 2024
+
+### [**dailymail.co.uk** 	DJ Mister Cee dead at 57: 50 Cent leads tributes to rap producer who worked with Notorious B.I.G.: 'R.I.P. to the legend'](https://www.dailymail.co.uk/tvshowbiz/article-13294761/DJ-Mister-Cee-dead-57-50-Cent-producer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**hollywoodreporter.com** Donald Trump Movie ‘The Apprentice’ to Premiere at Cannes: First Look and What We Know](https://www.hollywoodreporter.com/movies/movie-news/donald-trump-movie-the-apprentice-sebastian-stan-cannes-1235871795/)
+
+### [**dailymail.co.uk** 	Now Boris warns Donald Trump not to abandon Ukraine if he becomes president again as ex-PM Johnson joins UK offensive against US Republicans and says Kyiv must be allowed to join Nato](https://www.dailymail.co.uk/news/article-13296867/Now-Boris-warns-Donald-Trump-not-abandon-Ukraine-president-ex-PM-Johnson-joins-UK-offensive-against-Republicans-says-Kyiv-allowed-join-Nato.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## 50 Cent News for April 11, 2024
+
+### [**dailymail.co.uk** 	DJ Mister Cee dead at 57: 50 Cent leads tributes to rap producer who worked with Notorious B.I.G.: 'R.I.P. to the legend'](https://www.dailymail.co.uk/tvshowbiz/article-13294761/DJ-Mister-Cee-dead-57-50-Cent-producer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	Now Boris warns Donald Trump not to abandon Ukraine if he becomes president again as ex-PM Johnson joins UK offensive against US Republicans and says Kyiv must be allowed to join Nato](https://www.dailymail.co.uk/news/article-13296867/Now-Boris-warns-Donald-Trump-not-abandon-Ukraine-president-ex-PM-Johnson-joins-UK-offensive-against-Republicans-says-Kyiv-allowed-join-Nato.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 11, 2024
+
+### [**dailymail.co.uk** 	Joe Biden tells Iran - DON'T attack Israel: With Middle East on a knife-edge as Tehran 'closes airspace for military drills' and Washington warns missile barrage could be imminent, President tells Ayatollah US support for Israel is 'ironclad'](https://www.dailymail.co.uk/news/article-13295143/Joe-Biden-vows-ironclad-support-Israel-amid-fears-missile-attack-Iran-imminent-Tehran-clears-airspace-military-drills.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	Now Boris warns Donald Trump not to abandon Ukraine if he becomes president again as ex-PM Johnson joins UK offensive against US Republicans and says Kyiv must be allowed to join Nato](https://www.dailymail.co.uk/news/article-13296867/Now-Boris-warns-Donald-Trump-not-abandon-Ukraine-president-ex-PM-Johnson-joins-UK-offensive-against-Republicans-says-Kyiv-allowed-join-Nato.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	California's answer to David Brent? Prince Harry leaves fans disappointed as he dodges livestream of 'life coaching' summit for CEOs that charged $1,600-a-ticket - after posing up with The Office star Mindy Kaling](https://www.dailymail.co.uk/news/article-13295879/Prince-Harry-Burnout-session-BetterUp-summit-San-Francisco.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**tmz.com** Bianca Censori Channels Kim Kardashian's Style with Kanye During L.A. Party](https://www.tmz.com/2024/04/11/bianca-censori-channel-kim-kardashian-style-copy-kanye-white-dress/)
+
+
+## Paris Hilton News for April 11, 2024
+
+### [**perezhilton.com** Paris Hilton Explains REAL Reason She Hasn't Revealed Daughter's Face -- But Will Soon!](https://perezhilton.com/paris-hilton-real-reason-hasnt-revealed-daughter-london-face-will-soon/)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	California's answer to David Brent? Prince Harry leaves fans disappointed as he dodges livestream of 'life coaching' summit for CEOs that charged $1,600-a-ticket - after posing up with The Office star Mindy Kaling](https://www.dailymail.co.uk/news/article-13295879/Prince-Harry-Burnout-session-BetterUp-summit-San-Francisco.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 11, 2024
+
+### [**dailymail.co.uk** 	Zendaya and Tom Holland silence split rumours as they share a rare PDA at the premiere of her steamy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13296017/Zendaya-boyfriend-Tom-Holland-silence-split-rumours-share-rare-PDA.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 11, 2024
+
+### [**perezhilton.com** Kourtney Kardashian Drank WHAT While Feeling Sick??](https://perezhilton.com/kourtney-kardashian-drank-breast-milk-feeling-sick/)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	California's answer to David Brent? Prince Harry leaves fans disappointed as he dodges livestream of 'life coaching' summit for CEOs that charged $1,600-a-ticket - after posing up with The Office star Mindy Kaling](https://www.dailymail.co.uk/news/article-13295879/Prince-Harry-Burnout-session-BetterUp-summit-San-Francisco.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 11, 2024
+
+### [**dailymail.co.uk** 	Zendaya and Tom Holland silence split rumours as they share a rare PDA at the premiere of her steamy new film Challengers](https://www.dailymail.co.uk/tvshowbiz/article-13296017/Zendaya-boyfriend-Tom-Holland-silence-split-rumours-share-rare-PDA.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Beyoncé News for April 11, 2024
+
+### [**hollywoodreporter.com** Can Beyoncé’s ‘Cowboy Carter’ Overcome Country’s Bias?](https://www.hollywoodreporter.com/news/music-news/beyonce-cowboy-carter-album-grammys-chances-1235869899/)
+
+
+## Dua Lipa News for April 11, 2024
+
+### [**dailymail.co.uk** 	Dua Lipa flaunts her incredible figure in a thong bodysuit as she shares behind-the-scenes snaps from the music video for her new single Illusion](https://www.dailymail.co.uk/tvshowbiz/article-13297393/Dua-Lipa-flaunts-incredible-figure-thong-bodysuit-shares-scenes-snaps-music-video-new-single-Illusion.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	California's answer to David Brent? Prince Harry leaves fans disappointed as he dodges livestream of 'life coaching' summit for CEOs that charged $1,600-a-ticket - after posing up with The Office star Mindy Kaling](https://www.dailymail.co.uk/news/article-13295879/Prince-Harry-Burnout-session-BetterUp-summit-San-Francisco.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 11, 2024
+
+### [**hollywoodreporter.com** Taylor Swift Songs Return to TikTok Ahead of New Album Release](https://www.hollywoodreporter.com/business/business-news/taylor-swift-songs-back-tiktok-despite-ban-new-album-1235871915/)
+
+
+## Jenner News for April 11, 2024
+
+### [**dailymail.co.uk** 	Caitlyn Jenner reacts to OJ Simpson's death 30 years after killing of his wife and her friend tore Kardashians apart: 'Good riddance'](https://www.dailymail.co.uk/tvshowbiz/article-13298143/OJ-Simpson-dead-Caitlyn-Jenner-reacts-Kardashian-family.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 11, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori copies his ex Kim Kardashian AGAIN as she steps out in a plunging white dress previously worn by the reality star](https://www.dailymail.co.uk/tvshowbiz/article-13296057/Kanye-Wests-wife-Bianca-Censori-copies-ex-Kim-Kardashian-steps-plunging-white-dress-similar-one-reality-star-wore-birthday-party.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	California's answer to David Brent? Prince Harry leaves fans disappointed as he dodges livestream of 'life coaching' summit for CEOs that charged $1,600-a-ticket - after posing up with The Office star Mindy Kaling](https://www.dailymail.co.uk/news/article-13295879/Prince-Harry-Burnout-session-BetterUp-summit-San-Francisco.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	President for LIFE? If Donald Trump wins in November, most Americans say he'll extend his term beyond the January 2029 limit, a Daily Mail poll shows](https://www.dailymail.co.uk/news/article-13285685/President-LIFE-Donald-Trump-Americans-White-House-term-limit-poll-survey.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 11, 2024
+
+### [**tmz.com** Drake Dismissed From Astroworld Class Action Lawsuit](https://www.tmz.com/2024/04/11/drake-dismissed-defendant-astroworld-lawsuit-travis-scott/)
+
+
+## Jenner News for April 11, 2024
+
+### [**dailymail.co.uk** 	Caitlyn Jenner reacts to OJ Simpson's death 30 years after killing of his wife and her friend tore Kardashians apart: 'Good riddance'](https://www.dailymail.co.uk/tvshowbiz/article-13298143/OJ-Simpson-dead-Caitlyn-Jenner-reacts-Kardashian-family.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 11, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori copies his ex Kim Kardashian AGAIN as she steps out in a plunging white dress previously worn by the reality star](https://www.dailymail.co.uk/tvshowbiz/article-13296057/Kanye-Wests-wife-Bianca-Censori-copies-ex-Kim-Kardashian-steps-plunging-white-dress-similar-one-reality-star-wore-birthday-party.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	California's answer to David Brent? Prince Harry leaves fans disappointed as he dodges livestream of 'life coaching' summit for CEOs that charged $1,600-a-ticket - after posing up with The Office star Mindy Kaling](https://www.dailymail.co.uk/news/article-13295879/Prince-Harry-Burnout-session-BetterUp-summit-San-Francisco.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	President for LIFE? If Donald Trump wins in November, most Americans say he'll extend his term beyond the January 2029 limit, a Daily Mail poll shows](https://www.dailymail.co.uk/news/article-13285685/President-LIFE-Donald-Trump-Americans-White-House-term-limit-poll-survey.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 11, 2024
+
+### [**hollywoodreporter.com** O.J. Simpson Dead: Caitlyn Jenner Says “Good Riddance” as Hollywood Stars React to News](https://www.hollywoodreporter.com/news/general-news/oj-simpson-dead-caitlyn-jenner-celeb-reactions-1235872089/)
+
+
+## Kanye News for April 11, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori copies his ex Kim Kardashian AGAIN as she steps out in a plunging white dress previously worn by the reality star](https://www.dailymail.co.uk/tvshowbiz/article-13296057/Kanye-Wests-wife-Bianca-Censori-copies-ex-Kim-Kardashian-steps-plunging-white-dress-similar-one-reality-star-wore-birthday-party.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 11, 2024
+
+### [**dailymail.co.uk** 	California's answer to David Brent? Prince Harry leaves fans disappointed as he dodges livestream of 'life coaching' summit for CEOs that charged $1,600-a-ticket - after posing up with The Office star Mindy Kaling](https://www.dailymail.co.uk/news/article-13295879/Prince-Harry-Burnout-session-BetterUp-summit-San-Francisco.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 11, 2024
+
+### [**perezhilton.com** Bianca Censori Eat Your Heart Out! Chrissy Teigen Goes Nude &amp; See-Through On The Red Carpet!](https://perezhilton.com/chrissy-teigen-sheer-nude-see-through-dress-bianca-censori/)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	President for LIFE? If Donald Trump wins in November, most Americans say he'll extend his term beyond the January 2029 limit, a Daily Mail poll shows](https://www.dailymail.co.uk/news/article-13285685/President-LIFE-Donald-Trump-Americans-White-House-term-limit-poll-survey.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 11, 2024
+
+### [**hollywoodreporter.com** O.J. Simpson Death: Caitlyn Jenner Says “Good Riddance” as Hollywood Stars React to News](https://www.hollywoodreporter.com/news/general-news/oj-simpson-dead-caitlyn-jenner-celeb-reactions-1235872089/)
+
+
+## Kanye News for April 11, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori copies his ex Kim Kardashian AGAIN as she steps out in a plunging white dress previously worn by the reality star](https://www.dailymail.co.uk/tvshowbiz/article-13296057/Kanye-Wests-wife-Bianca-Censori-copies-ex-Kim-Kardashian-steps-plunging-white-dress-similar-one-reality-star-wore-birthday-party.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince Harry and Meghan Markle are 'set to debut TWO new Netflix series' that will see Duke lifting the lid on the glitzy world of POLO - while Duchess will 'celebrate gardening and cooking' after launching new lifestyle brand American Riviera Orchard](https://www.dailymail.co.uk/news/royals/article-13298605/Meghan-Harry-Netflix-shows-cooking-gardening-polo.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 11, 2024
+
+### [**highsnobiety.com** <![CDATA[Zendaya Isn't the Only Star of the 'Challengers' Press Tour]]>](https://www.highsnobiety.com/p/challengers-i-told-ya-shirt/)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	President for LIFE? If Donald Trump wins in November, most Americans say he'll extend his term beyond the January 2029 limit, a Daily Mail poll shows](https://www.dailymail.co.uk/news/article-13285685/President-LIFE-Donald-Trump-Americans-White-House-term-limit-poll-survey.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 11, 2024
+
+### [**perezhilton.com** Caitlyn Jenner Had A STONE COLD Reaction To O.J. Simpson's Death! Damn!](https://perezhilton.com/oj-simpson-death-caitlyn-jenner-reacts/)
+
+
+## Kanye News for April 11, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori copies his ex Kim Kardashian AGAIN as she steps out in a plunging white dress previously worn by the reality star](https://www.dailymail.co.uk/tvshowbiz/article-13296057/Kanye-Wests-wife-Bianca-Censori-copies-ex-Kim-Kardashian-steps-plunging-white-dress-similar-one-reality-star-wore-birthday-party.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 11, 2024
+
+### [**tmz.com** Meghan Markle &amp; Prince Harry Launching Two New Shows for Netflix](https://www.tmz.com/2024/04/11/meghan-markle-prince-harry-launching-two-new-netflix-shows/)
+
+### [**dailymail.co.uk** 	Prince Harry and Meghan Markle are 'set to debut TWO new Netflix series' that will see Duke lifting the lid on the glitzy world of POLO - while Duchess will 'celebrate gardening and cooking' after launching new lifestyle brand American Riviera Orchard](https://www.dailymail.co.uk/news/royals/article-13298605/Meghan-Harry-Netflix-shows-cooking-gardening-polo.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Ariana Grande News for April 11, 2024
+
+### [**perezhilton.com** Ariana Grande &amp; Ethan Slater Cuddle Up In Rare Photo Together With The Wicked Cast! LOOK!](https://perezhilton.com/ariana-grande-cuddle-up-ethan-slater-rare-photo-wicked-cast/)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	President for LIFE? If Donald Trump wins in November, most Americans say he'll extend his term beyond the January 2029 limit, a Daily Mail poll shows](https://www.dailymail.co.uk/news/article-13285685/President-LIFE-Donald-Trump-Americans-White-House-term-limit-poll-survey.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 11, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori copies his ex Kim Kardashian AGAIN as she steps out in a plunging white dress previously worn by the reality star](https://www.dailymail.co.uk/tvshowbiz/article-13296057/Kanye-Wests-wife-Bianca-Censori-copies-ex-Kim-Kardashian-steps-plunging-white-dress-similar-one-reality-star-wore-birthday-party.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 11, 2024
+
+### [**perezhilton.com** Prince Harry &amp; Meghan Markle Announce 2 NEW Netflix Series! Details!](https://perezhilton.com/prince-harry-meghan-markle-announce-two-netflix-shows/)
+
+### [**dailymail.co.uk** 	Prince Harry and Meghan Markle are 'set to debut TWO new Netflix series' that will see Duke lifting the lid on the glitzy world of POLO - while Duchess will 'celebrate gardening and cooking' after launching new lifestyle brand American Riviera Orchard](https://www.dailymail.co.uk/news/royals/article-13298605/Meghan-Harry-Netflix-shows-cooking-gardening-polo.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince William celebrates Aston Villa's opening goal against Lille with Prince George at Villa Park - as duo watch Europa Conference League quarter-final tie amid backdrop of Princess of Wales' cancer diagnosis battle](https://www.dailymail.co.uk/sport/football/article-13298845/Prince-William-spotted-celebrating-Aston-Villas-opening-goal-against-Lille-alongside-Prince-George-Villa-Park-Ollie-Watkins-puts-hosts-ahead-early-Europa-Conference-League-clash.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Ariana Grande News for April 11, 2024
+
+### [**hollywoodreporter.com** Jon M. Chu Says ‘Wicked’ Aficionado Ariana Grande Consulted on What Lines to Keep: “That’s Bible”](https://www.hollywoodreporter.com/movies/movie-news/wicked-director-jon-m-chu-interview-career-diversity-1235872142/)
+
+
+## Donald Trump News for April 11, 2024
+
+### [**dailymail.co.uk** 	President for LIFE? If Donald Trump wins in November, most Americans say he'll extend his term beyond the January 2029 limit, a Daily Mail poll shows](https://www.dailymail.co.uk/news/article-13285685/President-LIFE-Donald-Trump-Americans-White-House-term-limit-poll-survey.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 11, 2024
+
+### [**tmz.com** Kanye West's Gutted Malibu Mansion Asking Price Drops by $14 Million](https://www.tmz.com/2024/04/11/kanye-west-gutted-malibu-mansion-asking-price-drop-14-million/)
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori copies his ex Kim Kardashian AGAIN as she steps out in a plunging white dress previously worn by the reality star](https://www.dailymail.co.uk/tvshowbiz/article-13296057/Kanye-Wests-wife-Bianca-Censori-copies-ex-Kim-Kardashian-steps-plunging-white-dress-similar-one-reality-star-wore-birthday-party.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 11, 2024
+
+### [**tmz.com** Kourtney Kardashian Drinks Her Own Breast Milk To Cure Sickness](https://www.tmz.com/2024/04/11/kourtney-kardashian-drink-breast-milk-cure-sickness/)
+
+
+## Meghan Markle News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince Harry and Meghan Markle are 'set to debut TWO new Netflix series' that will see Duke lifting the lid on the glitzy world of POLO - while Duchess will 'celebrate gardening and cooking' after launching new lifestyle brand American Riviera Orchard](https://www.dailymail.co.uk/news/royals/article-13298605/Meghan-Harry-Netflix-shows-cooking-gardening-polo.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 11, 2024
+
+### [**dailymail.co.uk** 	Prince George beams as he watches Aston Villa with dad William: Royal pair roar their side to victory on father-and-son bonding trip - their first family day out since the revelation the Princess of Wales is battling cancer](https://www.dailymail.co.uk/news/article-13299273/prince-william-bonding-george-aston-villa-appearance-kate-middleton-cancer.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 11, 2024
+
+### [**perezhilton.com** Inside Taylor Swift &amp; Travis Kelce's SUPER LUXE Coachella Plans!](https://perezhilton.com/travis-kelce-taylor-swift-luxurious-coachella-plans/)

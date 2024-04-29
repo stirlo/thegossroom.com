@@ -1,0 +1,732 @@
+# Stories for Harry Styles News for April 24, 2024
+title =
+content = ## Harry Styles News for April 24, 2024
+
+### [**dailymail.co.uk** 	Ivor Novello Awards 2024 nominations: Raye and Harry Styles lead the way ahead of prestigious ceremony as full list is announced](https://www.dailymail.co.uk/tvshowbiz/article-13342553/ivor-novello-awards-2024-nominations-raye-harry-styles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kanye West and leggy wife Bianca Censori match in edgy cream ensembles (and rapper flashes his underwear!) in FIRST sighting since Chateau Marmont 'punch' probe](https://www.dailymail.co.uk/tvshowbiz/article-13341767/Kanye-West-leggy-wife-Bianca-Censori-match-edgy-cream-ensembles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**perezhilton.com** Kim Kardashian Wants Taylor Swift To 'Move On' From Bitter Feud After TTPD Diss Track!](https://perezhilton.com/kim-kardashian-wants-taylor-swift-move-on-from-feud-after-ttpd-diss-track/)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kate Middleton is honoured by the King for her years of public service: Princess of Wales becomes first member of the royal family to be appointed a Royal Companion of The Order of the Companions of Honour](https://www.dailymail.co.uk/news/article-13341209/Kate-Middleton-King-Charles-companions-honour.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Elon Musk News for April 24, 2024
+
+### [**dailymail.co.uk** 	Elon Musk promises cheap $25k Tesla  within a YEAR - boosting share price by 11% even after EV maker's worst earnings since 2012](https://www.dailymail.co.uk/yourmoney/cars/article-13342141/tesla-reports-worst-earnings-2012.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Harry Styles News for April 24, 2024
+
+### [**dailymail.co.uk** 	Ivor Novello Awards 2024 nominations: Raye and Harry Styles lead the way ahead of prestigious ceremony as full list is announced](https://www.dailymail.co.uk/tvshowbiz/article-13342553/ivor-novello-awards-2024-nominations-raye-harry-styles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kanye West and leggy wife Bianca Censori match in edgy cream ensembles (and rapper flashes his underwear!) in FIRST sighting since Chateau Marmont 'punch' probe](https://www.dailymail.co.uk/tvshowbiz/article-13341767/Kanye-West-leggy-wife-Bianca-Censori-match-edgy-cream-ensembles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Megan Thee Stallion News for April 24, 2024
+
+### [**hollywoodreporter.com** Megan Thee Stallion Sued by Cameraman Over Sexual Harassment Claim](https://www.hollywoodreporter.com/news/music-news/megan-thee-stallion-lawsuit-claim-cameraman-1235880018/)
+
+
+## Meghan Markle News for April 24, 2024
+
+### [**perezhilton.com** Meghan Markle’s Podcast Release Delayed To 2025 Despite Hot New Deal: Report](https://perezhilton.com/meghan-markle-podcast-delayed-lemonada-deal-netflix-scheduling-problems/)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kate Middleton is honoured by the King for her years of public service: Princess of Wales becomes first member of the royal family to be appointed a Royal Companion of The Order of the Companions of Honour](https://www.dailymail.co.uk/news/article-13341209/Kate-Middleton-King-Charles-companions-honour.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 24, 2024
+
+### [**tmz.com** Dermot Mulroney Fiercely Defends Sydney Sweeney After Hateful Comments](https://www.tmz.com/2024/04/23/dermot-mulroney-defends-sydney-sweeney-hollywood-producer-criticism/)
+
+### [**hollywoodreporter.com** Glen Powell Credits Sydney Sweeney for Successful ‘Anyone But You’ Marketing Campaign](https://www.hollywoodreporter.com/movies/movie-news/glen-powell-sydney-sweeney-anyone-but-you-marketing-campaign-1235879925/)
+
+
+## Elon Musk News for April 24, 2024
+
+### [**dailymail.co.uk** 	Elon Musk promises cheap $25k Tesla  within a YEAR - boosting share price by 11% even after EV maker's worst earnings since 2012](https://www.dailymail.co.uk/yourmoney/cars/article-13342141/tesla-reports-worst-earnings-2012.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Harry Styles News for April 24, 2024
+
+### [**dailymail.co.uk** 	Ivor Novello Awards 2024 nominations: Raye and Harry Styles lead the way ahead of prestigious ceremony as full list is announced](https://www.dailymail.co.uk/tvshowbiz/article-13342553/ivor-novello-awards-2024-nominations-raye-harry-styles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 24, 2024
+
+### [**perezhilton.com** Kanye West Starting His Own Adult Film Studio -- Yes, After Blasting Kim Kardashian For Dressing Too Risqué!](https://perezhilton.com/kanye-west-yeezy-adult-film-studio-kim-kardashian-dress/)
+
+### [**dailymail.co.uk** 	Kanye West and leggy wife Bianca Censori match in edgy cream ensembles (and rapper flashes his underwear!) in FIRST sighting since Chateau Marmont 'punch' probe](https://www.dailymail.co.uk/tvshowbiz/article-13341767/Kanye-West-leggy-wife-Bianca-Censori-match-edgy-cream-ensembles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Megan Thee Stallion News for April 24, 2024
+
+### [**hollywoodreporter.com** Megan Thee Stallion Sued by Cameraman Over Hostile Work Environment Claim](https://www.hollywoodreporter.com/news/music-news/megan-thee-stallion-lawsuit-claim-cameraman-1235880018/)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kate Middleton is honoured by the King for her years of public service: Princess of Wales becomes first member of the royal family to be appointed a Royal Companion of The Order of the Companions of Honour](https://www.dailymail.co.uk/news/article-13341209/Kate-Middleton-King-Charles-companions-honour.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 24, 2024
+
+### [**dailymail.co.uk** 	Donald Trump's stunning lawyer Alina Habba, 40, takes a knife to her trolls while hacking up an avocado in mocking video - as she fires back at critics who lambasted her for chopping CELERY incorrectly](https://www.dailymail.co.uk/femail/article-13342537/donald-trump-lawyer-alina-habba-video-avocado.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kanye West and leggy wife Bianca Censori match in edgy cream ensembles (and rapper flashes his underwear!) in FIRST sighting since Chateau Marmont 'punch' probe](https://www.dailymail.co.uk/tvshowbiz/article-13341767/Kanye-West-leggy-wife-Bianca-Censori-match-edgy-cream-ensembles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kate Middleton is honoured by the King for her years of public service: Princess of Wales becomes first member of the royal family to be appointed a Royal Companion of The Order of the Companions of Honour](https://www.dailymail.co.uk/news/article-13341209/Kate-Middleton-King-Charles-companions-honour.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 24, 2024
+
+### [**dailymail.co.uk** 	Donald Trump's stunning lawyer Alina Habba, 40, takes a knife to her trolls while hacking up an avocado in mocking video - as she fires back at critics who lambasted her for chopping CELERY incorrectly](https://www.dailymail.co.uk/femail/article-13342537/donald-trump-lawyer-alina-habba-video-avocado.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Elon Musk News for April 24, 2024
+
+### [**dailymail.co.uk** 	Elon Musk promises cheap $25k Tesla  within a YEAR - boosting share price by 11% even after EV maker's worst earnings since 2012](https://www.dailymail.co.uk/yourmoney/cars/article-13342141/tesla-reports-worst-earnings-2012.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kanye West and leggy wife Bianca Censori match in edgy cream ensembles (and rapper flashes his underwear!) in FIRST sighting since Chateau Marmont 'punch' probe](https://www.dailymail.co.uk/tvshowbiz/article-13341767/Kanye-West-leggy-wife-Bianca-Censori-match-edgy-cream-ensembles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kate Middleton is honoured by the King for her years of public service: Princess of Wales becomes first member of the royal family to be appointed a Royal Companion of The Order of the Companions of Honour](https://www.dailymail.co.uk/news/article-13341209/Kate-Middleton-King-Charles-companions-honour.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 24, 2024
+
+### [**dailymail.co.uk** 	Donald Trump's stunning lawyer Alina Habba, 40, takes a knife to her trolls while hacking up an avocado in mocking video - as she fires back at critics who lambasted her for chopping CELERY incorrectly](https://www.dailymail.co.uk/femail/article-13342537/donald-trump-lawyer-alina-habba-video-avocado.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Elon Musk News for April 24, 2024
+
+### [**dailymail.co.uk** 	Elon Musk promises cheap $25k Tesla  within a YEAR - boosting share price by 11% even after EV maker's worst earnings since 2012](https://www.dailymail.co.uk/yourmoney/cars/article-13342141/tesla-reports-worst-earnings-2012.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kanye West and leggy wife Bianca Censori match in edgy cream ensembles (and rapper flashes his underwear!) in FIRST sighting since Chateau Marmont 'punch' probe](https://www.dailymail.co.uk/tvshowbiz/article-13341767/Kanye-West-leggy-wife-Bianca-Censori-match-edgy-cream-ensembles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kate Middleton is honoured by the King for her years of public service: Princess of Wales becomes first member of the royal family to be appointed a Royal Companion of The Order of the Companions of Honour](https://www.dailymail.co.uk/news/article-13341209/Kate-Middleton-King-Charles-companions-honour.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 24, 2024
+
+### [**dailymail.co.uk** 	Donald Trump's stunning lawyer Alina Habba, 40, takes a knife to her trolls while hacking up an avocado in mocking video - as she fires back at critics who lambasted her for chopping CELERY incorrectly](https://www.dailymail.co.uk/femail/article-13342537/donald-trump-lawyer-alina-habba-video-avocado.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Elon Musk News for April 24, 2024
+
+### [**dailymail.co.uk** 	Elon Musk promises cheap $25k Tesla  within a YEAR - boosting share price by 11% even after EV maker's worst earnings since 2012](https://www.dailymail.co.uk/yourmoney/cars/article-13342141/tesla-reports-worst-earnings-2012.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kanye West and leggy wife Bianca Censori match in edgy cream ensembles (and rapper flashes his underwear!) in FIRST sighting since Chateau Marmont 'punch' probe](https://www.dailymail.co.uk/tvshowbiz/article-13341767/Kanye-West-leggy-wife-Bianca-Censori-match-edgy-cream-ensembles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kate Middleton is honoured by the King for her years of public service: Princess of Wales becomes first member of the royal family to be appointed a Royal Companion of The Order of the Companions of Honour](https://www.dailymail.co.uk/news/article-13341209/Kate-Middleton-King-Charles-companions-honour.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 24, 2024
+
+### [**dailymail.co.uk** 	Donald Trump's stunning lawyer Alina Habba, 40, takes a knife to her trolls while hacking up an avocado in mocking video - as she fires back at critics who lambasted her for chopping CELERY incorrectly](https://www.dailymail.co.uk/femail/article-13342537/donald-trump-lawyer-alina-habba-video-avocado.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Elon Musk News for April 24, 2024
+
+### [**dailymail.co.uk** 	Elon Musk promises cheap $25k Tesla  within a YEAR - boosting share price by 11% even after EV maker's worst earnings since 2012](https://www.dailymail.co.uk/yourmoney/cars/article-13342141/tesla-reports-worst-earnings-2012.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kanye West and leggy wife Bianca Censori match in edgy cream ensembles (and rapper flashes his underwear!) in FIRST sighting since Chateau Marmont 'punch' probe](https://www.dailymail.co.uk/tvshowbiz/article-13341767/Kanye-West-leggy-wife-Bianca-Censori-match-edgy-cream-ensembles.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kate Middleton is honoured by the King for her years of public service: Princess of Wales becomes first member of the royal family to be appointed a Royal Companion of The Order of the Companions of Honour](https://www.dailymail.co.uk/news/article-13341209/Kate-Middleton-King-Charles-companions-honour.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 24, 2024
+
+### [**tmz.com** Marc Lamont Hill Says Antisemitism at Columbia Protests Not the Norm](https://www.tmz.com/2024/04/23/marc-lamont-hill-columbia-university-protests-israel-palestine/)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 24, 2024
+
+### [**dailymail.co.uk** 	Sean 'Diddy' Combs fires back at groping accuser Rodney 'Lil Rod' Jones by unearthing HIS past legal woes including reckless HOMICIDE](https://www.dailymail.co.uk/usshowbiz/article-13343795/Sean-Diddy-Combs-groping-accuser-Rodney-Lil-Rod-legal-woes-reckless-HOMICIDE.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 24, 2024
+
+### [**dailymail.co.uk** 	Donald Trump's stunning lawyer Alina Habba, 40, takes a knife to her trolls while hacking up an avocado in mocking video - as she fires back at critics who lambasted her for chopping CELERY incorrectly](https://www.dailymail.co.uk/femail/article-13342537/donald-trump-lawyer-alina-habba-video-avocado.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 24, 2024
+
+### [**tmz.com** Kanye Plans to Launch 'Yeezy Porn,' Consulting with Stormy Daniels' Ex](https://www.tmz.com/2024/04/23/kanye-west-launch-yeezy-porn-partner-stormy-daniels-ex-husband/)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Brady News for April 24, 2024
+
+### [**tmz.com** Caleb Williams &amp; Brenden Rice Can Be Next 'Gronk &amp; Tom Brady' In NFL, Rice Says](https://www.tmz.com/2024/04/24/caleb-williams-and-brenden-rice-can-be-next-gronk-tom-brady-in-nfl-wr-says/)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 24, 2024
+
+### [**dailymail.co.uk** 	Sean 'Diddy' Combs fires back at groping accuser Rodney 'Lil Rod' Jones by unearthing HIS past legal woes including reckless HOMICIDE](https://www.dailymail.co.uk/usshowbiz/article-13343795/Sean-Diddy-Combs-groping-accuser-Rodney-Lil-Rod-legal-woes-reckless-HOMICIDE.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 24, 2024
+
+### [**dailymail.co.uk** 	Donald Trump's stunning lawyer Alina Habba, 40, takes a knife to her trolls while hacking up an avocado in mocking video - as she fires back at critics who lambasted her for chopping CELERY incorrectly](https://www.dailymail.co.uk/femail/article-13342537/donald-trump-lawyer-alina-habba-video-avocado.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 24, 2024
+
+### [**dailymail.co.uk** 	Sean 'Diddy' Combs fires back at groping accuser Rodney 'Lil Rod' Jones by unearthing HIS past legal woes including reckless HOMICIDE](https://www.dailymail.co.uk/usshowbiz/article-13343795/Sean-Diddy-Combs-groping-accuser-Rodney-Lil-Rod-legal-woes-reckless-HOMICIDE.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 24, 2024
+
+### [**dailymail.co.uk** 	Donald Trump's stunning lawyer Alina Habba, 40, takes a knife to her trolls while hacking up an avocado in mocking video - as she fires back at critics who lambasted her for chopping CELERY incorrectly](https://www.dailymail.co.uk/femail/article-13342537/donald-trump-lawyer-alina-habba-video-avocado.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian is 'over' feud with Taylor Swift and wants her to 'move on' after the pop star slammed her with new song Thank You Aimee: 'It's been literally years'](https://www.dailymail.co.uk/tvshowbiz/article-13342735/Kim-Kardashian-feud-Taylor-Swift-thanK-aIMee.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 24, 2024
+
+### [**dailymail.co.uk** 	Serbian assassin 'looks like man seen near Jill Dando's home' after her 1999 murder says witness - as lawyers for Barry George call for police probe](https://www.dailymail.co.uk/news/article-13343023/Witness-saw-man-running-Jill-Dando-murder-scene-claims-looks-like-Serbian-assassin.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 24, 2024
+
+### [**dailymail.co.uk** 	Sean 'Diddy' Combs fires back at groping accuser Rodney 'Lil Rod' Jones by unearthing HIS past legal woes including reckless HOMICIDE](https://www.dailymail.co.uk/usshowbiz/article-13343795/Sean-Diddy-Combs-groping-accuser-Rodney-Lil-Rod-legal-woes-reckless-HOMICIDE.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 24, 2024
+
+### [**dailymail.co.uk** 	Donald Trump's stunning lawyer Alina Habba, 40, takes a knife to her trolls while hacking up an avocado in mocking video - as she fires back at critics who lambasted her for chopping CELERY incorrectly](https://www.dailymail.co.uk/femail/article-13342537/donald-trump-lawyer-alina-habba-video-avocado.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 24, 2024
+
+### [**dailymail.co.uk** 	Serbian assassin 'looks like man seen near Jill Dando's home' after her 1999 murder says witness - as lawyers for Barry George call for police probe](https://www.dailymail.co.uk/news/article-13343023/Witness-saw-man-running-Jill-Dando-murder-scene-claims-looks-like-Serbian-assassin.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 24, 2024
+
+### [**dailymail.co.uk** 	Sean 'Diddy' Combs fires back at groping accuser Rodney 'Lil Rod' Jones by unearthing HIS past legal woes including reckless HOMICIDE](https://www.dailymail.co.uk/usshowbiz/article-13343795/Sean-Diddy-Combs-groping-accuser-Rodney-Lil-Rod-legal-woes-reckless-HOMICIDE.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 24, 2024
+
+### [**dailymail.co.uk** 	Serbian assassin 'looks like man seen near Jill Dando's home' after her 1999 murder says witness - as lawyers for Barry George call for police probe](https://www.dailymail.co.uk/news/article-13343023/Witness-saw-man-running-Jill-Dando-murder-scene-claims-looks-like-Serbian-assassin.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 24, 2024
+
+### [**dailymail.co.uk** 	Sean 'Diddy' Combs fires back at groping accuser Rodney 'Lil Rod' Jones by unearthing HIS past legal woes including reckless HOMICIDE](https://www.dailymail.co.uk/usshowbiz/article-13343795/Sean-Diddy-Combs-groping-accuser-Rodney-Lil-Rod-legal-woes-reckless-HOMICIDE.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 24, 2024
+
+### [**tmz.com** Taylor Swift's School Teachers Say She was a Poet at Very Young Age](https://www.tmz.com/2024/04/24/taylor-swift-elementary-school-teachers-poetry-proud-success/)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 24, 2024
+
+### [**dailymail.co.uk** 	Serbian assassin 'looks like man seen near Jill Dando's home' after her 1999 murder says witness - as lawyers for Barry George call for police probe](https://www.dailymail.co.uk/news/article-13343023/Witness-saw-man-running-Jill-Dando-murder-scene-claims-looks-like-Serbian-assassin.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	TikTok ban one step closer to reality as Senate sends $95 BILLION Ukraine, Israel aid package to President Biden's desk to sign](https://www.dailymail.co.uk/news/article-13342425/tiktok-ban-senate-israel-ukraine-aid-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 24, 2024
+
+### [**dailymail.co.uk** 	Sean 'Diddy' Combs fires back at groping accuser Rodney 'Lil Rod' Jones by unearthing HIS past legal woes including reckless HOMICIDE](https://www.dailymail.co.uk/usshowbiz/article-13343795/Sean-Diddy-Combs-groping-accuser-Rodney-Lil-Rod-legal-woes-reckless-HOMICIDE.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Dua Lipa News for April 24, 2024
+
+### [**hollywoodreporter.com** Dua Lipa Among Stars Reading Int’l Booker Prize Hopefuls in Shorts From Sharon Horgan’s Merman](https://www.hollywoodreporter.com/lifestyle/arts/dua-lipa-international-booker-prize-films-sharon-horgan-1235880167/)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Prince Harry 'jumped the fence' at Glastonbury and partied until 4am, festival founder Michael Eavis jokes after he was knighted at Windsor Castle](https://www.dailymail.co.uk/news/article-13342589/prince-harry-glastonbury-festival-michael-eavis-jokes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 24, 2024
+
+### [**dailymail.co.uk** 	Zendaya admits she was 'nervous' to be 'leading' her steamy tennis film Challengers as she shows off athletic skills with behind-the-scenes photos](https://www.dailymail.co.uk/tvshowbiz/article-13342797/Zendaya-says-nervous-leading-Challengers-film.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 24, 2024
+
+### [**tmz.com** Diddy's Assistant Brendan Paul Charged with Felony Drug Possession](https://www.tmz.com/2024/04/24/brendan-paul-charged-felony-cocaine-possession-diddy-mule/)
+
+
+## Kardashian News for April 24, 2024
+
+### [**perezhilton.com** Kim Kardashian Posts Photo With Taylor Swift's Former BFF Karlie Kloss Amid Reignited Feud!](https://perezhilton.com/kim-kardashian-posts-photo-taylor-swifts-former-bff-karlie-kloss-feud/)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Amy Dowden reveals the sweet message of support she received from Kate Middleton during chemotherapy after the Princess Of Wales shared her cancer diagnosis](https://www.dailymail.co.uk/tvshowbiz/article-13345377/Amy-Dowden-sweet-message-support-Kate-Middleton-Princess-Wales-cancer-diagnosis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 24, 2024
+
+### [**tmz.com** Glen Powell Says Sydney Sweeney Was Brains Behind Movie Marketing Ploy](https://www.tmz.com/2024/04/24/glen-powell-sydney-sweeney-brains-movie-marketing-campaign-anyone-but-you/)
+
+
+## Jenner News for April 24, 2024
+
+### [**perezhilton.com** MORE EVIDENCE That Kylie Jenner Might Be Pregnant With Timothee Chalamet’s Baby!!!](https://perezhilton.com/more-evidence-that-kylie-jenner-might-be-pregnant-with-timothee-chalamets-baby/)
+
+
+## Kardashian News for April 24, 2024
+
+### [**tmz.com** Kim Kardashian Posts Photo with Taylor Swift's Frenemy Karlie Kloss](https://www.tmz.com/2024/04/24/kim-kardashian-posts-picture-karlie-kloss-taylor-swift-album/)
+
+
+## Megan Thee Stallion News for April 24, 2024
+
+### [**perezhilton.com** Megan Thee Stallion Responds To Former Employee's Harassment Lawsuit With FIERY Denial!](https://perezhilton.com/megan-thee-stallion-responds-harassment-lawsuit/)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Amy Dowden reveals the sweet message of support she received from Kate Middleton during chemotherapy after the Princess Of Wales shared her cancer diagnosis](https://www.dailymail.co.uk/tvshowbiz/article-13345377/Amy-Dowden-sweet-message-support-Kate-Middleton-Princess-Wales-cancer-diagnosis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 24, 2024
+
+### [**perezhilton.com** Did Sydney Sweeney &amp; Glen Powell Just Admit Their Affair Rumors Were A Marketing Scheme?!](https://perezhilton.com/sydney-sweeney-glen-powell-anyone-but-you-affair-rumors-marketing-scheme/)
+
+
+## Bia News for April 24, 2024
+
+### [**dailymail.co.uk** 	Terrifying moment Colombian residents including children zipline over dangerously rapid river nearly five years after footbridge linking two town was destroyed by rain storm](https://www.dailymail.co.uk/news/article-13345271/Colombia-children-zipline-dangerous-rapid-river-video.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**tmz.com** Biden Signs Bill Banning TikTok in U.S., CEO Promises to Fight in Court](https://www.tmz.com/2024/04/24/biden-signs-bill-banning-tiktok-us-ceo-promise-fight-legislation-court/)
+
+### [**dailymail.co.uk** 	Biden says first weapons will be sent to Ukraine in HOURS as he signs bill sending $95 billion in aid to Kyiv, Israel and Taiwan and forcing TikTok to be banned if Chinese owner doesn't sell](https://www.dailymail.co.uk/news/article-13345625/Biden-says-weapons-sent-Ukraine-HOURS-signs-bill-sending-95-billion-aid-Kyiv-Israel-Taiwan-forcing-TikTok-banned-Chinese-owner-doesnt-sell.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 24, 2024
+
+### [**perezhilton.com** Kim Kardashian Used To Walk Madonna's Dog In Exchange For Her Old Jewelry!!](https://perezhilton.com/kim-kardashian-wore-madonna-old-jewelry-neighbor-childhood/)
+
+
+## Princess of Wales News for April 24, 2024
+
+### [**dailymail.co.uk** 	Amy Dowden reveals the sweet message of support she received from Kate Middleton during chemotherapy after the Princess Of Wales shared her cancer diagnosis](https://www.dailymail.co.uk/tvshowbiz/article-13345377/Amy-Dowden-sweet-message-support-Kate-Middleton-Princess-Wales-cancer-diagnosis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 24, 2024
+
+### [**perezhilton.com** Taylor Swift &amp; Travis Kelce Taking Their Families On European Vacation Together!](https://perezhilton.com/taylor-swift-travis-kelce-families-european-vacation-eras-tour/)
+
+
+## Bia News for April 24, 2024
+
+### [**dailymail.co.uk** 	Terrifying moment Colombian residents including children zipline over dangerously rapid river nearly five years after footbridge linking two town was destroyed by rain storm](https://www.dailymail.co.uk/news/article-13345271/Colombia-children-zipline-dangerous-rapid-river-video.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	Biden says first weapons will be sent to Ukraine in HOURS as he signs bill sending $95 billion in aid to Kyiv, Israel and Taiwan and forcing TikTok to be banned if Chinese owner doesn't sell](https://www.dailymail.co.uk/news/article-13345625/Biden-says-weapons-sent-Ukraine-HOURS-signs-bill-sending-95-billion-aid-Kyiv-Israel-Taiwan-forcing-TikTok-banned-Chinese-owner-doesnt-sell.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 24, 2024
+
+### [**dailymail.co.uk** 	ITV chief blasts BBC for outbidding them to buy the rights to Meghan Markle US show Suits while 'bleating' about budgets](https://www.dailymail.co.uk/news/article-13345929/ITV-chief-blasts-BBC-outbidding-buy-rights-Meghan-Markle-Suits-budgets.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Paris Hilton News for April 24, 2024
+
+### [**tmz.com** Paris Hilton Acquires Rights to Book About 2000s Tabloid Culture For New Doc](https://www.tmz.com/2024/04/24/paris-hilton-new-docuseries-tabloid-2000s-culture-toxic-book-acquire-rights/)
+
+
+## Bia News for April 24, 2024
+
+### [**dailymail.co.uk** 	Terrifying moment Colombian residents including children zipline over dangerously rapid river nearly five years after footbridge linking two town was destroyed by rain storm](https://www.dailymail.co.uk/news/article-13345271/Colombia-children-zipline-dangerous-rapid-river-video.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	Biden says first weapons will be sent to Ukraine in HOURS as he signs bill sending $95 billion in aid to Kyiv, Israel and Taiwan and forcing TikTok to be banned if Chinese owner doesn't sell](https://www.dailymail.co.uk/news/article-13345625/Biden-says-weapons-sent-Ukraine-HOURS-signs-bill-sending-95-billion-aid-Kyiv-Israel-Taiwan-forcing-TikTok-banned-Chinese-owner-doesnt-sell.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Joe Biden News for April 24, 2024
+
+### [**tmz.com** Joe Biden Again Reads Teleprompter Instruction During Speech, 'Pause'](https://www.tmz.com/2024/04/24/joe-biden-again-reads-teleprompter-instruction-speech-four-more-years-pause/)
+
+
+## Meghan Markle News for April 24, 2024
+
+### [**dailymail.co.uk** 	ITV chief blasts BBC for outbidding them to buy the rights to Meghan Markle US show Suits while 'bleating' about budgets](https://www.dailymail.co.uk/news/article-13345929/ITV-chief-blasts-BBC-outbidding-buy-rights-Meghan-Markle-Suits-budgets.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Rachel McAdams News for April 24, 2024
+
+### [**hollywoodreporter.com** ‘Mary Jane’ Theater Review: Rachel McAdams Makes a Moving Broadway Debut in Amy Herzog’s Portrait of Motherhood Under Duress](https://www.hollywoodreporter.com/lifestyle/arts/mary-jane-review-rachel-mcadams-broadway-debut-1235879665/)
+
+
+## Taylor Swift News for April 24, 2024
+
+### [**hollywoodreporter.com** Taylor Swift’s ‘Tortured Poets Department’ Sets Record With 1B Spotify Streams in First Week of Release](https://www.hollywoodreporter.com/news/music-news/taylor-swift-tortured-poets-department-spotify-streams-record-1235880542/)
+
+### [**dailymail.co.uk** 	Taylor Swift is seen in photos enjoying a tipple on the beach, at Coachella or watching Travis Kelce play - after the famously autobiographical singer describes herself in song as a 'functioning alcoholic'](https://www.dailymail.co.uk/tvshowbiz/article-13337773/Taylor-Swift-booze-functioning-alcoholic-Fortnight.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 24, 2024
+
+### [**perezhilton.com** Is Kylie Jenner Going BROKE???](https://perezhilton.com/is-kylie-jenner-going-broke/)
+
+
+## Meghan Markle News for April 24, 2024
+
+### [**dailymail.co.uk** 	ITV chief blasts BBC for outbidding them to buy the rights to Meghan Markle US show Suits while 'bleating' about budgets](https://www.dailymail.co.uk/news/article-13345929/ITV-chief-blasts-BBC-outbidding-buy-rights-Meghan-Markle-Suits-budgets.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 24, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift is seen in photos enjoying a tipple on the beach, at Coachella or watching Travis Kelce play - after the famously autobiographical singer describes herself in song as a 'functioning alcoholic'](https://www.dailymail.co.uk/tvshowbiz/article-13337773/Taylor-Swift-booze-functioning-alcoholic-Fortnight.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	Biden administration rejects latest bid to release Prince Harry's visa records due to ambassador's 'extraordinary' comment that Joe will never deport the royal](https://www.dailymail.co.uk/news/article-13346925/prince-harry-duke-sussex-meghan-markle-trump-visa-trump-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 24, 2024
+
+### [**tmz.com** Tupac Shakur’s Estate Threatens to Sue Drake Over AI Vocals in Diss Track](https://www.tmz.com/2024/04/24/tupac-shakur-estate-threaten-sue-drake-diss-track-ai-generated-voice/)
+
+
+## Kardashian News for April 24, 2024
+
+### [**perezhilton.com** Whoa! Reggie Bush Just TOTALLY Reversed The Kardashian Kurse -- Here's How!](https://perezhilton.com/reggie-bush-heisman-trophy-return-kim-kardashian-curse-reversed/)
+
+
+## Mark Zuckerberg News for April 24, 2024
+
+### [**dailymail.co.uk** 	Mark Zuckerberg goes from Mr Steal Your Data to Mr Steal Your Girl in an effort to reinvent himself amid fall of Facebook... complete with chains, fur coats and pals in the UFC](https://www.dailymail.co.uk/sciencetech/article-13345129/mark-zuckerberg-fall-facebook-ufc-beard.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 24, 2024
+
+### [**perezhilton.com** Did Meghan Markle Get A Major Engagement Ring Glow-Up After Prince Harry Marriage Trouble Rumors?!? Look!](https://perezhilton.com/meghan-markle-engagement-ring-doubled-size-after-prince-harry-marriage-trouble-rumors/)
+
+
+## Taylor Swift News for April 24, 2024
+
+### [**tmz.com** Matty Healy Breaks Silence on Taylor Swift's New Album, Hasn't Heard It](https://www.tmz.com/2024/04/24/matty-healy-taylor-swift-break-silence-diss-track-tortured-poets-department/)
+
+### [**dailymail.co.uk** 	Taylor Swift is seen in photos enjoying a tipple on the beach, at Coachella or watching Travis Kelce play - after the famously autobiographical singer describes herself in song as a 'functioning alcoholic'](https://www.dailymail.co.uk/tvshowbiz/article-13337773/Taylor-Swift-booze-functioning-alcoholic-Fortnight.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 24, 2024
+
+### [**dailymail.co.uk** 	Don't mess with Texas! Troopers in helmets arrest Palestine protesters in latest college demo while NYC waits for Columbia University crowd to clear out](https://www.dailymail.co.uk/news/article-13346507/Texas-Troopers-Palestine-protesters-university-austin.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 24, 2024
+
+### [**dailymail.co.uk** 	Biden administration rejects latest bid to release Prince Harry's visa records due to ambassador's 'extraordinary' comment that Joe will never deport the royal](https://www.dailymail.co.uk/news/article-13346925/prince-harry-duke-sussex-meghan-markle-trump-visa-trump-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Mark Zuckerberg News for April 24, 2024
+
+### [**dailymail.co.uk** 	Mark Zuckerberg goes from Mr Steal Your Data to Mr Steal Your Girl in an effort to reinvent himself amid fall of Facebook... complete with chains, fur coats and pals in the UFC](https://www.dailymail.co.uk/sciencetech/article-13345129/mark-zuckerberg-fall-facebook-ufc-beard.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Metro Boomin News for April 24, 2024
+
+### [**sneakernews.com** First Look At The Nike KD 17 “Metro Boomin”](https://sneakernews.com/2024/04/24/nike-kd-17-metro-boomin-hj4464-001/)
+
+
+## Taylor Swift News for April 24, 2024
+
+### [**perezhilton.com** Pub Owner Hints Joe Alwyn *Is* A 'Regular' After Taylor Swift Album Namedrop -- Are Her Fans Stalking Him There Now?!](https://perezhilton.com/the-black-dog-owner-hints-joe-alwyn-a-regular-after-taylor-swift-ttpd-album-namedrop-fans-stalking/)
+
+### [**dailymail.co.uk** 	Taylor Swift is seen in photos enjoying a tipple on the beach, at Coachella or watching Travis Kelce play - after the famously autobiographical singer describes herself in song as a 'functioning alcoholic'](https://www.dailymail.co.uk/tvshowbiz/article-13337773/Taylor-Swift-booze-functioning-alcoholic-Fortnight.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 24, 2024
+
+### [**dailymail.co.uk** 	Don't mess with Texas! Troopers in helmets arrest Palestine protesters in latest college demo while NYC waits for Columbia University crowd to clear out](https://www.dailymail.co.uk/news/article-13346507/Texas-Troopers-Palestine-protesters-university-austin.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Mark Zuckerberg News for April 24, 2024
+
+### [**dailymail.co.uk** 	Mark Zuckerberg goes from Mr Steal Your Data to Mr Steal Your Girl in an effort to reinvent himself amid fall of Facebook... complete with chains, fur coats and pals in the UFC](https://www.dailymail.co.uk/sciencetech/article-13345129/mark-zuckerberg-fall-facebook-ufc-beard.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Prince Harry News for April 24, 2024
+
+### [**dailymail.co.uk** 	Biden administration rejects latest bid to release Prince Harry's visa records due to ambassador's 'extraordinary' comment that Joe will never deport the royal](https://www.dailymail.co.uk/news/article-13346925/prince-harry-duke-sussex-meghan-markle-trump-visa-trump-biden.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 24, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift is seen in photos enjoying a tipple on the beach, at Coachella or watching Travis Kelce play - after the famously autobiographical singer describes herself in song as a 'functioning alcoholic'](https://www.dailymail.co.uk/tvshowbiz/article-13337773/Taylor-Swift-booze-functioning-alcoholic-Fortnight.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)

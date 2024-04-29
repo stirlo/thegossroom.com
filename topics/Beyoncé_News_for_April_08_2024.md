@@ -1,0 +1,568 @@
+# Stories for Beyoncé News for April 08, 2024
+title =
+content = ## Beyoncé News for April 08, 2024
+
+### [**hollywoodreporter.com** Beyoncé Lands at No. 1 With ‘Cowboy Carter’ Album Debut](https://www.hollywoodreporter.com/news/music-news/beyonce-cowboy-carter-album-debut-chart-sales-1235868287/)
+
+
+## Brad Pitt News for April 08, 2024
+
+### [**dailymail.co.uk** 	Incredible nine-bedroom west Richmond mansion loved by Brad Pitt and Dwayne 'The Rock' Johnson (who made a very drastic renovation) on sale... but wait until your see the price](https://www.dailymail.co.uk/property/article-13275651/west-London-mansion-Brad-Pitt-Dwayne-Rock-Johnson.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	Diddy looks tense as he sits outside his Miami mansion... amid mounting lawsuits and sex trafficking probe](https://www.dailymail.co.uk/tvshowbiz/article-13281703/sean-diddy-combs-star-island-mansion-miami.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump delights the crowds at LIV Golf Miami as he arrives at his Doral course to watch final day... and the former President was pleased to see us too: 'I love the Daily Mail!'](https://www.dailymail.co.uk/sport/golf/article-13281555/Donald-Trump-greets-LIV-Golf-stars-Doral-Miami-course-arrives-wearing-MAGA-cap-watch-final-round-Saudi-golf-league.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 08, 2024
+
+### [**dailymail.co.uk** 	From Timothee Chalamet and Kylie Jenner's kiss at the Golden Globes to Maya Jama and Stormzy's reunion: The new loved-up power couples fans cannot get enough of](https://www.dailymail.co.uk/tvshowbiz/article-13267201/From-Timothee-Chalamet-Kylie-Jenners-kiss-Golden-Globes-Maya-Jama-Stormzys-reunion-new-loved-power-couples-fans-of.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Olivia Rodrigo News for April 08, 2024
+
+### [**dailymail.co.uk** 	Are vinyl collectors are being cheated out of extra music? As Beyonce leaves off five songs from Cowboy Carter record,  how Taylor Swift, Billie Eilish and Olivia Rodrigo have  enraged fans](https://www.dailymail.co.uk/femail/article-13264193/beyonce-taylor-swift-vinyl-olivia-rodrigo-enrage-fans.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 08, 2024
+
+### [**dailymail.co.uk** 	King Charles' little known role in William and Kate's wedding revealed as close bond with Princess of Wales is strengthened through their respective battles with cancer](https://www.dailymail.co.uk/femail/article-13272597/King-Charles-little-known-role-William-Kates.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 08, 2024
+
+### [**dailymail.co.uk** 	How Zendaya became the queen of the red carpet by always dressing according to the movies she's promoting, from tennis-inspired looks for the Challengers to desert Sci-Fi for Dune](https://www.dailymail.co.uk/femail/article-13280845/zendaya-red-carpet-method-dressing-challengers.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 08, 2024
+
+### [**dailymail.co.uk** 	Incredible nine-bedroom west Richmond mansion loved by Brad Pitt and Dwayne 'The Rock' Johnson (who made a very drastic renovation) on sale... but wait until your see the price](https://www.dailymail.co.uk/property/article-13275651/west-London-mansion-Brad-Pitt-Dwayne-Rock-Johnson.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	Diddy looks tense as he sits outside his Miami mansion... amid mounting lawsuits and sex trafficking probe](https://www.dailymail.co.uk/tvshowbiz/article-13281703/sean-diddy-combs-star-island-mansion-miami.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump delights the crowds at LIV Golf Miami as he arrives at his Doral course to watch final day... and the former President was pleased to see us too: 'I love the Daily Mail!'](https://www.dailymail.co.uk/sport/golf/article-13281555/Donald-Trump-greets-LIV-Golf-stars-Doral-Miami-course-arrives-wearing-MAGA-cap-watch-final-round-Saudi-golf-league.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 08, 2024
+
+### [**dailymail.co.uk** 	From Timothee Chalamet and Kylie Jenner's kiss at the Golden Globes to Maya Jama and Stormzy's reunion: The new loved-up power couples fans cannot get enough of](https://www.dailymail.co.uk/tvshowbiz/article-13267201/From-Timothee-Chalamet-Kylie-Jenners-kiss-Golden-Globes-Maya-Jama-Stormzys-reunion-new-loved-power-couples-fans-of.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Olivia Rodrigo News for April 08, 2024
+
+### [**dailymail.co.uk** 	Are vinyl collectors are being cheated out of extra music? As Beyonce leaves off five songs from Cowboy Carter record,  how Taylor Swift, Billie Eilish and Olivia Rodrigo have  enraged fans](https://www.dailymail.co.uk/femail/article-13264193/beyonce-taylor-swift-vinyl-olivia-rodrigo-enrage-fans.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 08, 2024
+
+### [**dailymail.co.uk** 	King Charles' little known role in William and Kate's wedding revealed as close bond with Princess of Wales is strengthened through their respective battles with cancer](https://www.dailymail.co.uk/femail/article-13272597/King-Charles-little-known-role-William-Kates.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 08, 2024
+
+### [**dailymail.co.uk** 	How Zendaya became the queen of the red carpet by always dressing according to the movies she's promoting, from tennis-inspired looks for the Challengers to desert Sci-Fi for Dune](https://www.dailymail.co.uk/femail/article-13280845/zendaya-red-carpet-method-dressing-challengers.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 08, 2024
+
+### [**dailymail.co.uk** 	Incredible nine-bedroom west Richmond mansion loved by Brad Pitt and Dwayne 'The Rock' Johnson (who made a very drastic renovation) on sale... but wait until your see the price](https://www.dailymail.co.uk/property/article-13275651/west-London-mansion-Brad-Pitt-Dwayne-Rock-Johnson.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	Diddy looks tense as he sits outside his Miami mansion... amid mounting lawsuits and sex trafficking probe](https://www.dailymail.co.uk/tvshowbiz/article-13281703/sean-diddy-combs-star-island-mansion-miami.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump delights the crowds at LIV Golf Miami as he arrives at his Doral course to watch final day... and the former President was pleased to see us too: 'I love the Daily Mail!'](https://www.dailymail.co.uk/sport/golf/article-13281555/Donald-Trump-greets-LIV-Golf-stars-Doral-Miami-course-arrives-wearing-MAGA-cap-watch-final-round-Saudi-golf-league.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 08, 2024
+
+### [**dailymail.co.uk** 	From Timothee Chalamet and Kylie Jenner's kiss at the Golden Globes to Maya Jama and Stormzy's reunion: The new loved-up power couples fans cannot get enough of](https://www.dailymail.co.uk/tvshowbiz/article-13267201/From-Timothee-Chalamet-Kylie-Jenners-kiss-Golden-Globes-Maya-Jama-Stormzys-reunion-new-loved-power-couples-fans-of.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Olivia Rodrigo News for April 08, 2024
+
+### [**dailymail.co.uk** 	Are vinyl collectors are being cheated out of extra music? As Beyonce leaves off five songs from Cowboy Carter record,  how Taylor Swift, Billie Eilish and Olivia Rodrigo have  enraged fans](https://www.dailymail.co.uk/femail/article-13264193/beyonce-taylor-swift-vinyl-olivia-rodrigo-enrage-fans.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 08, 2024
+
+### [**dailymail.co.uk** 	King Charles' little known role in William and Kate's wedding revealed as close bond with Princess of Wales is strengthened through their respective battles with cancer](https://www.dailymail.co.uk/femail/article-13272597/King-Charles-little-known-role-William-Kates.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 08, 2024
+
+### [**dailymail.co.uk** 	How Zendaya became the queen of the red carpet by always dressing according to the movies she's promoting, from tennis-inspired looks for the Challengers to desert Sci-Fi for Dune](https://www.dailymail.co.uk/femail/article-13280845/zendaya-red-carpet-method-dressing-challengers.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 08, 2024
+
+### [**dailymail.co.uk** 	Incredible nine-bedroom west Richmond mansion loved by Brad Pitt and Dwayne 'The Rock' Johnson (who made a very drastic renovation) on sale... but wait until your see the price](https://www.dailymail.co.uk/property/article-13275651/west-London-mansion-Brad-Pitt-Dwayne-Rock-Johnson.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	Diddy looks tense as he sits outside his Miami mansion... amid mounting lawsuits and sex trafficking probe](https://www.dailymail.co.uk/tvshowbiz/article-13281703/sean-diddy-combs-star-island-mansion-miami.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump delights the crowds at LIV Golf Miami as he arrives at his Doral course to watch final day... and the former President was pleased to see us too: 'I love the Daily Mail!'](https://www.dailymail.co.uk/sport/golf/article-13281555/Donald-Trump-greets-LIV-Golf-stars-Doral-Miami-course-arrives-wearing-MAGA-cap-watch-final-round-Saudi-golf-league.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Jenner News for April 08, 2024
+
+### [**dailymail.co.uk** 	From Timothee Chalamet and Kylie Jenner's kiss at the Golden Globes to Maya Jama and Stormzy's reunion: The new loved-up power couples fans cannot get enough of](https://www.dailymail.co.uk/tvshowbiz/article-13267201/From-Timothee-Chalamet-Kylie-Jenners-kiss-Golden-Globes-Maya-Jama-Stormzys-reunion-new-loved-power-couples-fans-of.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Olivia Rodrigo News for April 08, 2024
+
+### [**dailymail.co.uk** 	Are vinyl collectors are being cheated out of extra music? As Beyonce leaves off five songs from Cowboy Carter record,  how Taylor Swift, Billie Eilish and Olivia Rodrigo have  enraged fans](https://www.dailymail.co.uk/femail/article-13264193/beyonce-taylor-swift-vinyl-olivia-rodrigo-enrage-fans.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 08, 2024
+
+### [**dailymail.co.uk** 	King Charles' little known role in William and Kate's wedding revealed as close bond with Princess of Wales is strengthened through their respective battles with cancer](https://www.dailymail.co.uk/femail/article-13272597/King-Charles-little-known-role-William-Kates.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 08, 2024
+
+### [**dailymail.co.uk** 	How Zendaya became the queen of the red carpet by always dressing according to the movies she's promoting, from tennis-inspired looks for the Challengers to desert Sci-Fi for Dune](https://www.dailymail.co.uk/femail/article-13280845/zendaya-red-carpet-method-dressing-challengers.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	Diddy looks tense as he sits outside his Miami mansion... amid mounting lawsuits and sex trafficking probe](https://www.dailymail.co.uk/tvshowbiz/article-13281703/sean-diddy-combs-star-island-mansion-miami.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 08, 2024
+
+### [**dailymail.co.uk** 	Quiet on Set RETURNS: Drake Bell SLAMS celebrities who SUPPORTED his 'sexual abuser' Brian Peck - as he shockingly DEFENDS scandal-ridden Nickelodeon show creator Dan Schneider](https://www.dailymail.co.uk/femail/article-13276967/drake-bell-slams-celebrities-support-brian-peck.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Larry David News for April 08, 2024
+
+### [**hollywoodreporter.com** ‘Curb Your Enthusiasm’ Series Finale Puts Larry David on Trial — With a ‘Seinfeld’ Plot Twist](https://www.hollywoodreporter.com/tv/tv-news/curb-your-enthusiasm-finale-larry-david-seinfeld-ending-1235868337/)
+
+
+## Princess of Wales News for April 08, 2024
+
+### [**dailymail.co.uk** 	King Charles' little known role in William and Kate's wedding revealed as close bond with Princess of Wales is strengthened through their respective battles with cancer](https://www.dailymail.co.uk/femail/article-13272597/King-Charles-little-known-role-William-Kates.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	Diddy looks tense as he sits outside his Miami mansion... amid mounting lawsuits and sex trafficking probe](https://www.dailymail.co.uk/tvshowbiz/article-13281703/sean-diddy-combs-star-island-mansion-miami.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 08, 2024
+
+### [**dailymail.co.uk** 	Quiet on Set RETURNS: Drake Bell SLAMS celebrities who SUPPORTED his 'sexual abuser' Brian Peck - as he shockingly DEFENDS scandal-ridden Nickelodeon show creator Dan Schneider](https://www.dailymail.co.uk/femail/article-13276967/drake-bell-slams-celebrities-support-brian-peck.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 08, 2024
+
+### [**dailymail.co.uk** 	King Charles' little known role in William and Kate's wedding revealed as close bond with Princess of Wales is strengthened through their respective battles with cancer](https://www.dailymail.co.uk/femail/article-13272597/King-Charles-little-known-role-William-Kates.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	Diddy looks tense as he sits outside his Miami mansion... amid mounting lawsuits and sex trafficking probe](https://www.dailymail.co.uk/tvshowbiz/article-13281703/sean-diddy-combs-star-island-mansion-miami.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 08, 2024
+
+### [**dailymail.co.uk** 	Quiet on Set RETURNS: Drake Bell SLAMS celebrities who SUPPORTED his 'sexual abuser' Brian Peck - as he shockingly DEFENDS scandal-ridden Nickelodeon show creator Dan Schneider](https://www.dailymail.co.uk/femail/article-13276967/drake-bell-slams-celebrities-support-brian-peck.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 08, 2024
+
+### [**dailymail.co.uk** 	King Charles' little known role in William and Kate's wedding revealed as close bond with Princess of Wales is strengthened through their respective battles with cancer](https://www.dailymail.co.uk/femail/article-13272597/King-Charles-little-known-role-William-Kates.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 08, 2024
+
+### [**dailymail.co.uk** 	Quiet on Set RETURNS: Drake Bell SLAMS celebrities who SUPPORTED his 'sexual abuser' Brian Peck - as he shockingly DEFENDS scandal-ridden Nickelodeon show creator Dan Schneider](https://www.dailymail.co.uk/femail/article-13276967/drake-bell-slams-celebrities-support-brian-peck.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 08, 2024
+
+### [**dailymail.co.uk** 	King Charles' little known role in William and Kate's wedding revealed as close bond with Princess of Wales is strengthened through their respective battles with cancer](https://www.dailymail.co.uk/femail/article-13272597/King-Charles-little-known-role-William-Kates.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 08, 2024
+
+### [**dailymail.co.uk** 	Quiet on Set RETURNS: Drake Bell SLAMS celebrities who SUPPORTED his 'sexual abuser' Brian Peck - as he shockingly DEFENDS scandal-ridden Nickelodeon show creator Dan Schneider](https://www.dailymail.co.uk/femail/article-13276967/drake-bell-slams-celebrities-support-brian-peck.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 08, 2024
+
+### [**dailymail.co.uk** 	Quiet on Set RETURNS: Drake Bell SLAMS celebrities who SUPPORTED his 'sexual abuser' Brian Peck - as he shockingly DEFENDS scandal-ridden Nickelodeon show creator Dan Schneider](https://www.dailymail.co.uk/femail/article-13276967/drake-bell-slams-celebrities-support-brian-peck.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Sydney Sweeney's hardcore health and fitness regime: From reformer pilates to MMA classes and ONLY drinking water, a look at how the actress maintains her jaw-dropping physique](https://www.dailymail.co.uk/tvshowbiz/article-13281205/Inside-Sydney-Sweeney-hardcore-health-fitness-regime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West and wife Bianca Censori 'secretly rented Sting's lavish estate in Tuscany and threw wild parties' during couple's controversial Italian holiday](https://www.dailymail.co.uk/tvshowbiz/article-13282443/Kanye-West-wife-Bianca-Censori-secretly-rented-Stings-lavish-estate-Tuscany-threw-wild-parties-couples-controversial-Italian-holiday.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Donald Trump suggests Joe Biden 'soiled' the coveted Resolute Desk as he blasts President over border policy in comments made at investor dinner where he raised $50.5 million](https://www.dailymail.co.uk/news/article-13282343/Trump-Biden-soiled-Resolute-desk-immigration-policy.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**tmz.com** Diddy Gets Loving Shout-Out from Fans Near Miami Home Amid Investigation](https://www.tmz.com/2024/04/07/diddy-loving-shout-out-fans-star-island-home-miami-investigation/)
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Suspect in 'Girl with a pacifier' murder case DIES during police interrogation: Mystery death as cops quiz man over murder of girl who vanished when mother lost sight of her in Serbian playground](https://www.dailymail.co.uk/news/article-13284521/girl-pacifier-dies-police-interrogation-murder-case.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## J. Cole News for April 08, 2024
+
+### [**tmz.com** J. Cole Apologizes to Kendrick Lamar for 'Lamest and Goofiest' Diss](https://www.tmz.com/2024/04/08/j-cole-kendrick-lamar-apology-dreamville-festival/)
+
+
+## Kardashian News for April 08, 2024
+
+### [**perezhilton.com** Kourtney Kardashian Pokes Fun At Kim's Infamous Lost Diamond Earring!](https://perezhilton.com/kourtney-kardashian-pokes-fun-kim-diamond-earring-lost-ocean/)
+
+
+## Bia News for April 08, 2024
+
+### [**dailymail.co.uk** 	Suspect in 'Girl with a pacifier' murder case DIES during police interrogation: Mystery death as cops quiz man over murder of girl who vanished when mother lost sight of her in Serbian playground](https://www.dailymail.co.uk/news/article-13284521/girl-pacifier-dies-police-interrogation-murder-case.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 08, 2024
+
+### [**tmz.com** Bianca Censori Looks Completely Naked Under Condom-Style Dress with Kanye](https://www.tmz.com/2024/04/08/bianca-censori-looks-naked-see-through-condom-style-dress-kanye/)
+
+### [**dailymail.co.uk** 	Suspect in 'Girl with a pacifier' murder case DIES during police interrogation: Mystery death as cops quiz man over murder of girl who vanished when mother lost sight of her in Serbian playground](https://www.dailymail.co.uk/news/article-13284521/girl-pacifier-dies-police-interrogation-murder-case.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**tmz.com** Diddy's Ex Yung Miami Denies Sex Worker Claim, Says Video Out of Context](https://www.tmz.com/2024/04/08/diddys-ex-yung-miami-shuts-down-sex-worker-claim/)
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 08, 2024
+
+### [**tmz.com** Kourtney Kardashian Slams Pressure to Bounce Back in Postpartum Bikini Pic](https://www.tmz.com/2024/04/08/kourtney-kardashian-bikini-pic-postpartum-body-message/)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori goes without ANY underwear in shocking X-rated sheer latex outfit - as pair hold hands for a date night in LA](https://www.dailymail.co.uk/tvshowbiz/article-13284947/Kanye-West-wife-Bianca-Censori-goes-without-underwear-dinner.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Angelina Jolie and Brad Pitt's BITTER divorce: As pair's split takes yet ANOTHER twisted turn, FEMAIL lays bare how their 'fairytale' marriage turned into a nightmare](https://www.dailymail.co.uk/femail/article-13284293/Inside-Angelina-Jolie-Brad-Pitts-BITTER-divorce-pairs-split-takes-twisted-turn-FEMAIL-lays-bare-fairytale-marriage-turned-nightmare.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 08, 2024
+
+### [**sneakernews.com** Drake’s Gold Dipped Air Jordan 20 PE Emerges](https://sneakernews.com/2024/04/08/air-jordan-20-drake-gold-pe/)
+
+
+## Kanye News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori goes without ANY underwear in shocking X-rated sheer latex outfit - as pair hold hands for a date night in LA](https://www.dailymail.co.uk/tvshowbiz/article-13284947/Kanye-West-wife-Bianca-Censori-goes-without-underwear-dinner.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 08, 2024
+
+### [**perezhilton.com** Jason Kelce Crashes Wrestlemania! ...And Is Introduced As Taylor Swift's 'Brother-In-Law'?! WATCH!](https://perezhilton.com/jason-kelce-crashes-wrestlemania-taylor-swift-brother-in-law/)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Biden mocks Trump with his pre-recorded solar eclipse 2024 video in same spot where his predecessor stared at the sun: 'Play it safe, don't be silly'](https://www.dailymail.co.uk/news/article-13284617/biden-mocks-trump-solar-eclipse-2024-video-stare-sun.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Angelina Jolie and Brad Pitt's BITTER divorce: As pair's split takes yet ANOTHER twisted turn, FEMAIL lays bare how their 'fairytale' marriage turned into a nightmare](https://www.dailymail.co.uk/femail/article-13284293/Inside-Angelina-Jolie-Brad-Pitts-BITTER-divorce-pairs-split-takes-twisted-turn-FEMAIL-lays-bare-fairytale-marriage-turned-nightmare.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 08, 2024
+
+### [**tmz.com** Drake Shocked by J. Cole's Apology to Kendrick Lamar, Says Akademiks](https://www.tmz.com/2024/04/08/drake-j-cole-kendrick-lamar-dreamville-apology-akademiks/)
+
+
+## Kanye News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori goes without ANY underwear in shocking X-rated sheer latex outfit - as pair hold hands for a date night in LA](https://www.dailymail.co.uk/tvshowbiz/article-13284947/Kanye-West-wife-Bianca-Censori-goes-without-underwear-dinner.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 08, 2024
+
+### [**perezhilton.com** Kourtney Kardashian Shares Sweet Message With Postpartum Body Bikini Pics: 'Dear New Mommies'](https://perezhilton.com/kourtney-kardashian-postpartum-bikini-pics-dear-new-mommies/)
+
+
+## Taylor Swift News for April 08, 2024
+
+### [**hollywoodreporter.com** A New Taylor Swift Biography for Kids Hits the Bestsellers Chart (and It’s On Sale for $5)](https://www.hollywoodreporter.com/lifestyle/shopping/who-is-taylor-swift-book-biography-buy-online-1235869060/)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Biden mocks Trump with his pre-recorded solar eclipse 2024 video in same spot where his predecessor stared at the sun: 'Play it safe, don't be silly'](https://www.dailymail.co.uk/news/article-13284617/biden-mocks-trump-solar-eclipse-2024-video-stare-sun.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Angelina Jolie and Brad Pitt's BITTER divorce: As pair's split takes yet ANOTHER twisted turn, FEMAIL lays bare how their 'fairytale' marriage turned into a nightmare](https://www.dailymail.co.uk/femail/article-13284293/Inside-Angelina-Jolie-Brad-Pitts-BITTER-divorce-pairs-split-takes-twisted-turn-FEMAIL-lays-bare-fairytale-marriage-turned-nightmare.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**perezhilton.com** Diddy’s Ex Yung Miami Denies She’s ‘A Prostitute’ -- Says THAT Comment Was Taken Out Of Context](https://perezhilton.com/diddy-ex-yung-miami-denies-being-a-prostitute-comment-taken-out-of-context/)
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Elon Musk News for April 08, 2024
+
+### [**dailymail.co.uk** 	Elon Musk's wealth is overtaken by Mark Zuckerberg for the first time in four years after Tesla stock price falls](https://www.dailymail.co.uk/news/article-13285827/elon-musk-wealth-overtaken-mark-zuckerberg-tesla-stock-fall.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori goes without ANY underwear in shocking X-rated sheer latex outfit - as pair hold hands for a date night in LA](https://www.dailymail.co.uk/tvshowbiz/article-13284947/Kanye-West-wife-Bianca-Censori-goes-without-underwear-dinner.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 08, 2024
+
+### [**hollywoodreporter.com** Zendaya Says Intimacy Coordinator Was “Very Helpful” for ‘Challengers’: “Important That We Felt Safe”](https://www.hollywoodreporter.com/movies/movie-news/challengers-star-zendaya-intimacy-coordinator-1235869177/)
+
+
+## Beyoncé News for April 08, 2024
+
+### [**hollywoodreporter.com** The Best Western-Inspired Fashion Pieces, From Beyoncé’s Cowboy Hat and Boots to Denim Essentials and Buckle Belts](https://www.hollywoodreporter.com/lifestyle/shopping/best-western-fashion-trends-women-1235867508/)
+
+
+## Biden News for April 08, 2024
+
+### [**dailymail.co.uk** 	Biden mocks Trump with his pre-recorded solar eclipse 2024 video in same spot where his predecessor stared at the sun: 'Play it safe, don't be silly'](https://www.dailymail.co.uk/news/article-13284617/biden-mocks-trump-solar-eclipse-2024-video-stare-sun.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 08, 2024
+
+### [**dailymail.co.uk** 	Inside Angelina Jolie and Brad Pitt's BITTER divorce: As pair's split takes yet ANOTHER twisted turn, FEMAIL lays bare how their 'fairytale' marriage turned into a nightmare](https://www.dailymail.co.uk/femail/article-13284293/Inside-Angelina-Jolie-Brad-Pitts-BITTER-divorce-pairs-split-takes-twisted-turn-FEMAIL-lays-bare-fairytale-marriage-turned-nightmare.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Diddy News for April 08, 2024
+
+### [**dailymail.co.uk** 	The only woman standing by him! As under-fire Sean 'Diddy' Combs is staunchly supported by loyal mother Janice amid federal sex trafficking probe... a look at the former model's life and relationship with her son](https://www.dailymail.co.uk/tvshowbiz/article-13283543/The-woman-standing-fire-Sean-Diddy-Combs-staunchly-supported-loyal-mother-Janice-amid-federal-sex-trafficking-probe-look-former-models-life-relationship-son.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Elon Musk News for April 08, 2024
+
+### [**dailymail.co.uk** 	Elon Musk's wealth is overtaken by Mark Zuckerberg for the first time in four years after Tesla stock price falls](https://www.dailymail.co.uk/news/article-13285827/elon-musk-wealth-overtaken-mark-zuckerberg-tesla-stock-fall.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 08, 2024
+
+### [**dailymail.co.uk** 	Kanye West's wife Bianca Censori goes without ANY underwear in shocking X-rated sheer latex outfit - as pair hold hands for a date night in LA](https://www.dailymail.co.uk/tvshowbiz/article-13284947/Kanye-West-wife-Bianca-Censori-goes-without-underwear-dinner.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)

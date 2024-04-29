@@ -1418,3 +1418,181 @@
 2024-04-29 17:00:37 - No updates found for https://www.vogue.com/rss/index.xml.
 2024-04-29 17:04:17 - SSH agent started.
 2024-04-29 17:04:17 - SSH key added.
+2024-04-29 17:04:21 - Changes pushed to GitHub.
+2024-04-29 17:04:21 - Starting to manage RSS feeds...
+2024-04-29 17:04:21 - Processing URL: http://feeds.feedburner.com/entertainmentweekly/latest
+2024-04-29 17:04:22 - No updates found for http://feeds.feedburner.com/entertainmentweekly/latest.
+2024-04-29 17:04:22 - Processing URL: http://syndication.eonline.com/syndication/feeds/rssfeeds/topstories.xml
+2024-04-29 17:04:22 - Warning: No content retrieved from http://syndication.eonline.com/syndication/feeds/rssfeeds/topstories.xml
+2024-04-29 17:04:22 - Processing URL: http://www.9celebrity.com/feed/
+2024-04-29 17:05:37 - Warning: No content retrieved from http://www.9celebrity.com/feed/
+2024-04-29 17:05:37 - Processing URL: http://www.highheelconfidential.com/feed/
+2024-04-29 17:05:39 - Warning: No content retrieved from http://www.highheelconfidential.com/feed/
+2024-04-29 17:05:39 - Processing URL: https://hypebeast.com/rss
+2024-04-29 17:05:40 - No updates found for https://hypebeast.com/rss.
+2024-04-29 17:05:40 - Processing URL: https://metro.co.uk/tag/showbiz/rss/
+2024-04-29 17:05:40 - Warning: No content retrieved from https://metro.co.uk/tag/showbiz/rss/
+2024-04-29 17:05:40 - Processing URL: https://people.com/tag/celebrities/rss
+2024-04-29 17:05:40 - New content found for https://people.com/tag/celebrities/rss, updating database...
+2024-04-29 17:05:40 - Database updated successfully for https://people.com/tag/celebrities/rss
+2024-04-29 17:05:40 - Processing URL: https://perezhilton.com/feed/
+2024-04-29 17:05:42 - No updates found for https://perezhilton.com/feed/.
+2024-04-29 17:05:42 - Processing URL: https://sneakernews.com/feed/
+2024-04-29 17:05:42 - No updates found for https://sneakernews.com/feed/.
+2024-04-29 17:05:42 - Processing URL: https://variety.com/v/feed/
+2024-04-29 17:05:43 - New content found for https://variety.com/v/feed/, updating database...
+2024-04-29 17:05:43 - Database updated successfully for https://variety.com/v/feed/
+2024-04-29 17:05:43 - Processing URL: https://www.dailymail.co.uk/articles.rss
+2024-04-29 17:05:44 - New content found for https://www.dailymail.co.uk/articles.rss, updating database...
+2024-04-29 17:05:44 - Database updated successfully for https://www.dailymail.co.uk/articles.rss
+2024-04-29 17:05:44 - Processing URL: https://www.elle.com/rss/everything/
+2024-04-29 17:05:46 - Warning: No content retrieved from https://www.elle.com/rss/everything/
+2024-04-29 17:05:46 - Processing URL: https://www.esquire.com/rss/
+2024-04-29 17:05:46 - Warning: No content retrieved from https://www.esquire.com/rss/
+2024-04-29 17:05:46 - Processing URL: https://www.gq.com/rss/all
+2024-04-29 17:05:46 - New content found for https://www.gq.com/rss/all, updating database...
+2024-04-29 17:05:46 - Database updated successfully for https://www.gq.com/rss/all
+2024-04-29 17:05:46 - Processing URL: https://www.harpersbazaar.com/rss
+2024-04-29 17:05:46 - No updates found for https://www.harpersbazaar.com/rss.
+2024-04-29 17:05:46 - Processing URL: https://www.hellomagazine.com/rss/showbiz.rss
+2024-04-29 17:05:47 - New content found for https://www.hellomagazine.com/rss/showbiz.rss, updating database...
+2024-04-29 17:05:47 - Database updated successfully for https://www.hellomagazine.com/rss/showbiz.rss
+2024-04-29 17:05:47 - Processing URL: https://www.highsnobiety.com/feed/
+2024-04-29 17:05:49 - New content found for https://www.highsnobiety.com/feed/, updating database...
+2024-04-29 17:05:49 - Database updated successfully for https://www.highsnobiety.com/feed/
+2024-04-29 17:05:49 - Processing URL: https://www.hollywoodreporter.com/feed/
+2024-04-29 17:05:49 - No updates found for https://www.hollywoodreporter.com/feed/.
+2024-04-29 17:05:49 - Processing URL: https://www.huffpost.com/section/entertainment/feed
+2024-04-29 17:05:50 - No updates found for https://www.huffpost.com/section/entertainment/feed.
+2024-04-29 17:05:50 - Processing URL: https://www.justjared.com/rss.xml
+2024-04-29 17:05:51 - New content found for https://www.justjared.com/rss.xml, updating database...
+2024-04-29 17:05:51 - Database updated successfully for https://www.justjared.com/rss.xml
+2024-04-29 17:05:51 - Processing URL: https://www.newsclebrity.com/feed/
+2024-04-29 17:05:51 - Warning: No content retrieved from https://www.newsclebrity.com/feed/
+2024-04-29 17:05:51 - Processing URL: https://www.tmz.com/rss.xml
+2024-04-29 17:05:52 - No updates found for https://www.tmz.com/rss.xml.
+2024-04-29 17:05:52 - Processing URL: https://www.usmagazine.com/celebrity-news/feed/
+2024-04-29 17:05:52 - No updates found for https://www.usmagazine.com/celebrity-news/feed/.
+2024-04-29 17:05:52 - Processing URL: https://www.vogue.com/rss/index.xml
+2024-04-29 17:05:54 - No updates found for https://www.vogue.com/rss/index.xml.
+2024-04-29 17:05:54 - Today's stories written to /home/pi/thegossroom.com/archive/20240429.md
+2024-04-29 17:05:54 - Stories for 21 Savage written to /home/pi/thegossroom.com/topics/21_Savage.md
+2024-04-29 17:05:54 - Stories for 50 Cent written to /home/pi/thegossroom.com/topics/50_Cent.md
+2024-04-29 17:05:54 - Stories for Aaron Paul written to /home/pi/thegossroom.com/topics/Aaron_Paul.md
+2024-04-29 17:05:54 - Stories for Addison Rae written to /home/pi/thegossroom.com/topics/Addison_Rae.md
+2024-04-29 17:05:54 - Stories for Adele written to /home/pi/thegossroom.com/topics/Adele.md
+2024-04-29 17:05:54 - Stories for Adele News for April 11, 2024 written to /home/pi/thegossroom.com/topics/Adele_News_for_April_11_2024.md
+2024-04-29 17:05:54 - Stories for Adele News for April 13, 2024 written to /home/pi/thegossroom.com/topics/Adele_News_for_April_13_2024.md
+2024-04-29 17:05:54 - Stories for Adele News for April 26, 2024 written to /home/pi/thegossroom.com/topics/Adele_News_for_April_26_2024.md
+2024-04-29 17:05:54 - Stories for Adele News for April 27, 2024 written to /home/pi/thegossroom.com/topics/Adele_News_for_April_27_2024.md
+2024-04-29 17:05:54 - Stories for Adele News for April 28, 2024 written to /home/pi/thegossroom.com/topics/Adele_News_for_April_28_2024.md
+2024-04-29 17:05:54 - Stories for Ali Wong written to /home/pi/thegossroom.com/topics/Ali_Wong.md
+2024-04-29 17:05:55 - Stories for Alison Brie written to /home/pi/thegossroom.com/topics/Alison_Brie.md
+2024-04-29 17:05:55 - Stories for Ariana Grande written to /home/pi/thegossroom.com/topics/Ariana_Grande.md
+2024-04-29 17:05:55 - Stories for Austin Butler written to /home/pi/thegossroom.com/topics/Austin_Butler.md
+2024-04-29 17:05:55 - Stories for Avantika written to /home/pi/thegossroom.com/topics/Avantika.md
+2024-04-29 17:05:55 - Stories for Bernie Sanders written to /home/pi/thegossroom.com/topics/Bernie_Sanders.md
+2024-04-29 17:05:55 - Stories for Beyoncé written to /home/pi/thegossroom.com/topics/Beyoncé.md
+2024-04-29 17:05:55 - Stories for Beyoncé News for April 05, 2024 written to /home/pi/thegossroom.com/topics/Beyoncé_News_for_April_05_2024.md
+2024-04-29 17:05:55 - Stories for Beyoncé News for April 08, 2024 written to /home/pi/thegossroom.com/topics/Beyoncé_News_for_April_08_2024.md
+2024-04-29 17:05:55 - Stories for Beyoncé News for April 15, 2024 written to /home/pi/thegossroom.com/topics/Beyoncé_News_for_April_15_2024.md
+2024-04-29 17:05:55 - Stories for Beyoncé News for April 23, 2024 written to /home/pi/thegossroom.com/topics/Beyoncé_News_for_April_23_2024.md
+2024-04-29 17:05:55 - Stories for Bia written to /home/pi/thegossroom.com/topics/Bia.md
+2024-04-29 17:05:56 - Stories for Bia News for April 17, 2024 written to /home/pi/thegossroom.com/topics/Bia_News_for_April_17_2024.md
+2024-04-29 17:05:56 - Stories for Bia News for April 18, 2024 written to /home/pi/thegossroom.com/topics/Bia_News_for_April_18_2024.md
+2024-04-29 17:05:56 - Stories for Bia News for April 25, 2024 written to /home/pi/thegossroom.com/topics/Bia_News_for_April_25_2024.md
+2024-04-29 17:05:56 - Stories for Biden written to /home/pi/thegossroom.com/topics/Biden.md
+2024-04-29 17:05:56 - Stories for Biden News for April 09, 2024 written to /home/pi/thegossroom.com/topics/Biden_News_for_April_09_2024.md
+2024-04-29 17:05:56 - Stories for Biden News for April 10, 2024 written to /home/pi/thegossroom.com/topics/Biden_News_for_April_10_2024.md
+2024-04-29 17:05:57 - Stories for Biden News for April 16, 2024 written to /home/pi/thegossroom.com/topics/Biden_News_for_April_16_2024.md
+2024-04-29 17:05:57 - Stories for Bieber written to /home/pi/thegossroom.com/topics/Bieber.md
+2024-04-29 17:05:57 - Stories for Bieber News for April 07, 2024 written to /home/pi/thegossroom.com/topics/Bieber_News_for_April_07_2024.md
+2024-04-29 17:05:57 - Stories for Big Sean written to /home/pi/thegossroom.com/topics/Big_Sean.md
+2024-04-29 17:05:57 - Stories for BlockBoy JB written to /home/pi/thegossroom.com/topics/BlockBoy_JB.md
+2024-04-29 17:05:57 - Stories for Bob Odenkirk written to /home/pi/thegossroom.com/topics/Bob_Odenkirk.md
+2024-04-29 17:05:57 - Stories for Brad Pitt written to /home/pi/thegossroom.com/topics/Brad_Pitt.md
+2024-04-29 17:05:57 - Stories for Brad Pitt News for April 06, 2024 written to /home/pi/thegossroom.com/topics/Brad_Pitt_News_for_April_06_2024.md
+2024-04-29 17:05:57 - Stories for Brielle Biermann written to /home/pi/thegossroom.com/topics/Brielle_Biermann.md
+2024-04-29 17:05:57 - Stories for Bryan Cranston written to /home/pi/thegossroom.com/topics/Bryan_Cranston.md
+2024-04-29 17:05:57 - Stories for Cardi B written to /home/pi/thegossroom.com/topics/Cardi_B.md
+2024-04-29 17:05:57 - Stories for Charli D Amelio written to /home/pi/thegossroom.com/topics/Charli_D_Amelio.md
+2024-04-29 17:05:57 - Stories for Chloe Bailey written to /home/pi/thegossroom.com/topics/Chloe_Bailey.md
+2024-04-29 17:05:57 - Stories for City Girls written to /home/pi/thegossroom.com/topics/City_Girls.md
+2024-04-29 17:05:57 - Stories for Diddy written to /home/pi/thegossroom.com/topics/Diddy.md
+2024-04-29 17:05:57 - Stories for Diddy News for April 03, 2024 written to /home/pi/thegossroom.com/topics/Diddy_News_for_April_03_2024.md
+2024-04-29 17:05:58 - Stories for Diddy News for April 12, 2024 written to /home/pi/thegossroom.com/topics/Diddy_News_for_April_12_2024.md
+2024-04-29 17:05:58 - Stories for Diddy News for April 20, 2024 written to /home/pi/thegossroom.com/topics/Diddy_News_for_April_20_2024.md
+2024-04-29 17:05:58 - Stories for Donald Trump written to /home/pi/thegossroom.com/topics/Donald_Trump.md
+2024-04-29 17:05:58 - Stories for Donald Trump News for April 22, 2024 written to /home/pi/thegossroom.com/topics/Donald_Trump_News_for_April_22_2024.md
+2024-04-29 17:05:58 - Stories for Drake written to /home/pi/thegossroom.com/topics/Drake.md
+2024-04-29 17:05:58 - Stories for Dua Lipa written to /home/pi/thegossroom.com/topics/Dua_Lipa.md
+2024-04-29 17:05:58 - Stories for Elon Musk written to /home/pi/thegossroom.com/topics/Elon_Musk.md
+2024-04-29 17:05:58 - Stories for Gabrielle Union written to /home/pi/thegossroom.com/topics/Gabrielle_Union.md
+2024-04-29 17:05:58 - Stories for Giancarlo Esposito written to /home/pi/thegossroom.com/topics/Giancarlo_Esposito.md
+2024-04-29 17:05:58 - Stories for Gillian Jacobs written to /home/pi/thegossroom.com/topics/Gillian_Jacobs.md
+2024-04-29 17:05:58 - Stories for Gucci Mane written to /home/pi/thegossroom.com/topics/Gucci_Mane.md
+2024-04-29 17:05:58 - Stories for Harry Styles written to /home/pi/thegossroom.com/topics/Harry_Styles.md
+2024-04-29 17:05:58 - Stories for Harry Styles News for April 19, 2024 written to /home/pi/thegossroom.com/topics/Harry_Styles_News_for_April_19_2024.md
+2024-04-29 17:05:59 - Stories for Harry Styles News for April 24, 2024 written to /home/pi/thegossroom.com/topics/Harry_Styles_News_for_April_24_2024.md
+2024-04-29 17:05:59 - Stories for J. Cole written to /home/pi/thegossroom.com/topics/J_Cole.md
+2024-04-29 17:05:59 - Stories for J.K. Simmons written to /home/pi/thegossroom.com/topics/JK_Simmons.md
+2024-04-29 17:05:59 - Stories for JB Smoove written to /home/pi/thegossroom.com/topics/JB_Smoove.md
+2024-04-29 17:05:59 - Stories for Jake Paul written to /home/pi/thegossroom.com/topics/Jake_Paul.md
+2024-04-29 17:05:59 - Stories for Jameela Jamil written to /home/pi/thegossroom.com/topics/Jameela_Jamil.md
+2024-04-29 17:05:59 - Stories for Jameela Jamil News for April 21, 2024 written to /home/pi/thegossroom.com/topics/Jameela_Jamil_News_for_April_21_2024.md
+2024-04-29 17:05:59 - Stories for Jason Mantzoukas written to /home/pi/thegossroom.com/topics/Jason_Mantzoukas.md
+2024-04-29 17:05:59 - Stories for Jenner written to /home/pi/thegossroom.com/topics/Jenner.md
+2024-04-29 17:05:59 - Stories for Jennifer Lawrence written to /home/pi/thegossroom.com/topics/Jennifer_Lawrence.md
+2024-04-29 17:05:59 - Stories for Jerrod Carmichael written to /home/pi/thegossroom.com/topics/Jerrod_Carmichael.md
+2024-04-29 17:05:59 - Stories for Joe Biden written to /home/pi/thegossroom.com/topics/Joe_Biden.md
+2024-04-29 17:05:59 - Stories for John C Reilly written to /home/pi/thegossroom.com/topics/John_C_Reilly.md
+2024-04-29 17:05:59 - Stories for Kamala Harris written to /home/pi/thegossroom.com/topics/Kamala_Harris.md
+2024-04-29 17:05:59 - Stories for Kanye written to /home/pi/thegossroom.com/topics/Kanye.md
+2024-04-29 17:05:59 - Stories for Kardashian written to /home/pi/thegossroom.com/topics/Kardashian.md
+2024-04-29 17:05:59 - Stories for Kesha written to /home/pi/thegossroom.com/topics/Kesha.md
+2024-04-29 17:05:59 - Stories for Larry David written to /home/pi/thegossroom.com/topics/Larry_David.md
+2024-04-29 17:05:59 - Stories for Latto written to /home/pi/thegossroom.com/topics/Latto.md
+2024-04-29 17:05:59 - Stories for LeBron James written to /home/pi/thegossroom.com/topics/LeBron_James.md
+2024-04-29 17:05:59 - Stories for Lil Wayne written to /home/pi/thegossroom.com/topics/Lil_Wayne.md
+2024-04-29 17:05:59 - Stories for Lindsay Lohan written to /home/pi/thegossroom.com/topics/Lindsay_Lohan.md
+2024-04-29 17:05:59 - Stories for Livvy Dunne written to /home/pi/thegossroom.com/topics/Livvy_Dunne.md
+2024-04-29 17:05:59 - Stories for Lizzo written to /home/pi/thegossroom.com/topics/Lizzo.md
+2024-04-29 17:05:59 - Stories for Madison Pettis written to /home/pi/thegossroom.com/topics/Madison_Pettis.md
+2024-04-29 17:05:59 - Stories for Mark Zuckerberg written to /home/pi/thegossroom.com/topics/Mark_Zuckerberg.md
+2024-04-29 17:05:59 - Stories for Maya Rudolph written to /home/pi/thegossroom.com/topics/Maya_Rudolph.md
+2024-04-29 17:05:59 - Stories for Megan Thee Stallion written to /home/pi/thegossroom.com/topics/Megan_Thee_Stallion.md
+2024-04-29 17:05:59 - Stories for Meghan Markle written to /home/pi/thegossroom.com/topics/Meghan_Markle.md
+2024-04-29 17:05:59 - Stories for Meghan Markle News for April 14, 2024 written to /home/pi/thegossroom.com/topics/Meghan_Markle_News_for_April_14_2024.md
+2024-04-29 17:05:59 - Stories for Metro Boomin written to /home/pi/thegossroom.com/topics/Metro_Boomin.md
+2024-04-29 17:05:59 - Stories for MrBeast written to /home/pi/thegossroom.com/topics/MrBeast.md
+2024-04-29 17:05:59 - Stories for Nicki Minaj written to /home/pi/thegossroom.com/topics/Nicki_Minaj.md
+2024-04-29 17:05:59 - Stories for Obama written to /home/pi/thegossroom.com/topics/Obama.md
+2024-04-29 17:05:59 - Stories for Olivia Rodrigo written to /home/pi/thegossroom.com/topics/Olivia_Rodrigo.md
+2024-04-29 17:05:59 - Stories for Paris Hilton written to /home/pi/thegossroom.com/topics/Paris_Hilton.md
+2024-04-29 17:05:59 - Stories for Paulina Porizkov written to /home/pi/thegossroom.com/topics/Paulina_Porizkov.md
+2024-04-29 17:05:59 - Stories for Pete Davidson written to /home/pi/thegossroom.com/topics/Pete_Davidson.md
+2024-04-29 17:06:00 - Stories for Prince Harry written to /home/pi/thegossroom.com/topics/Prince_Harry.md
+2024-04-29 17:06:00 - Stories for Princess of Wales written to /home/pi/thegossroom.com/topics/Princess_of_Wales.md
+2024-04-29 17:06:00 - Stories for Rachel McAdams written to /home/pi/thegossroom.com/topics/Rachel_McAdams.md
+2024-04-29 17:06:00 - Stories for Reneé Rapp written to /home/pi/thegossroom.com/topics/Reneé_Rapp.md
+2024-04-29 17:06:00 - Stories for Rick Ross written to /home/pi/thegossroom.com/topics/Rick_Ross.md
+2024-04-29 17:06:00 - Stories for Sam Ashgari written to /home/pi/thegossroom.com/topics/Sam_Ashgari.md
+2024-04-29 17:06:00 - Stories for Sandra Oh written to /home/pi/thegossroom.com/topics/Sandra_Oh.md
+2024-04-29 17:06:00 - Stories for Seth Rogan written to /home/pi/thegossroom.com/topics/Seth_Rogan.md
+2024-04-29 17:06:00 - Stories for Simone Biles written to /home/pi/thegossroom.com/topics/Simone_Biles.md
+2024-04-29 17:06:00 - Stories for Sommer Ray written to /home/pi/thegossroom.com/topics/Sommer_Ray.md
+2024-04-29 17:06:00 - Stories for Steven Yuen written to /home/pi/thegossroom.com/topics/Steven_Yuen.md
+2024-04-29 17:06:00 - Stories for Sydney Sweeney written to /home/pi/thegossroom.com/topics/Sydney_Sweeney.md
+2024-04-29 17:06:00 - Stories for Sza written to /home/pi/thegossroom.com/topics/Sza.md
+2024-04-29 17:06:00 - Stories for Taylor Swift written to /home/pi/thegossroom.com/topics/Taylor_Swift.md
+2024-04-29 17:06:00 - Stories for Taylor Swift News for April 03, 2024 written to /home/pi/thegossroom.com/topics/Taylor_Swift_News_for_April_03_2024.md
+2024-04-29 17:06:00 - Stories for Tim Cook written to /home/pi/thegossroom.com/topics/Tim_Cook.md
+2024-04-29 17:06:00 - Stories for Tina Fey written to /home/pi/thegossroom.com/topics/Tina_Fey.md
+2024-04-29 17:06:00 - Stories for Tom Brady written to /home/pi/thegossroom.com/topics/Tom_Brady.md
+2024-04-29 17:06:00 - Stories for Tom Holland written to /home/pi/thegossroom.com/topics/Tom_Holland.md
+2024-04-29 17:06:00 - Stories for Walton Goggins written to /home/pi/thegossroom.com/topics/Walton_Goggins.md
+2024-04-29 17:06:00 - Stories for Will Ferrell written to /home/pi/thegossroom.com/topics/Will_Ferrell.md
+2024-04-29 17:06:00 - Stories for Zazie Beetz written to /home/pi/thegossroom.com/topics/Zazie_Beetz.md
+2024-04-29 17:06:00 - Stories for Zendaya written to /home/pi/thegossroom.com/topics/Zendaya.md
+2024-04-29 17:06:06 - SSH agent started.
+2024-04-29 17:06:06 - SSH key added.

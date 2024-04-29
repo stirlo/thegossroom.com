@@ -1,0 +1,641 @@
+# Stories for Bia News for April 17, 2024
+title =
+content = ## Bia News for April 17, 2024
+
+### [**hollywoodreporter.com** Mayim Bialik Claims Abuse Detailed in ‘Quiet on Set’ Wasn’t Just at Nickelodeon](https://www.hollywoodreporter.com/tv/tv-news/mayim-bialik-quiet-on-set-abuse-nickelodeon-other-networks-1235875547/)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 17, 2024
+
+### [**dailymail.co.uk** 	Donald Trump trial LIVE: Seventh juror is selected after dismisses candidates for saying 'lock him up' about Donald on social media](https://www.dailymail.co.uk/news/article-13314185/donald-trump-stormy-daniels-court-trial-live.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 17, 2024
+
+### [**dailymail.co.uk** 	Did Drake get a nose job and a BBL? Plastic surgeons weigh in as rap feud with former friend Rick Ross gets ugly and personal](https://www.dailymail.co.uk/health/article-13311547/drake-nose-job-plastic-surgery-rick-ross.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 17, 2024
+
+### [**dailymail.co.uk** 	Scouts CEO praises 'charming' Princess of Wales' ability to 'put people at ease' and reveals 'what you see is what you get with Kate'](https://www.dailymail.co.uk/femail/article-13315301/Scouts-CEO-praises-charming-Princess-Wales-ability-people-ease-reveals-Kate.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney 'is not pretty and she can't act' declares top Hollywood producer Carol Baum, calling her movie Anyone But You 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13315349/Hollywood-producer-Carol-Baum-Sydney-Sweeney-not-pretty-act.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**perezhilton.com** Taylor Swift Fans Think Newly Revealed Lyrics Explain End Of Joe Alwyn Relationship!](https://perezhilton.com/taylor-swift-fans-think-new-lyrics-explain-joe-alwyn-relationship-end/)
+
+### [**dailymail.co.uk** 	Travis Kelce confirmed as the host of new game show 'Are You Smarter Than a Celebrity?' as Taylor Swift's boyfriend and NFL star lands 20-episode season with Amazon Prime](https://www.dailymail.co.uk/sport/nfl/article-13316007/Travis-Kelce-confirmed-host-new-game-Smarter-Celebrity-Taylor-Swifts-boyfriend-NFL-star-lands-20-episode-season-Amazon-Prime.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 17, 2024
+
+### [**dailymail.co.uk** 	Tom Hollander reveals how he considered letting himself go to become a 'fat actor' to get work](https://www.dailymail.co.uk/tvshowbiz/article-13316333/Tom-Hollander-reveals-considered-fat-actor-work.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya, the 'It Girl next door' who still shops at her local Waitrose. But is she really as down to earth as she seems?](https://www.dailymail.co.uk/femail/article-13311651/zendaya-girl-door-shops-waitrose-vogue-cover-tom-holland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	British student, 25, is arrested after 'smuggling cocaine disguised as milk' out of Colombia](https://www.dailymail.co.uk/news/article-13315681/British-student-25-arrested-smuggling-cocaine-disguised-milk-Colombia.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 17, 2024
+
+### [**dailymail.co.uk** 	Donald Trump trial LIVE: Seventh juror is selected after dismisses candidates for saying 'lock him up' about Donald on social media](https://www.dailymail.co.uk/news/article-13314185/donald-trump-stormy-daniels-court-trial-live.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 17, 2024
+
+### [**dailymail.co.uk** 	Did Drake get a nose job and a BBL? Plastic surgeons weigh in as rap feud with former friend Rick Ross gets ugly and personal](https://www.dailymail.co.uk/health/article-13311547/drake-nose-job-plastic-surgery-rick-ross.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 17, 2024
+
+### [**tmz.com** Kim Kardashian Poses in Gold Minidress in Pics Taken by North West](https://www.tmz.com/2024/04/16/kim-kardashian-poses-in-gold-minidress-in-pics-taken-by-north-west/)
+
+
+## Princess of Wales News for April 17, 2024
+
+### [**dailymail.co.uk** 	Scouts CEO praises 'charming' Princess of Wales' ability to 'put people at ease' and reveals 'what you see is what you get with Kate'](https://www.dailymail.co.uk/femail/article-13315301/Scouts-CEO-praises-charming-Princess-Wales-ability-people-ease-reveals-Kate.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney 'is not pretty and she can't act' declares top Hollywood producer Carol Baum, calling her movie Anyone But You 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13315349/Hollywood-producer-Carol-Baum-Sydney-Sweeney-not-pretty-act.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 17, 2024
+
+### [**dailymail.co.uk** 	Tom Hollander reveals how he considered letting himself go to become a 'fat actor' to get work](https://www.dailymail.co.uk/tvshowbiz/article-13316333/Tom-Hollander-reveals-considered-fat-actor-work.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya, the 'It Girl next door' who still shops at her local Waitrose. But is she really as down to earth as she seems?](https://www.dailymail.co.uk/femail/article-13311651/zendaya-girl-door-shops-waitrose-vogue-cover-tom-holland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 17, 2024
+
+### [**dailymail.co.uk** 	Donald Trump trial LIVE: Seventh juror is selected after dismisses candidates for saying 'lock him up' about Donald on social media](https://www.dailymail.co.uk/news/article-13314185/donald-trump-stormy-daniels-court-trial-live.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 17, 2024
+
+### [**dailymail.co.uk** 	Did Drake get a nose job and a BBL? Plastic surgeons weigh in as rap feud with former friend Rick Ross gets ugly and personal](https://www.dailymail.co.uk/health/article-13311547/drake-nose-job-plastic-surgery-rick-ross.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 17, 2024
+
+### [**dailymail.co.uk** 	Scouts CEO praises 'charming' Princess of Wales' ability to 'put people at ease' and reveals 'what you see is what you get with Kate'](https://www.dailymail.co.uk/femail/article-13315301/Scouts-CEO-praises-charming-Princess-Wales-ability-people-ease-reveals-Kate.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney 'is not pretty and she can't act' declares top Hollywood producer Carol Baum, calling her movie Anyone But You 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13315349/Hollywood-producer-Carol-Baum-Sydney-Sweeney-not-pretty-act.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift fans are scammed out of more than £1 million by ticket fraudsters](https://www.dailymail.co.uk/tvshowbiz/article-13316485/Taylor-Swift-fans-scammed-1-million-ticket-fraudsters.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 17, 2024
+
+### [**dailymail.co.uk** 	Tom Hollander reveals how he considered letting himself go to become a 'fat actor' to get work](https://www.dailymail.co.uk/tvshowbiz/article-13316333/Tom-Hollander-reveals-considered-fat-actor-work.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya, the 'It Girl next door' who still shops at her local Waitrose. But is she really as down to earth as she seems?](https://www.dailymail.co.uk/femail/article-13311651/zendaya-girl-door-shops-waitrose-vogue-cover-tom-holland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 17, 2024
+
+### [**dailymail.co.uk** 	Donald Trump trial LIVE: Seventh juror is selected after dismisses candidates for saying 'lock him up' about Donald on social media](https://www.dailymail.co.uk/news/article-13314185/donald-trump-stormy-daniels-court-trial-live.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Drake News for April 17, 2024
+
+### [**dailymail.co.uk** 	Did Drake get a nose job and a BBL? Plastic surgeons weigh in as rap feud with former friend Rick Ross gets ugly and personal](https://www.dailymail.co.uk/health/article-13311547/drake-nose-job-plastic-surgery-rick-ross.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 17, 2024
+
+### [**dailymail.co.uk** 	Scouts CEO praises 'charming' Princess of Wales' ability to 'put people at ease' and reveals 'what you see is what you get with Kate'](https://www.dailymail.co.uk/femail/article-13315301/Scouts-CEO-praises-charming-Princess-Wales-ability-people-ease-reveals-Kate.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney 'is not pretty and she can't act' declares top Hollywood producer Carol Baum, calling her movie Anyone But You 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13315349/Hollywood-producer-Carol-Baum-Sydney-Sweeney-not-pretty-act.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift fans are scammed out of more than £1 million by ticket fraudsters](https://www.dailymail.co.uk/tvshowbiz/article-13316485/Taylor-Swift-fans-scammed-1-million-ticket-fraudsters.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 17, 2024
+
+### [**dailymail.co.uk** 	Tom Hollander reveals how he considered letting himself go to become a 'fat actor' to get work](https://www.dailymail.co.uk/tvshowbiz/article-13316333/Tom-Hollander-reveals-considered-fat-actor-work.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 17, 2024
+
+### [**dailymail.co.uk** 	Donald Trump trial RECAP: Seventh juror is selected after dismisses candidates for saying 'lock him up' about Donald on social media](https://www.dailymail.co.uk/news/article-13314185/donald-trump-stormy-daniels-court-trial-live.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 17, 2024
+
+### [**dailymail.co.uk** 	Meghan Markle likely made the 50 jars of jam she sent to friends 'with her own hands using ingredients from Montecito' as part of very soft focus launch of American Riviera Orchard - in an attempt to highlight the brand 'rather than herself', claims expert](https://www.dailymail.co.uk/news/article-13314365/Meghan-Markle-PR-expert-American-Riviera-Orchard-jam-launch.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 17, 2024
+
+### [**dailymail.co.uk** 	Scouts CEO praises 'charming' Princess of Wales' ability to 'put people at ease' and reveals 'what you see is what you get with Kate'](https://www.dailymail.co.uk/femail/article-13315301/Scouts-CEO-praises-charming-Princess-Wales-ability-people-ease-reveals-Kate.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney 'is not pretty and she can't act' declares top Hollywood producer Carol Baum, calling her movie Anyone But You 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13315349/Hollywood-producer-Carol-Baum-Sydney-Sweeney-not-pretty-act.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift fans are scammed out of more than £1 million by ticket fraudsters](https://www.dailymail.co.uk/tvshowbiz/article-13316485/Taylor-Swift-fans-scammed-1-million-ticket-fraudsters.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 17, 2024
+
+### [**dailymail.co.uk** 	Tom Hollander reveals how he considered letting himself go to become a 'fat actor' to get work](https://www.dailymail.co.uk/tvshowbiz/article-13316333/Tom-Hollander-reveals-considered-fat-actor-work.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 17, 2024
+
+### [**dailymail.co.uk** 	Donald Trump trial RECAP: Seventh juror is selected after dismisses candidates for saying 'lock him up' about Donald on social media](https://www.dailymail.co.uk/news/article-13314185/donald-trump-stormy-daniels-court-trial-live.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 17, 2024
+
+### [**dailymail.co.uk** 	Meghan Markle likely made the 50 jars of jam she sent to friends 'with her own hands using ingredients from Montecito' as part of very soft focus launch of American Riviera Orchard - in an attempt to highlight the brand 'rather than herself', claims expert](https://www.dailymail.co.uk/news/article-13314365/Meghan-Markle-PR-expert-American-Riviera-Orchard-jam-launch.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 17, 2024
+
+### [**dailymail.co.uk** 	Scouts CEO praises 'charming' Princess of Wales' ability to 'put people at ease' and reveals 'what you see is what you get with Kate'](https://www.dailymail.co.uk/femail/article-13315301/Scouts-CEO-praises-charming-Princess-Wales-ability-people-ease-reveals-Kate.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney 'is not pretty and she can't act' declares top Hollywood producer Carol Baum, calling her movie Anyone But You 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13315349/Hollywood-producer-Carol-Baum-Sydney-Sweeney-not-pretty-act.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift fans are scammed out of more than £1 million by ticket fraudsters](https://www.dailymail.co.uk/tvshowbiz/article-13316485/Taylor-Swift-fans-scammed-1-million-ticket-fraudsters.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 17, 2024
+
+### [**dailymail.co.uk** 	Tom Hollander reveals how he considered letting himself go to become a 'fat actor' to get work](https://www.dailymail.co.uk/tvshowbiz/article-13316333/Tom-Hollander-reveals-considered-fat-actor-work.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Donald Trump News for April 17, 2024
+
+### [**dailymail.co.uk** 	Donald Trump trial RECAP: Seventh juror is selected after dismisses candidates for saying 'lock him up' about Donald on social media](https://www.dailymail.co.uk/news/article-13314185/donald-trump-stormy-daniels-court-trial-live.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 17, 2024
+
+### [**dailymail.co.uk** 	Meghan Markle likely made the 50 jars of jam she sent to friends 'with her own hands using ingredients from Montecito' as part of very soft focus launch of American Riviera Orchard - in an attempt to highlight the brand 'rather than herself', claims expert](https://www.dailymail.co.uk/news/article-13314365/Meghan-Markle-PR-expert-American-Riviera-Orchard-jam-launch.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 17, 2024
+
+### [**dailymail.co.uk** 	Scouts CEO praises 'charming' Princess of Wales' ability to 'put people at ease' and reveals 'what you see is what you get with Kate'](https://www.dailymail.co.uk/femail/article-13315301/Scouts-CEO-praises-charming-Princess-Wales-ability-people-ease-reveals-Kate.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney 'is not pretty and she can't act' declares top Hollywood producer Carol Baum, calling her movie Anyone But You 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13315349/Hollywood-producer-Carol-Baum-Sydney-Sweeney-not-pretty-act.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**tmz.com** Taylor Swift's Fans Form Long Lines For 'Poets' Pop-Up Ahead of New Album](https://www.tmz.com/2024/04/16/taylor-swift-fans-long-lines-the-grove-tortured-poets-pop-up-new-album/)
+
+### [**dailymail.co.uk** 	Taylor Swift fans are scammed out of more than £1 million by ticket fraudsters](https://www.dailymail.co.uk/tvshowbiz/article-13316485/Taylor-Swift-fans-scammed-1-million-ticket-fraudsters.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 17, 2024
+
+### [**dailymail.co.uk** 	Tom Hollander reveals how he considered letting himself go to become a 'fat actor' to get work](https://www.dailymail.co.uk/tvshowbiz/article-13316333/Tom-Hollander-reveals-considered-fat-actor-work.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Meghan Markle News for April 17, 2024
+
+### [**dailymail.co.uk** 	Meghan Markle likely made the 50 jars of jam she sent to friends 'with her own hands using ingredients from Montecito' as part of very soft focus launch of American Riviera Orchard - in an attempt to highlight the brand 'rather than herself', claims expert](https://www.dailymail.co.uk/news/article-13314365/Meghan-Markle-PR-expert-American-Riviera-Orchard-jam-launch.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Princess of Wales News for April 17, 2024
+
+### [**dailymail.co.uk** 	Scouts CEO praises 'charming' Princess of Wales' ability to 'put people at ease' and reveals 'what you see is what you get with Kate'](https://www.dailymail.co.uk/femail/article-13315301/Scouts-CEO-praises-charming-Princess-Wales-ability-people-ease-reveals-Kate.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney 'is not pretty and she can't act' declares top Hollywood producer Carol Baum, calling her movie Anyone But You 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13315349/Hollywood-producer-Carol-Baum-Sydney-Sweeney-not-pretty-act.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift fans are scammed out of more than £1 million by ticket fraudsters](https://www.dailymail.co.uk/tvshowbiz/article-13316485/Taylor-Swift-fans-scammed-1-million-ticket-fraudsters.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Tom Holland News for April 17, 2024
+
+### [**dailymail.co.uk** 	Tom Hollander reveals how he considered letting himself go to become a 'fat actor' to get work](https://www.dailymail.co.uk/tvshowbiz/article-13316333/Tom-Hollander-reveals-considered-fat-actor-work.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney 'is not pretty and she can't act' declares top Hollywood producer Carol Baum, calling her movie Anyone But You 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13315349/Hollywood-producer-Carol-Baum-Sydney-Sweeney-not-pretty-act.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift fans are scammed out of more than £1 million by ticket fraudsters](https://www.dailymail.co.uk/tvshowbiz/article-13316485/Taylor-Swift-fans-scammed-1-million-ticket-fraudsters.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	Taylor Swift fans are scammed out of more than £1 million by ticket fraudsters](https://www.dailymail.co.uk/tvshowbiz/article-13316485/Taylor-Swift-fans-scammed-1-million-ticket-fraudsters.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	Mother who promised Taylor Swift tickets to her daughter to celebrate finishing her A-levels is among British fans being conned out of £1m by cruel fraudsters](https://www.dailymail.co.uk/news/article-13318167/taylor-swift-tickets-scam-mother-daughter-gift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	Bridgerton 'returns to its racy roots as season three promises to be steamiest yet with threesome scene and lesbian romp'](https://www.dailymail.co.uk/tvshowbiz/article-13316829/Bridgerton-returns-racy-roots-season-three-promises-steamiest-threesome-scene-lesbian-romp.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	Mother who promised Taylor Swift tickets to her daughter to celebrate finishing her A-levels is among British fans being conned out of £1m by cruel fraudsters](https://www.dailymail.co.uk/news/article-13318167/taylor-swift-tickets-scam-mother-daughter-gift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	Bridgerton 'returns to its racy roots as season three promises to be steamiest yet with threesome scene and lesbian romp'](https://www.dailymail.co.uk/tvshowbiz/article-13316829/Bridgerton-returns-racy-roots-season-three-promises-steamiest-threesome-scene-lesbian-romp.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Leftist snobs will hate to hear it... but it's thanks to Trump and his Israel-Arab alliance that Iran's attack failed so miserably. Now, says ANDREW NEIL, Biden must hold his nose and build on Donald's success](https://www.dailymail.co.uk/news/article-13315885/Trump-Israel-Arab-alliance-Iran-attack-failed-ANDREW-NEIL.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya serves up a fashion ace in sultry lace corset with voluminous pink skirt as she leads glamour at premiere of steamy tennis film Challengers in LA](https://www.dailymail.co.uk/tvshowbiz/article-13317117/Zendaya-leads-glamour-Challengers-Los-Angeles-premiere.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	Ronnie O'Sullivan reveals how snooker players are 'pampered' with lavish banquets and chauffeurs in Saudi Arabia before claiming fans were 'too quick' to judge the Riyadh Season ball](https://www.dailymail.co.uk/sport/snooker/article-13318509/Ronnie-OSullivan-reveals-snooker-players-pampered-lavish-banquets-chauffeurs-Saudi-Arabia-claiming-fans-quick-judge-Riyadh-Season-ball.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**tmz.com** Kanye West and Bianca Censori Spend the Day at Disneyland](https://www.tmz.com/2024/04/17/kanye-west-bianca-censori-disneyland-kim-kardashian/)
+
+### [**dailymail.co.uk** 	Ronnie O'Sullivan reveals how snooker players are 'pampered' with lavish banquets and chauffeurs in Saudi Arabia before claiming fans were 'too quick' to judge the Riyadh Season ball](https://www.dailymail.co.uk/sport/snooker/article-13318509/Ronnie-OSullivan-reveals-snooker-players-pampered-lavish-banquets-chauffeurs-Saudi-Arabia-claiming-fans-quick-judge-Riyadh-Season-ball.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**tmz.com** Sydney Sweeney 'Not Pretty, Can't Act,' Says Hollywood Producer Carol Baum](https://www.tmz.com/2024/04/17/sydney-sweeney-not-pretty-acting-producer-carol-baum-anyone-but-you/)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**perezhilton.com** Mysterious Taylor Swift Mural Appears In Chicago -- Leading Fans To Find THIS...](https://perezhilton.com/taylor-swift-mural-chicago-qr-code-fans-find/)
+
+### [**dailymail.co.uk** 	Mother who promised Taylor Swift tickets to her daughter to celebrate finishing her A-levels is among British fans being conned out of £1m by cruel fraudsters](https://www.dailymail.co.uk/news/article-13318167/taylor-swift-tickets-scam-mother-daughter-gift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kanye News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kanye West sheds his usual all-black look for white sweats while wife Bianca Censori goes BAREFOOT as they join the crowds for Disneyland visit](https://www.dailymail.co.uk/tvshowbiz/article-13319483/Kanye-West-white-sweats-wife-Bianca-Censori-BAREFOOT-Disneyland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**tmz.com** Zendaya Dances Around 'Euphoria' Season 3 Update, 'It's Beyond Me'](https://www.tmz.com/2024/04/17/zendaya-euphoria-return-season-3-delay-beyond-me-challengers-premiere/)
+
+### [**hollywoodreporter.com** Zendaya Got Advice From Timothée Chalamet Before Working with Luca Guadagnino on ‘Challengers’](https://www.hollywoodreporter.com/movies/movie-news/zendaya-advice-timothee-chalamet-challengers-luca-guadagnino-1235875785/)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**perezhilton.com** Travis Kelce Explains Why He &amp; Taylor Swift Were ‘In The Madness’ Of The Pit At Coachella Instead Of Backstage!](https://perezhilton.com/travis-kelce-explains-why-taylor-swift-in-coachella-crowd/)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kanye West sheds his usual all-black look for white sweats while wife Bianca Censori goes BAREFOOT as they join the crowds for Disneyland visit](https://www.dailymail.co.uk/tvshowbiz/article-13319483/Kanye-West-white-sweats-wife-Bianca-Censori-BAREFOOT-Disneyland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 17, 2024
+
+### [**dailymail.co.uk** 	Angelina Jolie is accusing Brad Pitt of trying to 'bleed her dry' in their ongoing bitter legal battle - despite him helping enrich his vengeful ex by close to $100million](https://www.dailymail.co.uk/tvshowbiz/article-13311943/Angelina-Jolie-Brad-Pitt-Miraval-legal-battle-millions.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	How Sydney Sweeney became the most divisive star of a generation: Fans defend Euphoria star after director said she 'isn't pretty and can't act' - while critics are split over whether she's 'gussied-up smut' or 'the saviour of Hollywood'](https://www.dailymail.co.uk/femail/article-13318307/Sydney-Sweeney-star-generation-carol-baum.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	As Courtney Love brands Taylor Swift 'unimportant', FEMAIL lays bare her most SCATHING celebrity takedowns - from furious feud with Madonna to her open 'hatred' of late husband Kurt Cobain's bandmate Dave Grohl](https://www.dailymail.co.uk/femail/article-13314713/courtney-love-celebrity-takedowns-dave-grohl-beyonce-taylor-swift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kanye West sheds his usual all-black look for white sweats while wife Bianca Censori goes BAREFOOT as they join the crowds for Disneyland visit](https://www.dailymail.co.uk/tvshowbiz/article-13319483/Kanye-West-white-sweats-wife-Bianca-Censori-BAREFOOT-Disneyland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 17, 2024
+
+### [**dailymail.co.uk** 	Angelina Jolie is accusing Brad Pitt of trying to 'bleed her dry' in their ongoing bitter legal battle - despite him helping enrich his vengeful ex by close to $100million](https://www.dailymail.co.uk/tvshowbiz/article-13311943/Angelina-Jolie-Brad-Pitt-Miraval-legal-battle-millions.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Simone Biles News for April 17, 2024
+
+### [**hollywoodreporter.com** Simone Biles on Disappointment After Tokyo Olympics: “I Thought I Was Going to Get Banned From America”](https://www.hollywoodreporter.com/news/general-news/simone-biles-banned-america-tokyo-olympics-1235875992/)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	As Courtney Love brands Taylor Swift 'unimportant', FEMAIL lays bare her most SCATHING celebrity takedowns - from furious feud with Madonna to her open 'hatred' of late husband Kurt Cobain's bandmate Dave Grohl](https://www.dailymail.co.uk/femail/article-13314713/courtney-love-celebrity-takedowns-dave-grohl-beyonce-taylor-swift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kanye West sheds his usual all-black look for white sweats while wife Bianca Censori goes BAREFOOT as they join the crowds for Disneyland visit](https://www.dailymail.co.uk/tvshowbiz/article-13319483/Kanye-West-white-sweats-wife-Bianca-Censori-BAREFOOT-Disneyland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Joe Biden says hero uncle's plane was shot down in area with a 'lot of CANNIBALS' in Papua New Guinea in World War II...and his body was never found](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 17, 2024
+
+### [**dailymail.co.uk** 	Angelina Jolie is accusing Brad Pitt of trying to 'bleed her dry' in their ongoing bitter legal battle - despite him helping enrich his vengeful ex by close to $100million](https://www.dailymail.co.uk/tvshowbiz/article-13311943/Angelina-Jolie-Brad-Pitt-Miraval-legal-battle-millions.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	As Courtney Love brands Taylor Swift 'unimportant', FEMAIL lays bare her most SCATHING celebrity takedowns - from furious feud with Madonna to her open 'hatred' of late husband Kurt Cobain's bandmate Dave Grohl](https://www.dailymail.co.uk/femail/article-13314713/courtney-love-celebrity-takedowns-dave-grohl-beyonce-taylor-swift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya says new movie Challengers is 'incredibly sexy' despite there being NO sex scenes in the movie: 'Tennis is the sex!'](https://www.dailymail.co.uk/tvshowbiz/article-13320711/zendaya-movie-challengers-sex-scenes-tennis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kanye West sheds his usual all-black look for white sweats while wife Bianca Censori goes BAREFOOT as they join the crowds for Disneyland visit](https://www.dailymail.co.uk/tvshowbiz/article-13319483/Kanye-West-white-sweats-wife-Bianca-Censori-BAREFOOT-Disneyland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Brad Pitt News for April 17, 2024
+
+### [**dailymail.co.uk** 	Angelina Jolie is accusing Brad Pitt of trying to 'bleed her dry' in their ongoing bitter legal battle - despite him helping enrich his vengeful ex by close to $100million](https://www.dailymail.co.uk/tvshowbiz/article-13311943/Angelina-Jolie-Brad-Pitt-Miraval-legal-battle-millions.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**perezhilton.com** Taylor Swift Accidentally Foretold Joe Alwyn Breakup Years Before It Happened -- No Wonder Travis Kelce Romance Is Thriving!](https://perezhilton.com/taylor-swift-resurfaced-interview-predicted-joe-alwyn-breakup-travis-kelce-romance/)
+
+### [**dailymail.co.uk** 	As Courtney Love brands Taylor Swift 'unimportant', FEMAIL lays bare her most SCATHING celebrity takedowns - from furious feud with Madonna to her open 'hatred' of late husband Kurt Cobain's bandmate Dave Grohl](https://www.dailymail.co.uk/femail/article-13314713/courtney-love-celebrity-takedowns-dave-grohl-beyonce-taylor-swift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya says new movie Challengers is 'incredibly sexy' despite there being NO sex scenes in the movie: 'Tennis is the sex!'](https://www.dailymail.co.uk/tvshowbiz/article-13320711/zendaya-movie-challengers-sex-scenes-tennis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kanye West sheds his usual all-black look for white sweats while wife Bianca Censori goes BAREFOOT as they join the crowds for Disneyland visit](https://www.dailymail.co.uk/tvshowbiz/article-13319483/Kanye-West-white-sweats-wife-Bianca-Censori-BAREFOOT-Disneyland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	As Courtney Love brands Taylor Swift 'unimportant', FEMAIL lays bare her most SCATHING celebrity takedowns - from furious feud with Madonna to her open 'hatred' of late husband Kurt Cobain's bandmate Dave Grohl](https://www.dailymail.co.uk/femail/article-13314713/courtney-love-celebrity-takedowns-dave-grohl-beyonce-taylor-swift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya says new movie Challengers is 'incredibly sexy' despite there being NO sex scenes in the movie: 'Tennis is the sex!'](https://www.dailymail.co.uk/tvshowbiz/article-13320711/zendaya-movie-challengers-sex-scenes-tennis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Bia News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kanye West sheds his usual all-black look for white sweats while wife Bianca Censori goes BAREFOOT as they join the crowds for Disneyland visit](https://www.dailymail.co.uk/tvshowbiz/article-13319483/Kanye-West-white-sweats-wife-Bianca-Censori-BAREFOOT-Disneyland.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Biden News for April 17, 2024
+
+### [**dailymail.co.uk** 	Joe Biden suggests his uncle was eaten by 'CANNIBALS' after his plane was shot down over Papua New Guinea during World War Two](https://www.dailymail.co.uk/news/article-13320611/Joe-Biden-cannibals-uncle-ww2-Trump-guinea.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Kardashian News for April 17, 2024
+
+### [**dailymail.co.uk** 	Kim Kardashian and Eva Longoria lead the stars wishing Victoria Beckham a happy 50th birthday: 'No one is as funny and glamorous as you!'](https://www.dailymail.co.uk/tvshowbiz/article-13320549/Victoria-Beckham-Kim-Kardashian-Eva-Longoria-birthday-tributes.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Sydney Sweeney News for April 17, 2024
+
+### [**tmz.com** Sydney Sweeney Fires Back on 'Not Pretty' Remark, Producer Regretful](https://www.tmz.com/2024/04/17/sydney-sweeney-responds-not-pretty-comment-producer-carol-baum-regret/)
+
+### [**perezhilton.com** Hollywood Producer Rudely Bashed Sydney Sweeney -- And Was NOT Prepared For The Response!](https://perezhilton.com/sydney-sweeney-hollywood-producer-insult/)
+
+### [**dailymail.co.uk** 	Sydney Sweeney SLAMS 'shameful' Carol Baum for 'attacking' her acting abilities and branding her 'not pretty' - after top Hollywood producer decried her latest movie Anyone But You as 'unwatchable'](https://www.dailymail.co.uk/tvshowbiz/article-13320345/Sydney-Sweeney-SLAMS-shameful-Carol-Baum-attacking-acting-abilities-branding-not-pretty-Hollywood-producer-criticized-unwatchable-movie-You.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Taylor Swift News for April 17, 2024
+
+### [**dailymail.co.uk** 	As Courtney Love brands Taylor Swift 'unimportant', FEMAIL lays bare her most SCATHING celebrity takedowns - from furious feud with Madonna to her open 'hatred' of late husband Kurt Cobain's bandmate Dave Grohl](https://www.dailymail.co.uk/femail/article-13314713/courtney-love-celebrity-takedowns-dave-grohl-beyonce-taylor-swift.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
+
+
+## Zendaya News for April 17, 2024
+
+### [**dailymail.co.uk** 	Zendaya says new movie Challengers is 'incredibly sexy' despite there being NO sex scenes in the movie: 'Tennis is the sex!'](https://www.dailymail.co.uk/tvshowbiz/article-13320711/zendaya-movie-challengers-sex-scenes-tennis.html?ns_mchannel=rss&amp;ito=1490&amp;ns_campaign=1490)
