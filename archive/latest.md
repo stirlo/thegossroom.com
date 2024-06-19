@@ -1,27 +1,18 @@
 # Latest Stories
 ## Tim Cook
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Tim Cook
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Tim Cook
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+## Tim Cook
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
@@ -30,7 +21,16 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+## Tim Cook
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
@@ -44,22 +44,13 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Taylor Swift
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Taylor Swift
@@ -73,6 +64,24 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Taylor Swift
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Taylor Swift
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Taylor Swift
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
@@ -89,22 +98,13 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Tom Brady
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Tom Brady
@@ -118,6 +118,24 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Tom Brady
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Tom Brady
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Tom Brady
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
@@ -134,22 +152,13 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Tina Fey
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Tina Fey
@@ -163,6 +172,24 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Tina Fey
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Tina Fey
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Tina Fey
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
@@ -179,22 +206,13 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Steven Yuen
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Steven Yuen
@@ -208,6 +226,24 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Steven Yuen
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Steven Yuen
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Steven Yuen
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
@@ -224,22 +260,13 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Sommer Ray
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Sommer Ray
@@ -253,6 +280,24 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Sommer Ray
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Sommer Ray
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Sommer Ray
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
@@ -269,22 +314,13 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Sza
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Sza
@@ -298,6 +334,15 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Sza
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+## Sza
+
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
@@ -307,6 +352,15 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 
 ## Sza
 
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+## Sza
+
+
+
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
@@ -316,29 +370,20 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Sydney Sweeney
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Sydney Sweeney
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Sydney Sweeney
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+## Sza
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Sydney Sweeney
@@ -352,6 +397,15 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 
 ## Sydney Sweeney
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Sydney Sweeney
+
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
@@ -359,31 +413,31 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Walton Goggins
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
 ## Walton Goggins
 
+## Sydney Sweeney
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Walton Goggins
@@ -393,6 +447,42 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Walton Goggins
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+## Walton Goggins
+
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+## Walton Goggins
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Tom Holland
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
 ## Walton Goggins
@@ -406,33 +496,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Tom Holland
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Tom Holland
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Tom Holland
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## Tom Holland
-
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
@@ -442,6 +505,15 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 
 ## Tom Holland
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+## Tom Holland
+
+
+
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
@@ -449,22 +521,13 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Gucci Mane
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
 ## Gucci Mane
@@ -476,6 +539,15 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
+## Tom Holland
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 ## Gucci Mane
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
@@ -483,6 +555,42 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Gucci Mane
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+## Gucci Mane
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+## Gucci Mane
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Harry Styles
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
 ## Gucci Mane
@@ -496,33 +604,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Harry Styles
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Harry Styles
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Harry Styles
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## Harry Styles
-
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
@@ -532,29 +613,29 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 
 ## Harry Styles
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+## Harry Styles
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Jake Paul
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
 ## Jake Paul
@@ -566,6 +647,15 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
+## Harry Styles
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 ## Jake Paul
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
@@ -573,6 +663,42 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Jake Paul
+
+## Jake Paul
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+## Jake Paul
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Jameela Jamil
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
 ## Jake Paul
@@ -586,33 +712,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Jameela Jamil
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Jameela Jamil
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Jameela Jamil
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## Jameela Jamil
-
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
@@ -622,38 +721,74 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 
 ## Jameela Jamil
 
+## Jameela Jamil
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Elon Musk
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Jameela Jamil
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
-
-## Elon Musk
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 ## Elon Musk
+
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Jameela Jamil
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+## Elon Musk
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Elon Musk
+## Elon Musk
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Elon Musk
@@ -663,6 +798,15 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+## Gabrielle Union
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
 ## Elon Musk
@@ -676,20 +820,11 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Gabrielle Union
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Gabrielle Union
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
 ## Gabrielle Union
@@ -703,47 +838,38 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Gabrielle Union
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Gabrielle Union
 
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Giancarlo Esposito
+
+## Gabrielle Union
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
-
-## Giancarlo Esposito
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Giancarlo Esposito
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Giancarlo Esposito
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
 ## Giancarlo Esposito
@@ -757,34 +883,43 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 
 ## Giancarlo Esposito
 
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Giancarlo Esposito
+## Giancarlo Esposito
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Giancarlo Esposito
+
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+## Gillian Jacobs
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## Gillian Jacobs
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Gillian Jacobs
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Gillian Jacobs
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
@@ -795,7 +930,34 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+## Gillian Jacobs
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Gillian Jacobs
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## Gillian Jacobs
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
@@ -807,27 +969,9 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
 ## Jason Mantzoukas
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Jason Mantzoukas
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Jason Mantzoukas
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
@@ -838,11 +982,38 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Jason Mantzoukas
 
+## Jason Mantzoukas
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+## Jason Mantzoukas
+## Jason Mantzoukas
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Jason Mantzoukas
@@ -856,24 +1027,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## JB Smoove
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## JB Smoove
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## JB Smoove
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -882,12 +1035,39 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 
 ## JB Smoove
+## JB Smoove
+
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+
+## JB Smoove
+## JB Smoove
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## JB Smoove
@@ -901,24 +1081,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Madison Pettis
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Madison Pettis
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Madison Pettis
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -927,12 +1089,39 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 
 ## Madison Pettis
+## Madison Pettis
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Madison Pettis
+## Madison Pettis
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Madison Pettis
@@ -946,24 +1135,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Austin Butler
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Austin Butler
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Austin Butler
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -972,12 +1143,39 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 
 ## Austin Butler
+## Austin Butler
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Austin Butler
+## Austin Butler
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Austin Butler
@@ -991,24 +1189,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Mark Zuckerberg
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Mark Zuckerberg
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -1017,12 +1197,39 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 
 ## Mark Zuckerberg
+## Mark Zuckerberg
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Mark Zuckerberg
+## Mark Zuckerberg
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Mark Zuckerberg
@@ -1036,24 +1243,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Ariana Grande
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Ariana Grande
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Ariana Grande
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -1062,12 +1251,39 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 
 ## Ariana Grande
+## Ariana Grande
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Ariana Grande
+## Ariana Grande
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Ariana Grande
@@ -1081,24 +1297,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Livvy Dunne
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Livvy Dunne
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Livvy Dunne
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -1107,12 +1305,39 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 
 ## Livvy Dunne
+## Livvy Dunne
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Livvy Dunne
+## Livvy Dunne
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Livvy Dunne
@@ -1126,24 +1351,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Ali Wong
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Ali Wong
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Ali Wong
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -1153,11 +1360,38 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Ali Wong
 
+## Ali Wong
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+## Ali Wong
+
+## Ali Wong
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Ali Wong
@@ -1171,24 +1405,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Lizzo
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Lizzo
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Lizzo
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -1198,11 +1414,38 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Lizzo
 
+## Lizzo
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+## Lizzo
+## Lizzo
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Lizzo
@@ -1216,24 +1459,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Alison Brie
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Alison Brie
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Alison Brie
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -1243,11 +1468,38 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Alison Brie
 
+## Alison Brie
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+## Alison Brie
+
+## Alison Brie
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Alison Brie
@@ -1261,24 +1513,6 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## Lil Wayne
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Lil Wayne
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Lil Wayne
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
@@ -1288,11 +1522,38 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Lil Wayne
 
+## Lil Wayne
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+## Lil Wayne
+
+## Lil Wayne
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Lil Wayne
@@ -1300,31 +1561,13 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+## Adele
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## Adele
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Adele
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Adele
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
@@ -1335,7 +1578,34 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+## Adele
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+## Adele
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## Adele
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
@@ -1347,27 +1617,9 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
 ## Lindsay Lohan
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Lindsay Lohan
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Lindsay Lohan
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
@@ -1378,11 +1630,38 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Lindsay Lohan
 
+## Lindsay Lohan
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+## Lindsay Lohan
+
+## Lindsay Lohan
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Lindsay Lohan
@@ -1392,27 +1671,9 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
 ## Addison Rae
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Addison Rae
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Addison Rae
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
@@ -1423,11 +1684,38 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Addison Rae
 
+## Addison Rae
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+## Addison Rae
+
+## Addison Rae
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Addison Rae
@@ -1437,27 +1725,9 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
 ## Latto
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Latto
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Latto
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
@@ -1468,11 +1738,38 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## Latto
 
+## Latto
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+## Latto
+
+## Latto
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Latto
@@ -1482,27 +1779,9 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
 ## Aaron Paul
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Aaron Paul
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Aaron Paul
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
@@ -1512,12 +1791,39 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 
 ## Aaron Paul
+## Aaron Paul
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Aaron Paul
+## Aaron Paul
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Aaron Paul
@@ -1528,255 +1834,291 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
-
 ## LeBron James
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## LeBron James
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## LeBron James
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+## LeBron James
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
 ## LeBron James
 
+## LeBron James
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## LeBron James
 
+## LeBron James
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## 50 Cent
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
 
 ## 50 Cent
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## 50 Cent
+
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
+
+
+## 50 Cent
 ## 50 Cent
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+
+## 50 Cent
 ## 50 Cent
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Kesha
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
 ## Kesha
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## Kesha
+
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
+
+
+## Kesha
 ## Kesha
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+
+## Kesha
 ## Kesha
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## 21 Savage
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
 ## 21 Savage
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## 21 Savage
+
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
+
+
+## 21 Savage
 ## 21 Savage
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+
+## 21 Savage
 ## 21 Savage
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Larry David
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
 ## Larry David
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## Larry David
+
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
+
+
+## Larry David
 ## Larry David
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+
+## Larry David
 ## Larry David
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Seth Rogan
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Seth Rogan
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
 
 
 ## Seth Rogan
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+## Seth Rogan
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
@@ -1785,7 +2127,16 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+## Seth Rogan
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
@@ -1794,34 +2145,34 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+## Seth Rogan
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Simone Biles
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Simone Biles
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Simone Biles
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+## Simone Biles
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
@@ -1830,7 +2181,16 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+## Simone Biles
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
@@ -1839,392 +2199,464 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+## Simone Biles
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Pete Davidson
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Pete Davidson
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Pete Davidson
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Pete Davidson
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Pete Davidson
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Pete Davidson
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Pete Davidson
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Prince Harry
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Prince Harry
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Prince Harry
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Prince Harry
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Prince Harry
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Prince Harry
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Prince Harry
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Princess of Wales
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Princess of Wales
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Princess of Wales
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Princess of Wales
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Princess of Wales
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Princess of Wales
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Princess of Wales
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Rachel McAdams
+## Rachel McAdams
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Rachel McAdams
+## Rachel McAdams
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Rachel McAdams
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Rachel McAdams
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Rachel McAdams
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Reneé Rapp
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
 ## Reneé Rapp
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## Reneé Rapp
+
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Reneé Rapp
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
 ## Reneé Rapp
+## Reneé Rapp
 
-## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
-
-And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
-
-*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## Rick Ross
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Rick Ross
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Rick Ross
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## Rick Ross
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+
+## Reneé Rapp
+## Reneé Rapp
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## Rick Ross
 ## Rick Ross
 
-## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
-
-And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
-
-*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## Sam Ashgari
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Sam Ashgari
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Sam Ashgari
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Sam Ashgari
+
+
+## Rick Ross
+## Rick Ross
+
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
-## Sam Ashgari
+
+
+## Rick Ross
+## Rick Ross
+
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Sandra Oh
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+## Sam Ashgari
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Sandra Oh
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Sandra Oh
+
+
+## Sam Ashgari
+## Sam Ashgari
+
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
-## Sandra Oh
+
+
+## Sam Ashgari
+## Sam Ashgari
+
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## Sandra Oh
+## Sandra Oh
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+
+## Sandra Oh
+## Sandra Oh
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Sandra Oh
+## Sandra Oh
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Donald Trump
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Donald Trump
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Donald Trump
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+## Donald Trump
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
@@ -2235,7 +2667,16 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+## Donald Trump
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
@@ -2243,395 +2684,467 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 ## Donald Trump
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## Donald Trump
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Diddy
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Diddy
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Diddy
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Diddy
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Diddy
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Diddy
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Diddy
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## City Girls
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## City Girls
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## City Girls
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## City Girls
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## City Girls
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## City Girls
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## City Girls
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Chloe Bailey
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Chloe Bailey
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Chloe Bailey
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Chloe Bailey
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Chloe Bailey
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Chloe Bailey
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Chloe Bailey
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Charli D Amelio
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
 
 ## Charli D Amelio
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## Charli D Amelio
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
+
 ## Charli D Amelio
 
+## Charli D Amelio
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+## Charli D Amelio
 ## Charli D Amelio
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Cardi B
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Cardi B
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
 
 
 ## Cardi B
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## Cardi B
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
 ## Cardi B
 
+## Cardi B
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Cardi B
 
+## Cardi B
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Bryan Cranston
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Bryan Cranston
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Bryan Cranston
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Bryan Cranston
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Bryan Cranston
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Bryan Cranston
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Bryan Cranston
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Brielle Biermann
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Brielle Biermann
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Brielle Biermann
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Brielle Biermann
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Brielle Biermann
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Brielle Biermann
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Brielle Biermann
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Dua Lipa
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
 
 ## Dua Lipa
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## Dua Lipa
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
+
 ## Dua Lipa
 
+## Dua Lipa
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
 ## Dua Lipa
 
+## Dua Lipa
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Drake
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Drake
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
 
 
 ## Drake
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## Drake
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
@@ -2639,503 +3152,611 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 ## Drake
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## Drake
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
 ## Drake
 
+## Drake
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Jenner
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Jenner
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Jenner
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Jenner
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Jenner
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Jenner
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Jenner
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## J. Cole
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## J. Cole
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## J. Cole
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## J. Cole
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## J. Cole
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## J. Cole
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## J. Cole
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Jerrod Carmichael
+## Jerrod Carmichael
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Jerrod Carmichael
+## Jerrod Carmichael
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Jerrod Carmichael
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Jerrod Carmichael
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Jerrod Carmichael
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Jennifer Lawrence
+## Jennifer Lawrence
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Jennifer Lawrence
+## Jennifer Lawrence
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Jennifer Lawrence
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Jennifer Lawrence
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Jennifer Lawrence
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Joe Biden
+## Joe Biden
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Joe Biden
+## Joe Biden
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Joe Biden
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Joe Biden
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Joe Biden
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## J.K. Simmons
+## J.K. Simmons
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## J.K. Simmons
+## J.K. Simmons
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## J.K. Simmons
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## J.K. Simmons
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## J.K. Simmons
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Kamala Harris
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
 ## Kamala Harris
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## Kamala Harris
+
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Kamala Harris
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
 ## Kamala Harris
+## Kamala Harris
 
-## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
-
-And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
-
-*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## John C Reilly
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## John C Reilly
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## John C Reilly
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## John C Reilly
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+
+## Kamala Harris
+## Kamala Harris
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## John C Reilly
 ## John C Reilly
 
-## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
-
-And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
-
-*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## Kardashian
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Kardashian
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Kardashian
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Kardashian
+
+
+## John C Reilly
+## John C Reilly
+
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
-## Kardashian
+
+
+## John C Reilly
+## John C Reilly
+
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Kanye
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
-## Kanye
+## Kardashian
+## Kardashian
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Kanye
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Kanye
+
+
+## Kardashian
+## Kardashian
+
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
-## Kanye
+
+
+## Kardashian
+## Kardashian
+
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## Kanye
+## Kanye
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+
+## Kanye
+## Kanye
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Kanye
+## Kanye
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## Zendaya
+## Zendaya
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Zendaya
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Zendaya
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Zendaya
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## Zendaya
-
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## Zendaya
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
@@ -3143,710 +3764,845 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 ## Zendaya
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## Zendaya
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Will Ferrell
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Will Ferrell
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Will Ferrell
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Will Ferrell
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Will Ferrell
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Will Ferrell
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Will Ferrell
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Zazie Beetz
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Zazie Beetz
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Zazie Beetz
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
+## Zazie Beetz
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Zazie Beetz
 
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Zazie Beetz
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Zazie Beetz
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Bob Odenkirk
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Bob Odenkirk
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 
 ## Bob Odenkirk
+## Bob Odenkirk
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Bob Odenkirk
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Bob Odenkirk
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Bob Odenkirk
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Brad Pitt
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
 ## Brad Pitt
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## Brad Pitt
+
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
+
+
+## Brad Pitt
 ## Brad Pitt
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+
+## Brad Pitt
 ## Brad Pitt
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## Beyoncé
+## Beyoncé
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+
+## Beyoncé
+## Beyoncé
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 
 ## Beyoncé
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
 ## Beyoncé
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Beyoncé
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## Beyoncé
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Beyoncé
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 
 ## Bia
+## Bia
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Bia
+## Bia
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Bia
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Bia
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Bia
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Avantika
+## Avantika
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Avantika
+## Avantika
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Avantika
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Avantika
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Avantika
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Bernie Sanders
+## Bernie Sanders
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Bernie Sanders
+## Bernie Sanders
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Bernie Sanders
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Bernie Sanders
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Bernie Sanders
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Big Sean
+## Big Sean
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## Big Sean
+## Big Sean
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Big Sean
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## Big Sean
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Big Sean
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## BlockBoy JB
+## BlockBoy JB
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
 
 
 ## BlockBoy JB
+## BlockBoy JB
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
 
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## BlockBoy JB
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
 ## BlockBoy JB
 
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## BlockBoy JB
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Biden
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
 ## Biden
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
 ## Biden
+
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Biden
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
 ## Biden
+## Biden
 
-## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
-
-And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
-
-*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## Bieber
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Bieber
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Bieber
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## Bieber
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+
+## Biden
+## Biden
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## Bieber
 ## Bieber
 
-## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
-
-And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
-
-*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## Paulina Porizkov
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Paulina Porizkov
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Paulina Porizkov
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Paulina Porizkov
+
+
+## Bieber
+## Bieber
+
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
-## Paulina Porizkov
+
+
+## Bieber
+## Bieber
+
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
 
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Paris Hilton
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
+## Paulina Porizkov
 
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Paris Hilton
 
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Paris Hilton
+
+
+## Paulina Porizkov
+## Paulina Porizkov
+
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
-## Paris Hilton
+
+
+## Paulina Porizkov
+## Paulina Porizkov
+
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## Paris Hilton
+## Paris Hilton
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+
+## Paris Hilton
+## Paris Hilton
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Paris Hilton
+## Paris Hilton
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## Metro Boomin
+## Metro Boomin
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+
+## Metro Boomin
+## Metro Boomin
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
 
 
 ## Metro Boomin
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Metro Boomin
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Metro Boomin
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## Metro Boomin
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
-
-## Metro Boomin
-
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## Metro Boomin
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Meghan Markle
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Meghan Markle
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Meghan Markle
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## Meghan Markle
+
 
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
@@ -3854,8 +4610,17 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 ## Meghan Markle
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## Meghan Markle
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
@@ -3863,208 +4628,244 @@ If we’ve learned anything from Pharrell’s fashion shows as the creative dire
 ## Meghan Markle
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## Meghan Markle
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Megan Thee Stallion
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
 ## Megan Thee Stallion
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Megan Thee Stallion
-
-## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
-
-If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
-
-*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
-
 
 ## Megan Thee Stallion
 
-## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
-
-And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
-
-*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## Maya Rudolph
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Maya Rudolph
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Maya Rudolph
-
-## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
-
-The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
-
-*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
-
-
-## Maya Rudolph
-
+## Megan Thee Stallion
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
+
+## Megan Thee Stallion
+
+## Megan Thee Stallion
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
 ## Maya Rudolph
 
-## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
-
-And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
-
-*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
-
-
-## Olivia Rodrigo
-
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
-
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Olivia Rodrigo
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Olivia Rodrigo
-
+## Maya Rudolph
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Olivia Rodrigo
 
+## Maya Rudolph
+
+## Maya Rudolph
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
-## Olivia Rodrigo
 
+## Maya Rudolph
+
+## Maya Rudolph
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
-## Obama
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## Olivia Rodrigo
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
-
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Obama
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
-
-
-## Obama
-
+## Olivia Rodrigo
 ## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
 
 *Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
-## Obama
+
+## Olivia Rodrigo
+## Olivia Rodrigo
+
 
 ## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
 
 
-## Obama
+
+
+## Olivia Rodrigo
+## Olivia Rodrigo
+
 
 ## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
 
 And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
 
 *Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
+
+
+## Obama
+## Obama
+
+
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
+
+
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
+
+
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
+
+
+
+
+## Obama
+## Obama
+
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+
+
+## Obama
+## Obama
+
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
+
+
 
 
 ## Nicki Minaj
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## Nicki Minaj
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
 ## Nicki Minaj
@@ -4083,6 +4884,24 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Nicki Minaj
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## Nicki Minaj
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## Nicki Minaj
@@ -4096,20 +4915,11 @@ And just like that, AURALEE is back with fresh New Balances.The brand presented 
 
 ## MrBeast
 
-## [Juntae Kim's Salomons Are Peak Tech Sneaker Couture](https://www.highsnobiety.com/p/juntae-kim-salomon-shoes-collab/)
+## [Pharrell Louis Vuitton-ified Apple's AirTags](https://www.highsnobiety.com/p/louis-vuitton-apple-airtag-collaboration-airtag/)
 
-Juntae Kim’s Salomon sneakers are perhaps the most stunning designer takes on my favorite techy trail shoes yet.The Seoul-based designer unveiled his captivati…
+The mystery of Louis Vuitton's possible Apple collaboration has been solved — at least partially.ICYMI: On June 14, Pharrell posted a clip of what appeared to …
 
-*Published on: Tue, 18 Jun 2024 09:00:51 GMT*
-
-
-## MrBeast
-
-## [Woven Boat Shoes? END.  Timberland Devise Dapper Summer Shoes](https://www.highsnobiety.com/p/end-timberland-3-eye-boat-shoe/)
-
-The boat shoe's redemption arc has been monumental. I’d have turned my nose up at any mention of the preppy moccasin five years ago, haunted by pictures of fra…
-
-*Published on: Tue, 18 Jun 2024 09:27:18 GMT*
+*Published on: Tue, 18 Jun 2024 16:44:52 GMT*
 
 
 ## MrBeast
@@ -4128,6 +4938,24 @@ The mystery of Louis Vuitton's possible Apple collaboration has been solved — 
 If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
 
 *Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## MrBeast
+
+## [It's Louis Vuitton to the World](https://www.highsnobiety.com/p/louis-vuitton-ss25-mens/)
+
+If we’ve learned anything from Pharrell’s fashion shows as the creative director of Louis Vuitton Menswear, it’s that the musician-turned-designer knows how to…
+
+*Published on: Tue, 18 Jun 2024 19:50:00 GMT*
+
+
+## MrBeast
+
+## [AURALEE Made Forgotten New Balances Quietly Stylish Again](https://www.highsnobiety.com/p/auralee-new-balance-sneakers-ss25/)
+
+And just like that, AURALEE is back with fresh New Balances.The brand presented its Spring/Summer 2025 collection during Paris Fashion Week's kickoff, setting …
+
+*Published on: Tue, 18 Jun 2024 21:22:04 GMT*
 
 
 ## MrBeast
