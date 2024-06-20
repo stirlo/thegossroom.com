@@ -44,6 +44,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Tim Cook
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Tim Cook
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Tim Cook
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Tim Cook
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Taylor Swift
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -87,6 +123,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Taylor Swift
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Taylor Swift
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Taylor Swift
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Taylor Swift
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Tom Brady
@@ -134,6 +206,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Tom Brady
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Tom Brady
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Tom Brady
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Tom Brady
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Tina Fey
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -177,6 +285,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Tina Fey
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Tina Fey
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Tina Fey
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Tina Fey
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Steven Yuen
@@ -224,6 +368,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Steven Yuen
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Steven Yuen
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Steven Yuen
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Steven Yuen
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Sommer Ray
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -267,6 +447,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Sommer Ray
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sommer Ray
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sommer Ray
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sommer Ray
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Sza
@@ -314,6 +530,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Sza
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sza
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sza
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sza
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Sydney Sweeney
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -357,6 +609,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Sydney Sweeney
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sydney Sweeney
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sydney Sweeney
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sydney Sweeney
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Walton Goggins
@@ -404,6 +692,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Walton Goggins
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Walton Goggins
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Walton Goggins
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Walton Goggins
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Tom Holland
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -447,6 +771,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Tom Holland
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Tom Holland
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Tom Holland
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Tom Holland
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Gucci Mane
@@ -494,6 +854,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Gucci Mane
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Gucci Mane
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Gucci Mane
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Gucci Mane
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Harry Styles
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -537,6 +933,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Harry Styles
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Harry Styles
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Harry Styles
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Harry Styles
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Jake Paul
@@ -584,6 +1016,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Jake Paul
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jake Paul
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jake Paul
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jake Paul
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Jameela Jamil
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -627,6 +1095,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Jameela Jamil
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jameela Jamil
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jameela Jamil
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jameela Jamil
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Elon Musk
@@ -674,6 +1178,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Elon Musk
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Elon Musk
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Elon Musk
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Elon Musk
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Gabrielle Union
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -717,6 +1257,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Gabrielle Union
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Gabrielle Union
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Gabrielle Union
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Gabrielle Union
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -764,6 +1340,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Giancarlo Esposito
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Giancarlo Esposito
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Giancarlo Esposito
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Giancarlo Esposito
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Gillian Jacobs
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -807,6 +1419,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Gillian Jacobs
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Gillian Jacobs
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Gillian Jacobs
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Gillian Jacobs
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -854,6 +1502,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Jason Mantzoukas
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jason Mantzoukas
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jason Mantzoukas
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jason Mantzoukas
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## JB Smoove
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -897,6 +1581,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## JB Smoove
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## JB Smoove
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## JB Smoove
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## JB Smoove
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Madison Pettis
@@ -944,6 +1664,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Madison Pettis
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Madison Pettis
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Madison Pettis
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Madison Pettis
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Austin Butler
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -987,6 +1743,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Austin Butler
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Austin Butler
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Austin Butler
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Austin Butler
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1034,6 +1826,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Mark Zuckerberg
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Mark Zuckerberg
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Mark Zuckerberg
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Mark Zuckerberg
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Ariana Grande
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1077,6 +1905,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Ariana Grande
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Ariana Grande
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Ariana Grande
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Ariana Grande
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Livvy Dunne
@@ -1124,6 +1988,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Livvy Dunne
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Livvy Dunne
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Livvy Dunne
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Livvy Dunne
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Ali Wong
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1167,6 +2067,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Ali Wong
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Ali Wong
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Ali Wong
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Ali Wong
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Lizzo
@@ -1214,6 +2150,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Lizzo
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Lizzo
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Lizzo
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Lizzo
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Alison Brie
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1257,6 +2229,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Alison Brie
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Alison Brie
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Alison Brie
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Alison Brie
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Lil Wayne
@@ -1304,6 +2312,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Lil Wayne
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Lil Wayne
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Lil Wayne
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Lil Wayne
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Adele
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1347,6 +2391,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Adele
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Adele
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Adele
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Adele
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Lindsay Lohan
@@ -1394,6 +2474,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Lindsay Lohan
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Lindsay Lohan
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Lindsay Lohan
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Lindsay Lohan
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Addison Rae
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1437,6 +2553,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Addison Rae
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Addison Rae
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Addison Rae
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Addison Rae
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Latto
@@ -1484,6 +2636,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Latto
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Latto
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Latto
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Latto
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Aaron Paul
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1527,6 +2715,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Aaron Paul
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Aaron Paul
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Aaron Paul
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Aaron Paul
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## LeBron James
@@ -1574,6 +2798,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## LeBron James
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## LeBron James
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## LeBron James
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## LeBron James
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## 50 Cent
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1617,6 +2877,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## 50 Cent
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## 50 Cent
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## 50 Cent
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## 50 Cent
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Kesha
@@ -1664,6 +2960,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Kesha
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kesha
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Kesha
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Kesha
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## 21 Savage
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1707,6 +3039,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## 21 Savage
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## 21 Savage
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## 21 Savage
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## 21 Savage
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Larry David
@@ -1754,6 +3122,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Larry David
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Larry David
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Larry David
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Larry David
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Seth Rogan
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1797,6 +3201,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Seth Rogan
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Seth Rogan
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Seth Rogan
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Seth Rogan
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Simone Biles
@@ -1844,6 +3284,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Simone Biles
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Simone Biles
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Simone Biles
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Simone Biles
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Pete Davidson
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1887,6 +3363,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Pete Davidson
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Pete Davidson
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Pete Davidson
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Pete Davidson
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Prince Harry
@@ -1934,6 +3446,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Prince Harry
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Prince Harry
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Prince Harry
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Prince Harry
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Princess of Wales
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -1977,6 +3525,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Princess of Wales
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Princess of Wales
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Princess of Wales
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Princess of Wales
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Rachel McAdams
@@ -2024,6 +3608,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Rachel McAdams
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Rachel McAdams
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Rachel McAdams
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Rachel McAdams
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Reneé Rapp
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2067,6 +3687,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Reneé Rapp
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Reneé Rapp
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Reneé Rapp
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Reneé Rapp
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Rick Ross
@@ -2114,6 +3770,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Rick Ross
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Rick Ross
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Rick Ross
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Rick Ross
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Sam Ashgari
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2157,6 +3849,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Sam Ashgari
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sam Ashgari
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sam Ashgari
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sam Ashgari
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Sandra Oh
@@ -2204,6 +3932,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Sandra Oh
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sandra Oh
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sandra Oh
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sandra Oh
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Donald Trump
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2247,6 +4011,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Donald Trump
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Donald Trump
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Donald Trump
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Donald Trump
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Diddy
@@ -2294,6 +4094,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Diddy
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Diddy
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Diddy
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Diddy
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## City Girls
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2337,6 +4173,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## City Girls
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## City Girls
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## City Girls
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## City Girls
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Chloe Bailey
@@ -2384,6 +4256,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Chloe Bailey
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Chloe Bailey
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Chloe Bailey
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Chloe Bailey
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Charli D Amelio
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2427,6 +4335,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Charli D Amelio
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Charli D Amelio
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Charli D Amelio
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Charli D Amelio
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Cardi B
@@ -2474,6 +4418,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Cardi B
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Cardi B
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Cardi B
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Cardi B
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Bryan Cranston
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2517,6 +4497,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Bryan Cranston
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bryan Cranston
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bryan Cranston
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bryan Cranston
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Brielle Biermann
@@ -2564,6 +4580,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Brielle Biermann
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Brielle Biermann
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Brielle Biermann
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Brielle Biermann
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Dua Lipa
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2607,6 +4659,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Dua Lipa
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Dua Lipa
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Dua Lipa
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Dua Lipa
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Drake
@@ -2654,6 +4742,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Drake
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Drake
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Drake
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Drake
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Jenner
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2697,6 +4821,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Jenner
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jenner
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jenner
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jenner
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## J. Cole
@@ -2744,6 +4904,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## J. Cole
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## J. Cole
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## J. Cole
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## J. Cole
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2787,6 +4983,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Jerrod Carmichael
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jerrod Carmichael
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jerrod Carmichael
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jerrod Carmichael
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -2834,6 +5066,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Jennifer Lawrence
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jennifer Lawrence
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jennifer Lawrence
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jennifer Lawrence
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Joe Biden
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2877,6 +5145,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Joe Biden
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Joe Biden
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Joe Biden
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Joe Biden
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## J.K. Simmons
@@ -2924,6 +5228,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## J.K. Simmons
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## J.K. Simmons
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## J.K. Simmons
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## J.K. Simmons
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Kamala Harris
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -2967,6 +5307,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Kamala Harris
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kamala Harris
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Kamala Harris
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Kamala Harris
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## John C Reilly
@@ -3014,6 +5390,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## John C Reilly
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## John C Reilly
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## John C Reilly
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## John C Reilly
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Kardashian
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3057,6 +5469,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Kardashian
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kardashian
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Kardashian
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Kardashian
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Kanye
@@ -3104,6 +5552,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Kanye
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kanye
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Kanye
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Kanye
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Zendaya
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3147,6 +5631,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Zendaya
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Zendaya
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Zendaya
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Zendaya
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Will Ferrell
@@ -3194,6 +5714,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Will Ferrell
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Will Ferrell
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Will Ferrell
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Will Ferrell
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Zazie Beetz
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3237,6 +5793,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Zazie Beetz
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Zazie Beetz
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Zazie Beetz
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Zazie Beetz
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Bob Odenkirk
@@ -3284,6 +5876,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Bob Odenkirk
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bob Odenkirk
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bob Odenkirk
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bob Odenkirk
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Brad Pitt
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3327,6 +5955,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Brad Pitt
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Brad Pitt
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Brad Pitt
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Brad Pitt
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Beyoncé
@@ -3374,6 +6038,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Beyoncé
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Beyoncé
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Beyoncé
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Beyoncé
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Bia
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3417,6 +6117,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Bia
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bia
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bia
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bia
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Avantika
@@ -3464,6 +6200,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Avantika
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Avantika
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Avantika
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Avantika
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Bernie Sanders
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3507,6 +6279,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Bernie Sanders
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bernie Sanders
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bernie Sanders
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bernie Sanders
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Big Sean
@@ -3554,6 +6362,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Big Sean
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Big Sean
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Big Sean
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Big Sean
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## BlockBoy JB
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3597,6 +6441,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## BlockBoy JB
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## BlockBoy JB
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## BlockBoy JB
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## BlockBoy JB
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Biden
@@ -3644,6 +6524,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Biden
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Biden
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Biden
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Biden
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Bieber
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3687,6 +6603,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Bieber
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bieber
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bieber
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bieber
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Paulina Porizkov
@@ -3734,6 +6686,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Paulina Porizkov
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Paulina Porizkov
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Paulina Porizkov
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Paulina Porizkov
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Paris Hilton
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3777,6 +6765,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Paris Hilton
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Paris Hilton
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Paris Hilton
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Paris Hilton
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Metro Boomin
@@ -3824,6 +6848,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Metro Boomin
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Metro Boomin
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Metro Boomin
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Metro Boomin
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Meghan Markle
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3867,6 +6927,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Meghan Markle
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Meghan Markle
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Meghan Markle
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Meghan Markle
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -3914,6 +7010,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Megan Thee Stallion
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Megan Thee Stallion
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Megan Thee Stallion
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Megan Thee Stallion
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Maya Rudolph
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -3957,6 +7089,42 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Maya Rudolph
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Maya Rudolph
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Maya Rudolph
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Maya Rudolph
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -4004,6 +7172,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Olivia Rodrigo
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Olivia Rodrigo
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Olivia Rodrigo
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Olivia Rodrigo
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Obama
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -4049,6 +7253,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Obama
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Obama
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Obama
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Obama
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## Nicki Minaj
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -4094,6 +7334,42 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
 
 
+## Nicki Minaj
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Nicki Minaj
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Nicki Minaj
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Nicki Minaj
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
 ## MrBeast
 
 ## [NIGO x Nike's Air Force 3 Low Collaboration Goes Hard](https://www.highsnobiety.com/p/nigo-nike-air-force-3-low/)
@@ -4137,5 +7413,41 @@ New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfecti
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## MrBeast
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## MrBeast
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## MrBeast
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## MrBeast
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
