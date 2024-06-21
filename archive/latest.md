@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Tim Cook
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
@@ -71,13 +62,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Tim Cook
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Tim Cook
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Tim Cook
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Tim Cook
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Tim Cook
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Tim Cook
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Taylor Swift
@@ -141,6 +186,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Taylor Swift
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Taylor Swift
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Taylor Swift
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Taylor Swift
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Taylor Swift
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Taylor Swift
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Taylor Swift
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Tom Brady
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Tom Brady
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Tom Brady
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Tom Brady
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Tom Brady
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Tom Brady
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Tom Brady
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Tom Brady
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Tom Brady
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Tom Brady
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Tom Brady
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Tom Brady
@@ -154,74 +361,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Tom Brady
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Tom Brady
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Tom Brady
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Tom Brady
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Tom Brady
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Tom Brady
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Tom Brady
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Tina Fey
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Tina Fey
@@ -287,13 +440,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Tina Fey
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Tina Fey
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Tina Fey
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Tina Fey
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Tina Fey
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Tina Fey
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Steven Yuen
@@ -357,6 +564,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Steven Yuen
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Steven Yuen
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Steven Yuen
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Steven Yuen
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Steven Yuen
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Steven Yuen
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Steven Yuen
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Sommer Ray
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Sommer Ray
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Sommer Ray
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Sommer Ray
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Sommer Ray
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Sommer Ray
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Sommer Ray
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Sommer Ray
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Sommer Ray
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Sommer Ray
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sommer Ray
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Sommer Ray
@@ -370,74 +739,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Sommer Ray
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Sommer Ray
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Sommer Ray
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Sommer Ray
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Sommer Ray
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Sommer Ray
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Sommer Ray
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Sza
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Sza
@@ -503,13 +818,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Sza
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Sza
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sza
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Sza
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sza
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sza
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Sydney Sweeney
@@ -573,6 +942,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Sydney Sweeney
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Sydney Sweeney
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Sydney Sweeney
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sydney Sweeney
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Sydney Sweeney
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sydney Sweeney
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sydney Sweeney
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Walton Goggins
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Walton Goggins
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Walton Goggins
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Walton Goggins
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Walton Goggins
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Walton Goggins
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Walton Goggins
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Walton Goggins
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Walton Goggins
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Walton Goggins
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Walton Goggins
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Walton Goggins
@@ -586,74 +1117,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Walton Goggins
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Walton Goggins
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Walton Goggins
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Walton Goggins
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Walton Goggins
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Walton Goggins
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Walton Goggins
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Tom Holland
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Tom Holland
@@ -719,13 +1196,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Tom Holland
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Tom Holland
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Tom Holland
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Tom Holland
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Tom Holland
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Tom Holland
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Gucci Mane
@@ -789,6 +1320,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Gucci Mane
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Gucci Mane
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Gucci Mane
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Gucci Mane
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Gucci Mane
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Gucci Mane
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Gucci Mane
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Harry Styles
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Harry Styles
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Harry Styles
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Harry Styles
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Harry Styles
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Harry Styles
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Harry Styles
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Harry Styles
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Harry Styles
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Harry Styles
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Harry Styles
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Harry Styles
@@ -802,74 +1495,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Harry Styles
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Harry Styles
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Harry Styles
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Harry Styles
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Harry Styles
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Harry Styles
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Harry Styles
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Jake Paul
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Jake Paul
@@ -935,13 +1574,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Jake Paul
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Jake Paul
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jake Paul
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Jake Paul
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jake Paul
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jake Paul
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Jameela Jamil
@@ -1005,6 +1698,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Jameela Jamil
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Jameela Jamil
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Jameela Jamil
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jameela Jamil
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Jameela Jamil
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jameela Jamil
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jameela Jamil
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Elon Musk
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Elon Musk
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Elon Musk
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Elon Musk
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Elon Musk
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Elon Musk
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Elon Musk
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Elon Musk
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Elon Musk
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Elon Musk
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Elon Musk
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Elon Musk
@@ -1018,74 +1873,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Elon Musk
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Elon Musk
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Elon Musk
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Elon Musk
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Elon Musk
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Elon Musk
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Elon Musk
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Gabrielle Union
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Gabrielle Union
@@ -1151,13 +1952,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Gabrielle Union
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Gabrielle Union
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Gabrielle Union
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Gabrielle Union
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Gabrielle Union
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Gabrielle Union
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Giancarlo Esposito
@@ -1221,6 +2076,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Giancarlo Esposito
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Giancarlo Esposito
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Giancarlo Esposito
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Giancarlo Esposito
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Giancarlo Esposito
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Giancarlo Esposito
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Giancarlo Esposito
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Gillian Jacobs
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Gillian Jacobs
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Gillian Jacobs
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Gillian Jacobs
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Gillian Jacobs
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Gillian Jacobs
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Gillian Jacobs
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Gillian Jacobs
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Gillian Jacobs
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Gillian Jacobs
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Gillian Jacobs
@@ -1234,74 +2251,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Gillian Jacobs
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Gillian Jacobs
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Gillian Jacobs
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Gillian Jacobs
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Gillian Jacobs
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Gillian Jacobs
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Jason Mantzoukas
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Jason Mantzoukas
@@ -1367,13 +2330,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Jason Mantzoukas
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Jason Mantzoukas
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jason Mantzoukas
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Jason Mantzoukas
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jason Mantzoukas
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jason Mantzoukas
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## JB Smoove
@@ -1437,6 +2454,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## JB Smoove
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## JB Smoove
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## JB Smoove
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## JB Smoove
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## JB Smoove
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## JB Smoove
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## JB Smoove
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Madison Pettis
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Madison Pettis
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Madison Pettis
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Madison Pettis
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Madison Pettis
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Madison Pettis
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Madison Pettis
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Madison Pettis
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Madison Pettis
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Madison Pettis
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Madison Pettis
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Madison Pettis
@@ -1450,74 +2629,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Madison Pettis
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Madison Pettis
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Madison Pettis
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Madison Pettis
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Madison Pettis
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Madison Pettis
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Madison Pettis
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Austin Butler
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Austin Butler
@@ -1583,13 +2708,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Austin Butler
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Austin Butler
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Austin Butler
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Austin Butler
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Austin Butler
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Austin Butler
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Mark Zuckerberg
@@ -1653,6 +2832,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Mark Zuckerberg
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Mark Zuckerberg
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Mark Zuckerberg
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Mark Zuckerberg
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Mark Zuckerberg
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Mark Zuckerberg
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Mark Zuckerberg
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Ariana Grande
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Ariana Grande
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Ariana Grande
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Ariana Grande
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Ariana Grande
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Ariana Grande
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Ariana Grande
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Ariana Grande
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Ariana Grande
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Ariana Grande
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Ariana Grande
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Ariana Grande
@@ -1666,74 +3007,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Ariana Grande
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Ariana Grande
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Ariana Grande
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Ariana Grande
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Ariana Grande
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Ariana Grande
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Ariana Grande
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Livvy Dunne
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Livvy Dunne
@@ -1799,13 +3086,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Livvy Dunne
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Livvy Dunne
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Livvy Dunne
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Livvy Dunne
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Livvy Dunne
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Livvy Dunne
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Ali Wong
@@ -1869,6 +3210,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Ali Wong
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Ali Wong
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Ali Wong
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Ali Wong
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Ali Wong
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Ali Wong
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Ali Wong
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Lizzo
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Lizzo
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Lizzo
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Lizzo
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Lizzo
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Lizzo
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Lizzo
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Lizzo
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Lizzo
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Lizzo
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Lizzo
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Lizzo
@@ -1882,74 +3385,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Lizzo
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Lizzo
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Lizzo
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Lizzo
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Lizzo
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Lizzo
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Lizzo
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Alison Brie
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Alison Brie
@@ -2015,13 +3464,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Alison Brie
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Alison Brie
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Alison Brie
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Alison Brie
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Alison Brie
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Alison Brie
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Lil Wayne
@@ -2085,6 +3588,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Lil Wayne
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Lil Wayne
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Lil Wayne
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Lil Wayne
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Lil Wayne
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Lil Wayne
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Lil Wayne
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Adele
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Adele
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Adele
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Adele
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Adele
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Adele
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Adele
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Adele
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Adele
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Adele
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Adele
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Adele
@@ -2098,74 +3763,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Adele
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Adele
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Adele
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Adele
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Adele
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Adele
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Adele
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Lindsay Lohan
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Lindsay Lohan
@@ -2231,13 +3842,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Lindsay Lohan
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Lindsay Lohan
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Lindsay Lohan
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Lindsay Lohan
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Lindsay Lohan
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Lindsay Lohan
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Addison Rae
@@ -2301,6 +3966,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Addison Rae
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Addison Rae
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Addison Rae
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Addison Rae
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Addison Rae
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Addison Rae
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Addison Rae
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Latto
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Latto
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Latto
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Latto
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Latto
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Latto
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Latto
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Latto
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Latto
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Latto
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Latto
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Latto
@@ -2314,74 +4141,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Latto
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Latto
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Latto
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Latto
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Latto
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Latto
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Latto
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Aaron Paul
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Aaron Paul
@@ -2447,13 +4220,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Aaron Paul
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Aaron Paul
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Aaron Paul
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Aaron Paul
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Aaron Paul
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Aaron Paul
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## LeBron James
@@ -2517,6 +4344,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## LeBron James
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## LeBron James
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## LeBron James
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## LeBron James
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## LeBron James
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## LeBron James
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## LeBron James
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## 50 Cent
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## 50 Cent
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## 50 Cent
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## 50 Cent
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## 50 Cent
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## 50 Cent
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## 50 Cent
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## 50 Cent
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## 50 Cent
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## 50 Cent
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## 50 Cent
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## 50 Cent
@@ -2530,74 +4519,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## 50 Cent
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## 50 Cent
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## 50 Cent
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## 50 Cent
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## 50 Cent
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## 50 Cent
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## 50 Cent
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Kesha
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Kesha
@@ -2663,13 +4598,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Kesha
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Kesha
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kesha
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Kesha
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Kesha
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Kesha
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## 21 Savage
@@ -2733,6 +4722,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## 21 Savage
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## 21 Savage
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## 21 Savage
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## 21 Savage
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## 21 Savage
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## 21 Savage
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## 21 Savage
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Larry David
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Larry David
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Larry David
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Larry David
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Larry David
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Larry David
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Larry David
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Larry David
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Larry David
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Larry David
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Larry David
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Larry David
@@ -2746,74 +4897,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Larry David
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Larry David
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Larry David
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Larry David
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Larry David
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Larry David
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Larry David
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Seth Rogan
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Seth Rogan
@@ -2879,13 +4976,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Seth Rogan
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Seth Rogan
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Seth Rogan
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Seth Rogan
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Seth Rogan
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Seth Rogan
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Simone Biles
@@ -2949,6 +5100,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Simone Biles
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Simone Biles
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Simone Biles
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Simone Biles
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Simone Biles
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Simone Biles
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Simone Biles
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Pete Davidson
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Pete Davidson
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Pete Davidson
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Pete Davidson
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Pete Davidson
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Pete Davidson
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Pete Davidson
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Pete Davidson
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Pete Davidson
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Pete Davidson
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Pete Davidson
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Pete Davidson
@@ -2962,74 +5275,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Pete Davidson
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Pete Davidson
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Pete Davidson
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Pete Davidson
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Pete Davidson
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Pete Davidson
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Pete Davidson
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Prince Harry
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Prince Harry
@@ -3095,13 +5354,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Prince Harry
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Prince Harry
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Prince Harry
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Prince Harry
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Prince Harry
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Prince Harry
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Princess of Wales
@@ -3165,6 +5478,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Princess of Wales
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Princess of Wales
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Princess of Wales
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Princess of Wales
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Princess of Wales
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Princess of Wales
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Princess of Wales
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Rachel McAdams
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Rachel McAdams
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Rachel McAdams
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Rachel McAdams
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Rachel McAdams
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Rachel McAdams
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Rachel McAdams
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Rachel McAdams
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Rachel McAdams
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Rachel McAdams
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Rachel McAdams
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Rachel McAdams
@@ -3178,74 +5653,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Rachel McAdams
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Rachel McAdams
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Rachel McAdams
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Rachel McAdams
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Rachel McAdams
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Rachel McAdams
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Rachel McAdams
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Reneé Rapp
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Reneé Rapp
@@ -3311,13 +5732,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Reneé Rapp
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Reneé Rapp
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Reneé Rapp
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Reneé Rapp
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Reneé Rapp
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Reneé Rapp
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Rick Ross
@@ -3381,6 +5856,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Rick Ross
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Rick Ross
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Rick Ross
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Rick Ross
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Rick Ross
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Rick Ross
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Rick Ross
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Sam Ashgari
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Sam Ashgari
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Sam Ashgari
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Sam Ashgari
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Sam Ashgari
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Sam Ashgari
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Sam Ashgari
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Sam Ashgari
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Sam Ashgari
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Sam Ashgari
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sam Ashgari
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Sam Ashgari
@@ -3394,74 +6031,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Sam Ashgari
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Sam Ashgari
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Sam Ashgari
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Sam Ashgari
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Sam Ashgari
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Sam Ashgari
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Sam Ashgari
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Sandra Oh
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Sandra Oh
@@ -3527,13 +6110,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Sandra Oh
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Sandra Oh
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sandra Oh
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Sandra Oh
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sandra Oh
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sandra Oh
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Donald Trump
@@ -3597,6 +6234,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Donald Trump
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Donald Trump
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Donald Trump
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Donald Trump
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Donald Trump
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Donald Trump
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Donald Trump
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Diddy
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Diddy
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Diddy
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Diddy
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Diddy
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Diddy
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Diddy
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Diddy
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Diddy
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Diddy
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Diddy
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Diddy
@@ -3610,74 +6409,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Diddy
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Diddy
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Diddy
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Diddy
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Diddy
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Diddy
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Diddy
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## City Girls
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## City Girls
@@ -3743,13 +6488,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## City Girls
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## City Girls
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## City Girls
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## City Girls
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## City Girls
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## City Girls
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Chloe Bailey
@@ -3813,6 +6612,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Chloe Bailey
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Chloe Bailey
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Chloe Bailey
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Chloe Bailey
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Chloe Bailey
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Chloe Bailey
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Chloe Bailey
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Charli D Amelio
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Charli D Amelio
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Charli D Amelio
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Charli D Amelio
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Charli D Amelio
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Charli D Amelio
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Charli D Amelio
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Charli D Amelio
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Charli D Amelio
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Charli D Amelio
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Charli D Amelio
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Charli D Amelio
@@ -3826,74 +6787,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Charli D Amelio
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Charli D Amelio
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Charli D Amelio
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Charli D Amelio
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Charli D Amelio
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Charli D Amelio
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Charli D Amelio
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Cardi B
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Cardi B
@@ -3959,13 +6866,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Cardi B
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Cardi B
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Cardi B
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Cardi B
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Cardi B
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Cardi B
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Bryan Cranston
@@ -4029,6 +6990,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Bryan Cranston
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Bryan Cranston
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Bryan Cranston
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bryan Cranston
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Bryan Cranston
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bryan Cranston
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bryan Cranston
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Brielle Biermann
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Brielle Biermann
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Brielle Biermann
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Brielle Biermann
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Brielle Biermann
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Brielle Biermann
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Brielle Biermann
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Brielle Biermann
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Brielle Biermann
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Brielle Biermann
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Brielle Biermann
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Brielle Biermann
@@ -4042,74 +7165,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Brielle Biermann
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Brielle Biermann
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Brielle Biermann
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Brielle Biermann
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Brielle Biermann
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Brielle Biermann
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Brielle Biermann
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Dua Lipa
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Dua Lipa
@@ -4175,13 +7244,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Dua Lipa
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Dua Lipa
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Dua Lipa
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Dua Lipa
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Dua Lipa
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Dua Lipa
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Drake
@@ -4245,6 +7368,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Drake
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Drake
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Drake
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Drake
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Drake
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Drake
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Drake
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Jenner
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Jenner
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Jenner
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Jenner
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Jenner
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Jenner
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Jenner
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Jenner
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Jenner
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Jenner
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jenner
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Jenner
@@ -4258,74 +7543,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Jenner
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Jenner
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Jenner
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Jenner
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Jenner
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Jenner
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Jenner
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## J. Cole
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## J. Cole
@@ -4391,13 +7622,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## J. Cole
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## J. Cole
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## J. Cole
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## J. Cole
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## J. Cole
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## J. Cole
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Jerrod Carmichael
@@ -4461,6 +7746,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Jerrod Carmichael
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Jerrod Carmichael
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Jerrod Carmichael
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jerrod Carmichael
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Jerrod Carmichael
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jerrod Carmichael
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jerrod Carmichael
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Jennifer Lawrence
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Jennifer Lawrence
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Jennifer Lawrence
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Jennifer Lawrence
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Jennifer Lawrence
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Jennifer Lawrence
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Jennifer Lawrence
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jennifer Lawrence
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Jennifer Lawrence
@@ -4474,74 +7921,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Jennifer Lawrence
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Jennifer Lawrence
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Jennifer Lawrence
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Jennifer Lawrence
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Jennifer Lawrence
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Joe Biden
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Joe Biden
@@ -4607,13 +8000,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Joe Biden
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Joe Biden
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Joe Biden
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Joe Biden
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Joe Biden
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Joe Biden
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## J.K. Simmons
@@ -4677,6 +8124,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## J.K. Simmons
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## J.K. Simmons
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## J.K. Simmons
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## J.K. Simmons
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## J.K. Simmons
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## J.K. Simmons
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## J.K. Simmons
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Kamala Harris
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Kamala Harris
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Kamala Harris
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Kamala Harris
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Kamala Harris
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Kamala Harris
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Kamala Harris
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Kamala Harris
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Kamala Harris
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Kamala Harris
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kamala Harris
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Kamala Harris
@@ -4690,74 +8299,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Kamala Harris
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Kamala Harris
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Kamala Harris
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Kamala Harris
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Kamala Harris
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Kamala Harris
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Kamala Harris
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## John C Reilly
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## John C Reilly
@@ -4823,13 +8378,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## John C Reilly
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## John C Reilly
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## John C Reilly
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## John C Reilly
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## John C Reilly
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## John C Reilly
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Kardashian
@@ -4893,6 +8502,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Kardashian
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Kardashian
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Kardashian
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kardashian
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Kardashian
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Kardashian
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Kardashian
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Kanye
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Kanye
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Kanye
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Kanye
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Kanye
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Kanye
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Kanye
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Kanye
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Kanye
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Kanye
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kanye
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Kanye
@@ -4906,74 +8677,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Kanye
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Kanye
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Kanye
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Kanye
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Kanye
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Kanye
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Kanye
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Zendaya
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Zendaya
@@ -5039,13 +8756,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Zendaya
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Zendaya
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Zendaya
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Zendaya
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Zendaya
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Zendaya
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Will Ferrell
@@ -5109,6 +8880,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Will Ferrell
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Will Ferrell
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Will Ferrell
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Will Ferrell
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Will Ferrell
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Will Ferrell
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Will Ferrell
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Zazie Beetz
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Zazie Beetz
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Zazie Beetz
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Zazie Beetz
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Zazie Beetz
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Zazie Beetz
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Zazie Beetz
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Zazie Beetz
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Zazie Beetz
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Zazie Beetz
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Zazie Beetz
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Zazie Beetz
@@ -5122,74 +9055,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Zazie Beetz
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Zazie Beetz
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Zazie Beetz
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Zazie Beetz
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Zazie Beetz
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Zazie Beetz
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Zazie Beetz
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Bob Odenkirk
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Bob Odenkirk
@@ -5255,13 +9134,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Bob Odenkirk
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Bob Odenkirk
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bob Odenkirk
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Bob Odenkirk
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bob Odenkirk
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bob Odenkirk
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Brad Pitt
@@ -5325,6 +9258,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Brad Pitt
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Brad Pitt
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Brad Pitt
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Brad Pitt
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Brad Pitt
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Brad Pitt
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Brad Pitt
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Beyoncé
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Beyoncé
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Beyoncé
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Beyoncé
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Beyoncé
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Beyoncé
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Beyoncé
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Beyoncé
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Beyoncé
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Beyoncé
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Beyoncé
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Beyoncé
@@ -5338,74 +9433,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Beyoncé
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Beyoncé
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Beyoncé
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Beyoncé
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Beyoncé
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Beyoncé
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Beyoncé
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Bia
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Bia
@@ -5471,13 +9512,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Avantika
+## Bia
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Bia
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Bia
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bia
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Bia
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bia
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bia
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Avantika
@@ -5541,6 +9636,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Avantika
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Avantika
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Avantika
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Avantika
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Avantika
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Avantika
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Avantika
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Bernie Sanders
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Bernie Sanders
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Bernie Sanders
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Bernie Sanders
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Bernie Sanders
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Bernie Sanders
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Bernie Sanders
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Bernie Sanders
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Bernie Sanders
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Bernie Sanders
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bernie Sanders
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Bernie Sanders
@@ -5554,74 +9811,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Bernie Sanders
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Bernie Sanders
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Bernie Sanders
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Bernie Sanders
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Bernie Sanders
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Bernie Sanders
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Bernie Sanders
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Big Sean
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Big Sean
@@ -5687,13 +9890,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Big Sean
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Big Sean
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Big Sean
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Big Sean
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Big Sean
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Big Sean
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## BlockBoy JB
@@ -5757,6 +10014,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## BlockBoy JB
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## BlockBoy JB
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## BlockBoy JB
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## BlockBoy JB
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## BlockBoy JB
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## BlockBoy JB
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## BlockBoy JB
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Biden
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Biden
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Biden
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Biden
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Biden
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Biden
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Biden
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Biden
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Biden
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Biden
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Biden
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Biden
@@ -5770,74 +10189,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Biden
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Biden
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Biden
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Biden
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Biden
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Biden
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Biden
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Bieber
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Bieber
@@ -5903,13 +10268,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Bieber
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Bieber
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bieber
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Bieber
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bieber
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bieber
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Paulina Porizkov
@@ -5973,6 +10392,168 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Paulina Porizkov
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Paulina Porizkov
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Paulina Porizkov
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Paulina Porizkov
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Paulina Porizkov
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Paulina Porizkov
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Paulina Porizkov
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Paris Hilton
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Paris Hilton
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Paris Hilton
+
+## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+
+Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+
+*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
+
+
+## Paris Hilton
+
+## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
+
+With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
+
+*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
+
+
+## Paris Hilton
+
+## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
+
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+
+*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
+
+
+## Paris Hilton
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
+
+
+## Paris Hilton
+
+## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+
+Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
+
+*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## Paris Hilton
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Paris Hilton
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Paris Hilton
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Paris Hilton
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
 
 
 ## Paris Hilton
@@ -5986,74 +10567,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Paris Hilton
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
-
-
-## Paris Hilton
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
 
 
 ## Paris Hilton
 
-## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
-Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
-*Published on: Fri, 21 Jun 2024 11:01:00 GMT*
-
-
-## Paris Hilton
-
-## [A Low-Rise Jordan Icon Is Back After a Decade](https://www.highsnobiety.com/p/jordan-11-low-bred-sneakers-2025/)
-
-With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the approaching new year just keeps stacking up with tons of fresh sneaker release…
-
-*Published on: Fri, 21 Jun 2024 12:07:00 GMT*
-
-
-## Paris Hilton
-
-## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
-
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
-
-*Published on: Fri, 21 Jun 2024 13:10:48 GMT*
-
-
-## Paris Hilton
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Fri, 21 Jun 2024 13:23:21 GMT*
-
-
-## Paris Hilton
-
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
-
-Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
-
-*Published on: Fri, 21 Jun 2024 13:30:15 GMT*
-
-
-## Metro Boomin
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Metro Boomin
@@ -6119,13 +10646,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Metro Boomin
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Metro Boomin
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Metro Boomin
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Metro Boomin
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Metro Boomin
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Metro Boomin
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Meghan Markle
@@ -6191,13 +10772,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Meghan Markle
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Meghan Markle
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Meghan Markle
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Meghan Markle
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Meghan Markle
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Meghan Markle
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Megan Thee Stallion
@@ -6263,13 +10898,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Megan Thee Stallion
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Megan Thee Stallion
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Megan Thee Stallion
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Megan Thee Stallion
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Megan Thee Stallion
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Megan Thee Stallion
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Maya Rudolph
@@ -6335,13 +11024,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Maya Rudolph
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Maya Rudolph
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Maya Rudolph
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Maya Rudolph
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Maya Rudolph
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Maya Rudolph
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Olivia Rodrigo
@@ -6407,13 +11150,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Obama
+## Olivia Rodrigo
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Olivia Rodrigo
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Olivia Rodrigo
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Olivia Rodrigo
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Olivia Rodrigo
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Olivia Rodrigo
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Olivia Rodrigo
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Obama
@@ -6479,13 +11276,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## Nicki Minaj
+## Obama
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Obama
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Obama
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Obama
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Obama
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Obama
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Obama
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## Nicki Minaj
@@ -6551,13 +11402,67 @@ Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summ
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
 
 
-## MrBeast
+## Nicki Minaj
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## Nicki Minaj
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## Nicki Minaj
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Nicki Minaj
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Nicki Minaj
 
 ## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
 
 Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
 
 *Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Nicki Minaj
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Nicki Minaj
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
 ## MrBeast
@@ -6621,5 +11526,68 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
 *Published on: Fri, 21 Jun 2024 13:30:15 GMT*
+
+
+## MrBeast
+
+## [For SS25, Kim Jones' Dior Skewed Crisply Uncasual](https://www.highsnobiety.com/p/dior-menswear-ss25/)
+
+Kim Jones' Dior Homme has always skewed a little streetwear. Such is the nature of a designer like Jones, whose couture-level craft has always been anchored by…
+
+*Published on: Fri, 21 Jun 2024 15:33:16 GMT*
+
+
+## MrBeast
+
+## [COMME des GARÇONS' SS25 Nike Sneaker Is Dad Shoe AF](https://www.highsnobiety.com/p/cdg-nike-shoe-collab-ss25/)
+
+COMME des GARÇONS and Nike, two great tastes that taste great together. CDG and Nike's sneaker collabs have gone to some pretty wacky places in the past but al…
+
+*Published on: Fri, 21 Jun 2024 16:45:35 GMT*
+
+
+## MrBeast
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## MrBeast
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## MrBeast
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## MrBeast
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## MrBeast
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
 
 
