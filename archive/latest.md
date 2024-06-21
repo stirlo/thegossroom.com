@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Tim Cook
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -71,13 +62,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Taylor Swift
@@ -135,6 +126,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Taylor Swift
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Taylor Swift
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Tom Brady
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Tom Brady
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Tom Brady
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Tom Brady
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Tom Brady
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Tom Brady
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Tom Brady
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -149,79 +212,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Tom Brady
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Tom Brady
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Tom Brady
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Tom Brady
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Tom Brady
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Tom Brady
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Tom Brady
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Tina Fey
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Tina Fey
@@ -287,13 +278,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Steven Yuen
@@ -351,6 +342,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Steven Yuen
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Steven Yuen
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Sommer Ray
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Sommer Ray
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Sommer Ray
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Sommer Ray
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sommer Ray
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sommer Ray
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sommer Ray
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -365,79 +428,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Sommer Ray
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Sommer Ray
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Sommer Ray
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Sommer Ray
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Sommer Ray
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Sommer Ray
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Sommer Ray
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Sza
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Sza
@@ -503,13 +494,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Sydney Sweeney
@@ -567,6 +558,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Sydney Sweeney
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Sydney Sweeney
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Walton Goggins
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Walton Goggins
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Walton Goggins
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Walton Goggins
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Walton Goggins
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Walton Goggins
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Walton Goggins
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -581,79 +644,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Walton Goggins
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Walton Goggins
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Walton Goggins
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Walton Goggins
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Walton Goggins
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Walton Goggins
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Walton Goggins
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Tom Holland
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Tom Holland
@@ -719,13 +710,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Gucci Mane
@@ -783,6 +774,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Gucci Mane
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Gucci Mane
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Harry Styles
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Harry Styles
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Harry Styles
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Harry Styles
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Harry Styles
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Harry Styles
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Harry Styles
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -797,79 +860,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Harry Styles
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Harry Styles
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Harry Styles
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Harry Styles
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Harry Styles
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Harry Styles
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Harry Styles
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Jake Paul
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Jake Paul
@@ -935,13 +926,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Jameela Jamil
@@ -999,6 +990,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Jameela Jamil
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Jameela Jamil
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Elon Musk
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Elon Musk
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Elon Musk
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Elon Musk
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Elon Musk
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Elon Musk
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Elon Musk
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -1013,79 +1076,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Elon Musk
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Elon Musk
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Elon Musk
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Elon Musk
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Elon Musk
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Elon Musk
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Elon Musk
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Gabrielle Union
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Gabrielle Union
@@ -1151,13 +1142,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Giancarlo Esposito
@@ -1215,6 +1206,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Giancarlo Esposito
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Gillian Jacobs
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Gillian Jacobs
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Gillian Jacobs
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Gillian Jacobs
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Gillian Jacobs
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Gillian Jacobs
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Gillian Jacobs
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -1229,79 +1292,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Gillian Jacobs
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Gillian Jacobs
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Gillian Jacobs
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Gillian Jacobs
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Gillian Jacobs
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Gillian Jacobs
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Gillian Jacobs
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Jason Mantzoukas
@@ -1367,13 +1358,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## JB Smoove
@@ -1431,6 +1422,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## JB Smoove
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## JB Smoove
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Madison Pettis
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Madison Pettis
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Madison Pettis
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Madison Pettis
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Madison Pettis
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Madison Pettis
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Madison Pettis
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -1445,79 +1508,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Madison Pettis
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Madison Pettis
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Madison Pettis
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Madison Pettis
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Madison Pettis
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Madison Pettis
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Madison Pettis
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Austin Butler
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Austin Butler
@@ -1583,13 +1574,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Mark Zuckerberg
@@ -1647,6 +1638,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Mark Zuckerberg
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Ariana Grande
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Ariana Grande
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Ariana Grande
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Ariana Grande
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Ariana Grande
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Ariana Grande
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Ariana Grande
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -1661,79 +1724,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Ariana Grande
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Ariana Grande
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Ariana Grande
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Ariana Grande
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Ariana Grande
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Ariana Grande
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Ariana Grande
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Livvy Dunne
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Livvy Dunne
@@ -1799,13 +1790,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Ali Wong
@@ -1863,6 +1854,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Ali Wong
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Ali Wong
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Lizzo
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Lizzo
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Lizzo
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Lizzo
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Lizzo
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Lizzo
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Lizzo
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -1877,79 +1940,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Lizzo
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Lizzo
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Lizzo
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Lizzo
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Lizzo
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Lizzo
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Lizzo
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Alison Brie
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Alison Brie
@@ -2015,13 +2006,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Lil Wayne
@@ -2079,6 +2070,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Lil Wayne
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Lil Wayne
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Adele
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Adele
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Adele
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Adele
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Adele
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Adele
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Adele
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -2093,79 +2156,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Adele
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Adele
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Adele
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Adele
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Adele
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Adele
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Adele
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Lindsay Lohan
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Lindsay Lohan
@@ -2231,13 +2222,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Addison Rae
@@ -2295,6 +2286,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Addison Rae
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Addison Rae
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Latto
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Latto
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Latto
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Latto
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Latto
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Latto
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Latto
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -2309,79 +2372,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Latto
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Latto
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Latto
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Latto
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Latto
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Latto
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Latto
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Aaron Paul
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Aaron Paul
@@ -2447,13 +2438,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## LeBron James
@@ -2511,6 +2502,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## LeBron James
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## LeBron James
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## 50 Cent
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## 50 Cent
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## 50 Cent
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## 50 Cent
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## 50 Cent
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## 50 Cent
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## 50 Cent
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -2525,79 +2588,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## 50 Cent
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## 50 Cent
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## 50 Cent
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## 50 Cent
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## 50 Cent
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## 50 Cent
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## 50 Cent
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Kesha
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Kesha
@@ -2663,13 +2654,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## 21 Savage
@@ -2727,6 +2718,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## 21 Savage
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## 21 Savage
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Larry David
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Larry David
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Larry David
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Larry David
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Larry David
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Larry David
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Larry David
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -2741,79 +2804,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Larry David
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Larry David
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Larry David
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Larry David
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Larry David
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Larry David
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Larry David
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Seth Rogan
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Seth Rogan
@@ -2879,13 +2870,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Simone Biles
@@ -2943,6 +2934,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Simone Biles
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Simone Biles
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Pete Davidson
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Pete Davidson
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Pete Davidson
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Pete Davidson
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Pete Davidson
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Pete Davidson
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Pete Davidson
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -2957,79 +3020,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Pete Davidson
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Pete Davidson
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Pete Davidson
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Pete Davidson
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Pete Davidson
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Pete Davidson
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Pete Davidson
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Prince Harry
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Prince Harry
@@ -3095,13 +3086,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Princess of Wales
@@ -3159,6 +3150,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Princess of Wales
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Princess of Wales
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Rachel McAdams
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Rachel McAdams
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Rachel McAdams
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Rachel McAdams
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Rachel McAdams
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Rachel McAdams
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Rachel McAdams
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -3173,79 +3236,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Rachel McAdams
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Rachel McAdams
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Rachel McAdams
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Rachel McAdams
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Rachel McAdams
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Rachel McAdams
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Rachel McAdams
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Reneé Rapp
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Reneé Rapp
@@ -3311,13 +3302,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Rick Ross
@@ -3375,6 +3366,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Rick Ross
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Rick Ross
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Sam Ashgari
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Sam Ashgari
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Sam Ashgari
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Sam Ashgari
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Sam Ashgari
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Sam Ashgari
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Sam Ashgari
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -3389,79 +3452,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Sam Ashgari
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Sam Ashgari
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Sam Ashgari
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Sam Ashgari
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Sam Ashgari
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Sam Ashgari
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Sam Ashgari
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Sandra Oh
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Sandra Oh
@@ -3527,13 +3518,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Donald Trump
@@ -3591,6 +3582,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Donald Trump
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Donald Trump
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Diddy
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Diddy
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Diddy
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Diddy
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Diddy
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Diddy
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Diddy
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -3605,79 +3668,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Diddy
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Diddy
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Diddy
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Diddy
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Diddy
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Diddy
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Diddy
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## City Girls
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## City Girls
@@ -3743,13 +3734,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Chloe Bailey
@@ -3807,6 +3798,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Chloe Bailey
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Chloe Bailey
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Charli D Amelio
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Charli D Amelio
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Charli D Amelio
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Charli D Amelio
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Charli D Amelio
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Charli D Amelio
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Charli D Amelio
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -3821,79 +3884,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Charli D Amelio
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Charli D Amelio
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Charli D Amelio
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Charli D Amelio
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Charli D Amelio
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Charli D Amelio
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Charli D Amelio
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Cardi B
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Cardi B
@@ -3959,13 +3950,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Bryan Cranston
@@ -4023,6 +4014,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Bryan Cranston
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Bryan Cranston
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Brielle Biermann
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Brielle Biermann
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Brielle Biermann
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Brielle Biermann
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Brielle Biermann
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Brielle Biermann
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Brielle Biermann
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -4037,79 +4100,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Brielle Biermann
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Brielle Biermann
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Brielle Biermann
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Brielle Biermann
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Brielle Biermann
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Brielle Biermann
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Brielle Biermann
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Dua Lipa
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Dua Lipa
@@ -4175,13 +4166,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Drake
@@ -4239,6 +4230,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Drake
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Drake
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Jenner
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Jenner
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Jenner
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Jenner
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jenner
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jenner
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jenner
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -4253,79 +4316,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Jenner
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Jenner
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Jenner
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Jenner
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Jenner
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Jenner
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Jenner
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## J. Cole
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## J. Cole
@@ -4391,13 +4382,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Jerrod Carmichael
@@ -4455,6 +4446,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Jerrod Carmichael
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Jennifer Lawrence
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Jennifer Lawrence
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Jennifer Lawrence
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Jennifer Lawrence
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Jennifer Lawrence
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Jennifer Lawrence
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -4469,79 +4532,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Jennifer Lawrence
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Jennifer Lawrence
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Jennifer Lawrence
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Jennifer Lawrence
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Jennifer Lawrence
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Jennifer Lawrence
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Jennifer Lawrence
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Joe Biden
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Joe Biden
@@ -4607,13 +4598,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## J.K. Simmons
@@ -4671,6 +4662,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## J.K. Simmons
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## J.K. Simmons
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Kamala Harris
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Kamala Harris
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Kamala Harris
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Kamala Harris
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kamala Harris
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Kamala Harris
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Kamala Harris
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -4685,79 +4748,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Kamala Harris
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Kamala Harris
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Kamala Harris
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Kamala Harris
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Kamala Harris
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Kamala Harris
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Kamala Harris
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## John C Reilly
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## John C Reilly
@@ -4823,13 +4814,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Kardashian
@@ -4887,6 +4878,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Kardashian
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Kardashian
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Kanye
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Kanye
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Kanye
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Kanye
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Kanye
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Kanye
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Kanye
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -4901,79 +4964,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Kanye
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Kanye
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Kanye
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Kanye
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Kanye
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Kanye
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Kanye
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Zendaya
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Zendaya
@@ -5039,13 +5030,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Will Ferrell
@@ -5103,6 +5094,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Will Ferrell
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Will Ferrell
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Zazie Beetz
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Zazie Beetz
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Zazie Beetz
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Zazie Beetz
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Zazie Beetz
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Zazie Beetz
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Zazie Beetz
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -5117,79 +5180,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Zazie Beetz
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Zazie Beetz
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Zazie Beetz
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Zazie Beetz
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Zazie Beetz
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Zazie Beetz
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Zazie Beetz
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Bob Odenkirk
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Bob Odenkirk
@@ -5255,13 +5246,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Brad Pitt
@@ -5319,6 +5310,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Brad Pitt
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Brad Pitt
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Beyoncé
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Beyoncé
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Beyoncé
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Beyoncé
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Beyoncé
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Beyoncé
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Beyoncé
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -5333,79 +5396,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Beyoncé
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Beyoncé
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Beyoncé
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Beyoncé
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Beyoncé
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Beyoncé
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Beyoncé
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Bia
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Bia
@@ -5471,13 +5462,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Avantika
+## Bia
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Avantika
@@ -5535,6 +5526,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Avantika
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Avantika
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Bernie Sanders
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Bernie Sanders
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Bernie Sanders
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Bernie Sanders
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Bernie Sanders
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Bernie Sanders
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Bernie Sanders
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -5549,79 +5612,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Bernie Sanders
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Bernie Sanders
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Bernie Sanders
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Bernie Sanders
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Bernie Sanders
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Bernie Sanders
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Bernie Sanders
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Big Sean
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Big Sean
@@ -5687,13 +5678,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## BlockBoy JB
@@ -5751,6 +5742,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## BlockBoy JB
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## BlockBoy JB
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Biden
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Biden
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Biden
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Biden
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Biden
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Biden
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Biden
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -5765,79 +5828,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Biden
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Biden
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Biden
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Biden
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Biden
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Biden
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Biden
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Bieber
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Bieber
@@ -5903,13 +5894,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Paulina Porizkov
@@ -5967,6 +5958,78 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 
 ## Paulina Porizkov
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## Paulina Porizkov
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Paris Hilton
+
+## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
+
+From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
+
+*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
+
+
+## Paris Hilton
+
+## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
+
+New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
+
+*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
+
+
+## Paris Hilton
+
+## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
+
+
+## Paris Hilton
+
+## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
+
+Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
+
+*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
+
+
+## Paris Hilton
+
+## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
+
+Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
+
+*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
+
+
+## Paris Hilton
+
+## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
+
+Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
+
+*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
+
+
+## Paris Hilton
 
 ## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
@@ -5981,79 +6044,7 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
-
-
-## Paris Hilton
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Thu, 20 Jun 2024 10:49:18 GMT*
-
-
-## Paris Hilton
-
-## [Basketcase  New Balance's Sneaker Is off the Chain](https://www.highsnobiety.com/p/basketcase-new-balance-1906a-collaboration/)
-
-New Balance’s 1906a sneaker is a busy design. Covered in deliberate imperfections such as exposed stitching, pieces of fabric left flapping in the wind, and ra…
-
-*Published on: Thu, 20 Jun 2024 11:10:27 GMT*
-
-
-## Paris Hilton
-
-## [From adidas to Salomon, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-3/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 20 Jun 2024 14:33:21 GMT*
-
-
-## Paris Hilton
-
-## [DeuxMoi's Perfume Doesn't Smell Like Celebrity Gossip](https://www.highsnobiety.com/p/deuxmoi-fragrance-perfume/)
-
-Celebrity gossip monger DeuxMoi has landed a buzz-worthy beauty collab. On Thursday, the mystery woman behind the Instagram account — which solicits its follow…
-
-*Published on: Thu, 20 Jun 2024 15:55:24 GMT*
-
-
-## Paris Hilton
-
-## [Pharrell's Phabulously Phat adidas Sneaker Is the Real Deal ](https://www.highsnobiety.com/p/pharrell-adidas-superstar-shoes-2024/)
-
-Every time a new Louis Vuitton presentation rolls around, we tend to get more than just new clothes and accessories by Pharrell Williams. Ahead of his star-stu…
-
-*Published on: Thu, 20 Jun 2024 16:39:26 GMT*
-
-
-## Paris Hilton
-
-## [Feng Chen Wang Unveils UGG-cellent Big Steppers](https://www.highsnobiety.com/p/feng-chen-wang-ugg-spring-2025/)
-
-Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the memo. During yesterday's Spring/Summer 2025 shows, the designer unveiled a new UG…
-
-*Published on: Thu, 20 Jun 2024 17:07:41 GMT*
-
-
-## Paris Hilton
-
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Metro Boomin
-
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
-
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
-
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Metro Boomin
@@ -6119,13 +6110,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Meghan Markle
@@ -6191,13 +6182,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Megan Thee Stallion
@@ -6263,13 +6254,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Maya Rudolph
@@ -6335,13 +6326,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Olivia Rodrigo
@@ -6407,13 +6398,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Obama
@@ -6479,13 +6470,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Nicki Minaj
@@ -6551,13 +6542,13 @@ Moncler is gearing up for the quite the journey. This fall, the brand's Genius p
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## MrBeast
@@ -6621,5 +6612,14 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
 *Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+
+
+## MrBeast
+
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
