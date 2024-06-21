@@ -55,20 +55,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Tim Cook
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Tim Cook
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Taylor Swift
@@ -127,20 +127,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Taylor Swift
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Taylor Swift
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Taylor Swift
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Tom Brady
@@ -199,20 +199,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Tom Brady
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Tom Brady
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Tina Fey
@@ -271,20 +271,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Tina Fey
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Tina Fey
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Tina Fey
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Steven Yuen
@@ -343,20 +343,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Steven Yuen
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Steven Yuen
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Sommer Ray
@@ -415,20 +415,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Sommer Ray
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Sommer Ray
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Sommer Ray
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Sza
@@ -487,20 +487,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Sza
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Sza
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Sydney Sweeney
@@ -559,20 +559,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Sydney Sweeney
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Sydney Sweeney
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Sydney Sweeney
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Walton Goggins
@@ -631,20 +631,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Walton Goggins
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Walton Goggins
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Tom Holland
@@ -703,20 +703,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Tom Holland
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Tom Holland
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Tom Holland
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Gucci Mane
@@ -775,20 +775,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Gucci Mane
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Gucci Mane
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Harry Styles
@@ -847,20 +847,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Harry Styles
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Harry Styles
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Harry Styles
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Jake Paul
@@ -919,20 +919,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Jake Paul
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Jake Paul
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Jameela Jamil
@@ -991,20 +991,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Jameela Jamil
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Jameela Jamil
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Jameela Jamil
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Elon Musk
@@ -1063,20 +1063,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Elon Musk
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Elon Musk
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Gabrielle Union
@@ -1135,20 +1135,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Gabrielle Union
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Gabrielle Union
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Gabrielle Union
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1207,20 +1207,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Giancarlo Esposito
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Giancarlo Esposito
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Gillian Jacobs
@@ -1279,20 +1279,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Gillian Jacobs
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Gillian Jacobs
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Gillian Jacobs
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1351,20 +1351,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Jason Mantzoukas
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Jason Mantzoukas
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## JB Smoove
@@ -1423,20 +1423,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## JB Smoove
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## JB Smoove
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## JB Smoove
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Madison Pettis
@@ -1495,20 +1495,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Madison Pettis
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Madison Pettis
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Austin Butler
@@ -1567,20 +1567,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Austin Butler
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Austin Butler
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Austin Butler
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1639,20 +1639,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Mark Zuckerberg
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Mark Zuckerberg
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Ariana Grande
@@ -1711,20 +1711,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Ariana Grande
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Ariana Grande
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Ariana Grande
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Livvy Dunne
@@ -1783,20 +1783,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Livvy Dunne
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Livvy Dunne
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Ali Wong
@@ -1855,20 +1855,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Ali Wong
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Ali Wong
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Ali Wong
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Lizzo
@@ -1927,20 +1927,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Lizzo
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Lizzo
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Alison Brie
@@ -1999,20 +1999,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Alison Brie
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Alison Brie
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Alison Brie
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Lil Wayne
@@ -2071,20 +2071,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Lil Wayne
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Lil Wayne
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Adele
@@ -2143,20 +2143,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Adele
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Adele
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Lindsay Lohan
@@ -2215,20 +2215,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Lindsay Lohan
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Lindsay Lohan
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Addison Rae
@@ -2287,20 +2287,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Addison Rae
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Addison Rae
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Latto
@@ -2359,20 +2359,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Latto
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Latto
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Aaron Paul
@@ -2431,20 +2431,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Aaron Paul
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Aaron Paul
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## LeBron James
@@ -2503,20 +2503,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## LeBron James
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## LeBron James
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## 50 Cent
@@ -2575,20 +2575,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## 50 Cent
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## 50 Cent
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Kesha
@@ -2647,20 +2647,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Kesha
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Kesha
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## 21 Savage
@@ -2719,20 +2719,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## 21 Savage
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## 21 Savage
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Larry David
@@ -2791,20 +2791,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Larry David
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Larry David
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Seth Rogan
@@ -2863,20 +2863,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Seth Rogan
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Seth Rogan
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Simone Biles
@@ -2935,20 +2935,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Simone Biles
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Simone Biles
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Pete Davidson
@@ -3007,20 +3007,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Pete Davidson
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Pete Davidson
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Prince Harry
@@ -3079,20 +3079,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Prince Harry
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Prince Harry
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Princess of Wales
@@ -3151,20 +3151,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Princess of Wales
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Princess of Wales
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Rachel McAdams
@@ -3223,20 +3223,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Rachel McAdams
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Rachel McAdams
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Reneé Rapp
@@ -3295,20 +3295,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Reneé Rapp
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Reneé Rapp
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Rick Ross
@@ -3367,20 +3367,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Rick Ross
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Rick Ross
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Sam Ashgari
@@ -3439,20 +3439,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Sam Ashgari
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Sam Ashgari
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Sandra Oh
@@ -3511,20 +3511,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Sandra Oh
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Sandra Oh
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Donald Trump
@@ -3583,20 +3583,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Donald Trump
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Donald Trump
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Diddy
@@ -3655,20 +3655,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Diddy
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Diddy
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## City Girls
@@ -3727,20 +3727,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## City Girls
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## City Girls
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Chloe Bailey
@@ -3799,20 +3799,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Chloe Bailey
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Chloe Bailey
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Charli D Amelio
@@ -3871,20 +3871,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Charli D Amelio
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Charli D Amelio
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Cardi B
@@ -3943,20 +3943,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Cardi B
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Cardi B
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Bryan Cranston
@@ -4015,20 +4015,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Bryan Cranston
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Bryan Cranston
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Brielle Biermann
@@ -4087,20 +4087,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Brielle Biermann
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Brielle Biermann
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Dua Lipa
@@ -4159,20 +4159,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Dua Lipa
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Dua Lipa
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Drake
@@ -4231,20 +4231,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Drake
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Drake
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Jenner
@@ -4303,20 +4303,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Jenner
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Jenner
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## J. Cole
@@ -4375,20 +4375,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## J. Cole
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## J. Cole
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -4447,20 +4447,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Jerrod Carmichael
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Jerrod Carmichael
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -4519,20 +4519,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Jennifer Lawrence
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Jennifer Lawrence
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Joe Biden
@@ -4591,20 +4591,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Joe Biden
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Joe Biden
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## J.K. Simmons
@@ -4663,20 +4663,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## J.K. Simmons
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## J.K. Simmons
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Kamala Harris
@@ -4735,20 +4735,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Kamala Harris
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Kamala Harris
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## John C Reilly
@@ -4807,20 +4807,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## John C Reilly
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## John C Reilly
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Kardashian
@@ -4879,20 +4879,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Kardashian
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Kardashian
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Kanye
@@ -4951,20 +4951,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Kanye
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Kanye
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Zendaya
@@ -5023,20 +5023,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Zendaya
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Zendaya
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Will Ferrell
@@ -5095,20 +5095,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Will Ferrell
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Will Ferrell
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Zazie Beetz
@@ -5167,20 +5167,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Zazie Beetz
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Zazie Beetz
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Bob Odenkirk
@@ -5239,20 +5239,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Bob Odenkirk
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Bob Odenkirk
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Brad Pitt
@@ -5311,20 +5311,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Brad Pitt
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Brad Pitt
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Beyoncé
@@ -5383,20 +5383,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Beyoncé
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Beyoncé
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Bia
@@ -5455,20 +5455,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Bia
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Bia
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Avantika
@@ -5527,20 +5527,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Avantika
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Avantika
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Bernie Sanders
@@ -5599,20 +5599,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Bernie Sanders
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Bernie Sanders
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Big Sean
@@ -5671,20 +5671,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Big Sean
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Big Sean
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## BlockBoy JB
@@ -5743,20 +5743,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## BlockBoy JB
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## BlockBoy JB
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Biden
@@ -5815,20 +5815,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Biden
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Biden
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Bieber
@@ -5887,20 +5887,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Bieber
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Bieber
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Paulina Porizkov
@@ -5959,20 +5959,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Paulina Porizkov
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Paulina Porizkov
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Paris Hilton
@@ -6031,20 +6031,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Paris Hilton
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Paris Hilton
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Metro Boomin
@@ -6103,20 +6103,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Metro Boomin
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Metro Boomin
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Meghan Markle
@@ -6175,20 +6175,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Meghan Markle
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Meghan Markle
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -6247,20 +6247,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Megan Thee Stallion
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Megan Thee Stallion
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Maya Rudolph
@@ -6319,20 +6319,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Maya Rudolph
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Maya Rudolph
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -6391,20 +6391,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Olivia Rodrigo
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Olivia Rodrigo
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Obama
@@ -6463,20 +6463,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Obama
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
+*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
 
 
 ## Obama
 
-## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
 
-By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
 
-*Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## Nicki Minaj
@@ -6535,20 +6535,20 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## Nicki Minaj
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## Nicki Minaj
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## Nicki Minaj
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
 ## MrBeast
@@ -6607,19 +6607,19 @@ Paris Fashion Week is all about going big, and Feng Chen Wang clearly got the me
 
 ## MrBeast
 
-## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
-
-Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
-
-*Published on: Thu, 20 Jun 2024 19:10:00 GMT*
-
-
-## MrBeast
-
 ## [The Artisinal Appeal of JiyongKim’s 1-of-1 Clarks](https://www.highsnobiety.com/p/jiyongkim-clarks-collaboration/)
 
 By nature, no two pieces of JiyongKim’s sun-bleached clothes are the same. And his upcoming Clarks collaboration is no different.The LVMH Prize-nominated desig…
 
 *Published on: Fri, 21 Jun 2024 08:41:22 GMT*
+
+
+## MrBeast
+
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
 
 
