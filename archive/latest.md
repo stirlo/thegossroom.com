@@ -55,7 +55,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Tim Cook
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -163,7 +163,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Taylor Swift
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -271,7 +271,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Tom Brady
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -379,7 +379,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Tina Fey
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -487,7 +487,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Steven Yuen
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -595,7 +595,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Sommer Ray
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -703,7 +703,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Sza
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -811,7 +811,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Sydney Sweeney
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -919,7 +919,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Walton Goggins
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1027,7 +1027,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Tom Holland
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1135,7 +1135,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Gucci Mane
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1243,7 +1243,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Harry Styles
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1351,7 +1351,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Jake Paul
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1459,7 +1459,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Jameela Jamil
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1567,7 +1567,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Elon Musk
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1675,7 +1675,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Gabrielle Union
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1783,7 +1783,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Giancarlo Esposito
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1891,7 +1891,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Gillian Jacobs
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -1999,7 +1999,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Jason Mantzoukas
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -2107,7 +2107,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## JB Smoove
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -2215,7 +2215,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Madison Pettis
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -2323,7 +2323,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Austin Butler
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -2431,7 +2431,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Mark Zuckerberg
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -2539,7 +2539,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Ariana Grande
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -2647,7 +2647,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Livvy Dunne
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -2755,7 +2755,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Ali Wong
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -2863,7 +2863,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Lizzo
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -2971,7 +2971,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Alison Brie
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -3079,7 +3079,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Lil Wayne
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -3187,7 +3187,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Adele
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -3295,7 +3295,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Lindsay Lohan
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -3403,7 +3403,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Addison Rae
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -3511,7 +3511,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Latto
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -3619,7 +3619,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Aaron Paul
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -3727,7 +3727,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## LeBron James
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -3835,7 +3835,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## 50 Cent
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -3943,7 +3943,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Kesha
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -4051,7 +4051,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## 21 Savage
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -4159,7 +4159,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Larry David
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -4267,7 +4267,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Seth Rogan
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -4375,7 +4375,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Simone Biles
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -4483,7 +4483,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Pete Davidson
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -4591,7 +4591,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Prince Harry
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -4699,7 +4699,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Princess of Wales
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -4807,7 +4807,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Rachel McAdams
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -4915,7 +4915,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Reneé Rapp
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5023,7 +5023,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Rick Ross
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5131,7 +5131,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Sam Ashgari
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5239,7 +5239,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Sandra Oh
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5347,7 +5347,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Donald Trump
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5455,7 +5455,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Diddy
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5563,7 +5563,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## City Girls
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5671,7 +5671,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Chloe Bailey
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5779,7 +5779,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Charli D Amelio
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5887,7 +5887,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Cardi B
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -5995,7 +5995,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Bryan Cranston
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -6103,7 +6103,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Brielle Biermann
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -6211,7 +6211,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Dua Lipa
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -6319,7 +6319,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Drake
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -6427,7 +6427,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Jenner
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -6535,7 +6535,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## J. Cole
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -6643,7 +6643,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Jerrod Carmichael
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -6751,7 +6751,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Jennifer Lawrence
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -6859,7 +6859,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Joe Biden
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -6967,7 +6967,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## J.K. Simmons
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -7075,7 +7075,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Kamala Harris
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -7183,7 +7183,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## John C Reilly
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -7291,7 +7291,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Kardashian
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -7399,7 +7399,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Kanye
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -7507,7 +7507,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Zendaya
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -7615,7 +7615,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Will Ferrell
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -7723,7 +7723,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Zazie Beetz
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -7831,7 +7831,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Bob Odenkirk
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -7939,7 +7939,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Brad Pitt
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -8047,7 +8047,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Beyoncé
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -8155,7 +8155,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Bia
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -8263,7 +8263,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Avantika
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -8371,7 +8371,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Bernie Sanders
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -8479,7 +8479,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Big Sean
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -8587,7 +8587,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## BlockBoy JB
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -8695,7 +8695,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Biden
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -8803,7 +8803,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Bieber
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -8911,7 +8911,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Paulina Porizkov
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -9019,7 +9019,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Paris Hilton
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -9127,7 +9127,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Metro Boomin
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -9235,7 +9235,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Meghan Markle
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -9343,7 +9343,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Megan Thee Stallion
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -9451,7 +9451,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Maya Rudolph
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -9559,7 +9559,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Olivia Rodrigo
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -9667,7 +9667,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Obama
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -9775,7 +9775,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Nicki Minaj
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
@@ -9883,7 +9883,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## MrBeast
 
-## [Junya Watanabe's Next New Balance Shoe Collab Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
+## [Junya Watanabe's SS23 New Balance Shoe Barely Exists](https://www.highsnobiety.com/p/junya-watanabe-new-balance-ss25/)
 
 Junya Watanabe, man of many collaborations, keeps 'em coming for his Spring/Summer 2025 menswear collection, debuted in Paris on June 21. It's Watanabe's ongoi…
 
