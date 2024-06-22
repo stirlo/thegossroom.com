@@ -1,6 +1,15 @@
 # Latest Stories
 ## Tim Cook
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Tim Cook
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -21,7 +30,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -64,6 +73,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Taylor Swift
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Taylor Swift
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -84,7 +102,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -127,6 +145,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Tom Brady
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Tom Brady
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -147,7 +174,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -190,6 +217,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Tina Fey
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Tina Fey
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -210,7 +246,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -253,6 +289,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Steven Yuen
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Steven Yuen
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -273,7 +318,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -316,6 +361,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Sommer Ray
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Sommer Ray
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -336,7 +390,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -379,6 +433,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Sza
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Sza
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -399,7 +462,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -442,6 +505,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Sydney Sweeney
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Sydney Sweeney
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -462,7 +534,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -505,6 +577,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Walton Goggins
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Walton Goggins
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -525,7 +606,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -568,6 +649,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Tom Holland
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Tom Holland
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -588,7 +678,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -631,6 +721,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Gucci Mane
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Gucci Mane
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -651,7 +750,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -694,6 +793,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Harry Styles
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Harry Styles
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -714,7 +822,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -757,6 +865,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Jake Paul
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Jake Paul
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -777,7 +894,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -820,6 +937,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Jameela Jamil
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Jameela Jamil
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -840,7 +966,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -883,6 +1009,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Elon Musk
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Elon Musk
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -903,7 +1038,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -946,6 +1081,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Gabrielle Union
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Gabrielle Union
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -966,7 +1110,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1009,6 +1153,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Giancarlo Esposito
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Giancarlo Esposito
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1029,7 +1182,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1072,6 +1225,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Gillian Jacobs
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Gillian Jacobs
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1092,7 +1254,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1135,6 +1297,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Jason Mantzoukas
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Jason Mantzoukas
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1155,7 +1326,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1198,6 +1369,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## JB Smoove
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## JB Smoove
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1218,7 +1398,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1261,6 +1441,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Madison Pettis
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Madison Pettis
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1281,7 +1470,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1324,6 +1513,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Austin Butler
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Austin Butler
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1344,7 +1542,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1387,6 +1585,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Mark Zuckerberg
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Mark Zuckerberg
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1407,7 +1614,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1450,6 +1657,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Ariana Grande
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Ariana Grande
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1470,7 +1686,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1513,6 +1729,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Livvy Dunne
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Livvy Dunne
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1533,7 +1758,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1576,6 +1801,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Ali Wong
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Ali Wong
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1596,7 +1830,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1639,6 +1873,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Lizzo
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Lizzo
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1659,7 +1902,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1702,6 +1945,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Alison Brie
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Alison Brie
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1722,7 +1974,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1765,6 +2017,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Lil Wayne
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Lil Wayne
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1785,7 +2046,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1828,6 +2089,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Adele
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Adele
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1848,7 +2118,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1891,6 +2161,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Lindsay Lohan
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Lindsay Lohan
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1911,7 +2190,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -1954,6 +2233,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Addison Rae
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Addison Rae
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -1974,7 +2262,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2017,6 +2305,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Latto
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Latto
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2037,7 +2334,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2080,6 +2377,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Aaron Paul
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Aaron Paul
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2100,7 +2406,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2143,6 +2449,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## LeBron James
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## LeBron James
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2163,7 +2478,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2206,6 +2521,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## 50 Cent
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## 50 Cent
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2226,7 +2550,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2269,6 +2593,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Kesha
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Kesha
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2289,7 +2622,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2332,6 +2665,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## 21 Savage
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## 21 Savage
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2352,7 +2694,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2395,6 +2737,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Larry David
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Larry David
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2415,7 +2766,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2458,6 +2809,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Seth Rogan
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Seth Rogan
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2478,7 +2838,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2521,6 +2881,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Simone Biles
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Simone Biles
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2541,7 +2910,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2584,6 +2953,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Pete Davidson
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Pete Davidson
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2604,7 +2982,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2647,6 +3025,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Prince Harry
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Prince Harry
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2667,7 +3054,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2710,6 +3097,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Princess of Wales
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Princess of Wales
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2730,7 +3126,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2773,6 +3169,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Rachel McAdams
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Rachel McAdams
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2793,7 +3198,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2836,6 +3241,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Reneé Rapp
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Reneé Rapp
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2856,7 +3270,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2899,6 +3313,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Rick Ross
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Rick Ross
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2919,7 +3342,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -2962,6 +3385,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Sam Ashgari
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Sam Ashgari
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -2982,7 +3414,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3025,6 +3457,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Sandra Oh
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Sandra Oh
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3045,7 +3486,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3088,6 +3529,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Donald Trump
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Donald Trump
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3108,7 +3558,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3151,6 +3601,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Diddy
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Diddy
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3171,7 +3630,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3214,6 +3673,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## City Girls
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## City Girls
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3234,7 +3702,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3277,6 +3745,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Chloe Bailey
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Chloe Bailey
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3297,7 +3774,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3340,6 +3817,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Charli D Amelio
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Charli D Amelio
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3360,7 +3846,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3403,6 +3889,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Cardi B
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Cardi B
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3423,7 +3918,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3466,6 +3961,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Bryan Cranston
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Bryan Cranston
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3486,7 +3990,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3529,6 +4033,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Brielle Biermann
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Brielle Biermann
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3549,7 +4062,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3592,6 +4105,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Dua Lipa
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Dua Lipa
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3612,7 +4134,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3655,6 +4177,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Drake
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Drake
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3675,7 +4206,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3718,6 +4249,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Jenner
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Jenner
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3738,7 +4278,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3781,6 +4321,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## J. Cole
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## J. Cole
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3801,7 +4350,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3844,6 +4393,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Jerrod Carmichael
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Jerrod Carmichael
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3864,7 +4422,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3907,6 +4465,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Jennifer Lawrence
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Jennifer Lawrence
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3927,7 +4494,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -3970,6 +4537,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Joe Biden
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Joe Biden
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -3990,7 +4566,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4033,6 +4609,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## J.K. Simmons
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## J.K. Simmons
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4053,7 +4638,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4096,6 +4681,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Kamala Harris
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Kamala Harris
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4116,7 +4710,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4159,6 +4753,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## John C Reilly
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## John C Reilly
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4179,7 +4782,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4222,6 +4825,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Kardashian
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Kardashian
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4242,7 +4854,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4285,6 +4897,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Kanye
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Kanye
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4305,7 +4926,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4348,6 +4969,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Zendaya
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Zendaya
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4368,7 +4998,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4411,6 +5041,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Will Ferrell
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Will Ferrell
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4431,7 +5070,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4474,6 +5113,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Zazie Beetz
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Zazie Beetz
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4494,7 +5142,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4537,6 +5185,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Bob Odenkirk
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Bob Odenkirk
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4557,7 +5214,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4600,6 +5257,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Brad Pitt
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Brad Pitt
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4620,7 +5286,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4663,6 +5329,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Beyoncé
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Beyoncé
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4683,7 +5358,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4726,6 +5401,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Bia
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Bia
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4746,7 +5430,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4789,6 +5473,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Avantika
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Avantika
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4809,7 +5502,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4852,6 +5545,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Bernie Sanders
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Bernie Sanders
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4872,7 +5574,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4915,6 +5617,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Big Sean
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Big Sean
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4935,7 +5646,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -4978,6 +5689,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## BlockBoy JB
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## BlockBoy JB
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -4998,7 +5718,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5041,6 +5761,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Biden
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Biden
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5061,7 +5790,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5104,6 +5833,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Bieber
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Bieber
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5124,7 +5862,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5167,6 +5905,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Paulina Porizkov
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Paulina Porizkov
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5187,7 +5934,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5230,6 +5977,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Paris Hilton
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Paris Hilton
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5250,7 +6006,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5293,6 +6049,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Metro Boomin
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Metro Boomin
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5313,7 +6078,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5356,6 +6121,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Meghan Markle
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Meghan Markle
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5376,7 +6150,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5419,6 +6193,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Megan Thee Stallion
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Megan Thee Stallion
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5439,7 +6222,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5482,6 +6265,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Maya Rudolph
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Maya Rudolph
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5502,7 +6294,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5545,6 +6337,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Olivia Rodrigo
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Olivia Rodrigo
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5565,7 +6366,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5608,6 +6409,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Obama
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Obama
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5628,7 +6438,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5671,6 +6481,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## Nicki Minaj
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## Nicki Minaj
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5691,7 +6510,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
@@ -5734,6 +6553,15 @@ COMME des GARÇONS and Nike's sneaker collabs have gone to some pretty wacky pla
 
 ## MrBeast
 
+## [Buckle Up: Moncler Genius Is Headed to Shanghai](https://www.highsnobiety.com/p/moncler-genius-shanghai/)
+
+Moncler is gearing up for the quite the journey. This fall, the brand's Genius platform — an initiative that invites collaborators to make their mark on Moncle…
+
+*Published on: Fri, 21 Jun 2024 09:30:00 GMT*
+
+
+## MrBeast
+
 ## [The Best Kits of Euro 2024 ](https://www.highsnobiety.com/p/best-football-kits-euro-2024/)
 
 Rejoice for the start of Euro 2024 is finally here.This not only means that the one-month long football extravaganza has finally began, but also that it’s time…
@@ -5754,7 +6582,7 @@ With the Air Jordan 1 and thus the Jordan Brand turning the big 4-0 in 2025, the
 
 ## [Is Lucien Clarke Making DC’s Best-Looking Skate Shoes In a Decade?](https://www.highsnobiety.com/p/lucien-clarke-dc-shoes-the-lucien/)
 
-When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question that was on most people’s minds: can th…
+When Lucien Clarke announced that he was launching a sneaker partnership with DC Shoes last year, we asked the question on most people’s minds: can the stylish…
 
 *Published on: Fri, 21 Jun 2024 13:10:48 GMT*
 
