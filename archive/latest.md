@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
-
-Trophy Room's Jordan 1 Low sneaker collaboration is coming home (again). This time, the brand will release a second colorway of its low-slung Jordan sneaker.In…
-
-*Published on: Mon, 24 Jun 2024 14:33:00 GMT*
-
-
-## Tim Cook
-
 ## [Rombaut Takes PUMA's Slimline Sneakers to the Future](https://www.highsnobiety.com/p/puma-rombaut-collaboration-ss25/)
 
 Rombaut and PUMA were never going to combine to create a conventional, run-of-the-mill sneaker.On one side you have a sportswear label with a long history of c…
@@ -80,7 +71,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Tim Cook
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -161,7 +161,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Taylor Swift
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -242,7 +251,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Tom Brady
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -323,7 +341,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Tina Fey
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -404,7 +431,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Steven Yuen
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -485,7 +521,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Sommer Ray
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -566,7 +611,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Sza
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -647,7 +701,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Sydney Sweeney
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -728,7 +791,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Walton Goggins
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -809,7 +881,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Tom Holland
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -890,7 +971,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Harry Styles
+## Gucci Mane
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Gucci Mane
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -971,7 +1061,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Jake Paul
+## Harry Styles
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Harry Styles
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1052,7 +1151,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Jake Paul
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1133,7 +1241,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Jameela Jamil
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1214,7 +1331,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Elon Musk
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1295,7 +1421,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Gabrielle Union
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1376,7 +1511,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Giancarlo Esposito
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1457,7 +1601,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Gillian Jacobs
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1538,7 +1691,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Jason Mantzoukas
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1619,7 +1781,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Madison Pettis
+## JB Smoove
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## JB Smoove
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1700,7 +1871,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Austin Butler
+## Madison Pettis
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Madison Pettis
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1781,7 +1961,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Austin Butler
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1862,7 +2051,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Mark Zuckerberg
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -1943,7 +2141,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Ariana Grande
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2024,7 +2231,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Livvy Dunne
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2105,7 +2321,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Lizzo
+## Ali Wong
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Ali Wong
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2186,7 +2411,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Alison Brie
+## Lizzo
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Lizzo
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2267,7 +2501,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Alison Brie
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2348,7 +2591,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Adele
+## Lil Wayne
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Lil Wayne
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2429,7 +2681,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Lindsay Lohan
+## Adele
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Adele
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2510,7 +2771,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Lindsay Lohan
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2591,7 +2861,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Latto
+## Addison Rae
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Addison Rae
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2672,7 +2951,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Aaron Paul
+## Latto
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Latto
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2753,7 +3041,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Aaron Paul
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2834,7 +3131,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## 50 Cent
+## LeBron James
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## LeBron James
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2915,7 +3221,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Kesha
+## 50 Cent
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## 50 Cent
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -2996,7 +3311,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Kesha
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3077,7 +3401,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Larry David
+## 21 Savage
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## 21 Savage
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3158,7 +3491,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Seth Rogan
+## Larry David
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Larry David
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3239,7 +3581,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Seth Rogan
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3320,7 +3671,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Pete Davidson
+## Simone Biles
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Simone Biles
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3401,7 +3761,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Prince Harry
+## Pete Davidson
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Pete Davidson
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3482,7 +3851,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Prince Harry
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3563,7 +3941,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Princess of Wales
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3644,7 +4031,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Rachel McAdams
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3725,7 +4121,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Reneé Rapp
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3806,7 +4211,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Rick Ross
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3887,7 +4301,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Sam Ashgari
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -3968,7 +4391,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Sandra Oh
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4049,7 +4481,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Diddy
+## Donald Trump
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Donald Trump
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4130,7 +4571,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## City Girls
+## Diddy
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Diddy
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4211,7 +4661,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## City Girls
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4292,7 +4751,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Chloe Bailey
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4373,7 +4841,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Cardi B
+## Charli D Amelio
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Charli D Amelio
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4454,7 +4931,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Cardi B
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4535,7 +5021,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Bryan Cranston
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4616,7 +5111,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Brielle Biermann
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4697,7 +5201,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Dua Lipa
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4778,7 +5291,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Jenner
+## Drake
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Drake
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4859,7 +5381,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## J. Cole
+## Jenner
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Jenner
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -4940,7 +5471,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## J. Cole
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5021,7 +5561,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Jerrod Carmichael
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5102,7 +5651,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5183,7 +5741,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Joe Biden
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5264,7 +5831,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## J.K. Simmons
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5345,7 +5921,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## John C Reilly
+## Kamala Harris
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Kamala Harris
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5426,7 +6011,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## John C Reilly
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5507,7 +6101,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Kanye
+## Kardashian
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Kardashian
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5588,7 +6191,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Zendaya
+## Kanye
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Kanye
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5669,7 +6281,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Zendaya
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5750,7 +6371,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Will Ferrell
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5831,7 +6461,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Zazie Beetz
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5912,7 +6551,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Bob Odenkirk
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -5993,7 +6641,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Beyoncé
+## Brad Pitt
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Brad Pitt
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6074,7 +6731,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Bia
+## Beyoncé
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Beyoncé
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6155,7 +6821,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Avantika
+## Bia
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Bia
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6236,7 +6911,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Bernie Sanders
+## Avantika
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Avantika
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6317,7 +7001,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Big Sean
+## Bernie Sanders
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Bernie Sanders
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6398,7 +7091,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Big Sean
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6479,7 +7181,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Biden
+## BlockBoy JB
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## BlockBoy JB
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6560,7 +7271,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Bieber
+## Biden
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Biden
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6641,7 +7361,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Bieber
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6722,7 +7451,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Paulina Porizkov
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6803,7 +7541,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Paris Hilton
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6884,7 +7631,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Metro Boomin
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -6965,7 +7721,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Meghan Markle
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -7046,7 +7811,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Megan Thee Stallion
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -7127,7 +7901,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Maya Rudolph
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -7208,7 +7991,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Obama
+## Olivia Rodrigo
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Olivia Rodrigo
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -7289,7 +8081,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## Nicki Minaj
+## Obama
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Obama
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -7370,7 +8171,16 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
 
 
-## MrBeast
+## Nicki Minaj
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## Nicki Minaj
 
 ## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
 
@@ -7449,5 +8259,23 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time (it’s been a whole three years since Comme des Garçons previewed its collabo…
 
 *Published on: Tue, 25 Jun 2024 09:18:52 GMT*
+
+
+## MrBeast
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
+
+
+## MrBeast
+
+## [Trophy Room's Fancy, Low-Slung Jordans Are Coming Home (Again)](https://www.highsnobiety.com/p/trophy-room-jordan-1-low-home-sneakers-2024/)
+
+Trophy Room's Jordan 1 Low sneaker collaboration is coming home (again). This time, the brand will release a second colorway of its low-slung Jordan sneaker.In…
+
+*Published on: Mon, 24 Jun 2024 14:33:00 GMT*
 
 
