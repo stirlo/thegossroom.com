@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Tim Cook
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -41,7 +32,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Tim Cook
@@ -55,6 +46,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Tim Cook
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Tim Cook
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -80,33 +80,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Tim Cook
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Tim Cook
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Taylor Swift
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Taylor Swift
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -140,7 +113,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Taylor Swift
@@ -150,6 +123,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Taylor Swift
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Taylor Swift
@@ -177,33 +159,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Taylor Swift
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Taylor Swift
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Tom Brady
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Tom Brady
@@ -239,7 +194,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Tom Brady
@@ -253,6 +208,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Tom Brady
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Tom Brady
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -278,33 +242,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Tom Brady
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Tom Brady
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Tina Fey
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Tina Fey
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -338,7 +275,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Tina Fey
@@ -348,6 +285,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Tina Fey
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Tina Fey
@@ -375,33 +321,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Tina Fey
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Tina Fey
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Steven Yuen
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Steven Yuen
@@ -437,7 +356,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Steven Yuen
@@ -451,6 +370,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Steven Yuen
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Steven Yuen
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -476,33 +404,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Steven Yuen
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Steven Yuen
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Sommer Ray
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Sommer Ray
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -536,7 +437,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Sommer Ray
@@ -546,6 +447,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Sommer Ray
@@ -573,33 +483,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Sommer Ray
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Sommer Ray
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Sza
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Sza
@@ -635,7 +518,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Sza
@@ -649,6 +532,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Sza
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Sza
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -674,33 +566,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sza
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Sza
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Sydney Sweeney
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Sydney Sweeney
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -734,7 +599,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Sydney Sweeney
@@ -744,6 +609,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Sydney Sweeney
@@ -771,33 +645,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Sydney Sweeney
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Sydney Sweeney
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Walton Goggins
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Walton Goggins
@@ -833,7 +680,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Walton Goggins
@@ -847,6 +694,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Walton Goggins
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Walton Goggins
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -872,33 +728,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Walton Goggins
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Walton Goggins
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Tom Holland
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Tom Holland
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -932,7 +761,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Tom Holland
@@ -942,6 +771,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Tom Holland
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Tom Holland
@@ -969,33 +807,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Tom Holland
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Tom Holland
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Gucci Mane
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Gucci Mane
@@ -1031,7 +842,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Gucci Mane
@@ -1045,6 +856,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Gucci Mane
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Gucci Mane
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -1070,33 +890,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Gucci Mane
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Gucci Mane
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Harry Styles
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Harry Styles
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -1130,7 +923,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Harry Styles
@@ -1140,6 +933,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Harry Styles
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Harry Styles
@@ -1167,33 +969,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Harry Styles
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Harry Styles
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Jake Paul
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Jake Paul
@@ -1229,7 +1004,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Jake Paul
@@ -1243,6 +1018,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Jake Paul
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Jake Paul
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -1268,33 +1052,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Jake Paul
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jake Paul
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Jameela Jamil
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Jameela Jamil
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -1328,7 +1085,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Jameela Jamil
@@ -1338,6 +1095,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Jameela Jamil
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Jameela Jamil
@@ -1365,33 +1131,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Jameela Jamil
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jameela Jamil
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Elon Musk
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Elon Musk
@@ -1427,7 +1166,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Elon Musk
@@ -1441,6 +1180,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Elon Musk
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Elon Musk
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -1466,33 +1214,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Elon Musk
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Elon Musk
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Gabrielle Union
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Gabrielle Union
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -1526,7 +1247,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Gabrielle Union
@@ -1536,6 +1257,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Gabrielle Union
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Gabrielle Union
@@ -1563,33 +1293,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Gabrielle Union
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Gabrielle Union
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Giancarlo Esposito
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Giancarlo Esposito
@@ -1625,7 +1328,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1639,6 +1342,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Giancarlo Esposito
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Giancarlo Esposito
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -1664,33 +1376,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Giancarlo Esposito
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Giancarlo Esposito
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Gillian Jacobs
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Gillian Jacobs
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -1724,7 +1409,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Gillian Jacobs
@@ -1734,6 +1419,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Gillian Jacobs
@@ -1761,33 +1455,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Gillian Jacobs
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Gillian Jacobs
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Jason Mantzoukas
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Jason Mantzoukas
@@ -1823,7 +1490,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1837,6 +1504,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Jason Mantzoukas
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Jason Mantzoukas
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -1862,33 +1538,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Jason Mantzoukas
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jason Mantzoukas
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## JB Smoove
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## JB Smoove
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -1922,7 +1571,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## JB Smoove
@@ -1932,6 +1581,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## JB Smoove
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## JB Smoove
@@ -1959,33 +1617,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## JB Smoove
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## JB Smoove
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Madison Pettis
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Madison Pettis
@@ -2021,7 +1652,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Madison Pettis
@@ -2035,6 +1666,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Madison Pettis
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Madison Pettis
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -2060,33 +1700,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Madison Pettis
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Madison Pettis
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Austin Butler
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Austin Butler
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -2120,7 +1733,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Austin Butler
@@ -2130,6 +1743,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Austin Butler
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Austin Butler
@@ -2157,33 +1779,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Austin Butler
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Austin Butler
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Mark Zuckerberg
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Mark Zuckerberg
@@ -2219,7 +1814,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -2233,6 +1828,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Mark Zuckerberg
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Mark Zuckerberg
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -2258,33 +1862,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Mark Zuckerberg
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Mark Zuckerberg
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Ariana Grande
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Ariana Grande
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -2318,7 +1895,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Ariana Grande
@@ -2328,6 +1905,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Ariana Grande
@@ -2355,33 +1941,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Ariana Grande
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Ariana Grande
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Livvy Dunne
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Livvy Dunne
@@ -2417,7 +1976,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Livvy Dunne
@@ -2431,6 +1990,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Livvy Dunne
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Livvy Dunne
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -2456,33 +2024,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Livvy Dunne
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Livvy Dunne
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Ali Wong
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Ali Wong
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -2516,7 +2057,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Ali Wong
@@ -2526,6 +2067,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Ali Wong
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Ali Wong
@@ -2553,33 +2103,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Ali Wong
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Ali Wong
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Lizzo
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Lizzo
@@ -2615,7 +2138,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Lizzo
@@ -2629,6 +2152,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Lizzo
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Lizzo
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -2654,33 +2186,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Lizzo
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Lizzo
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Alison Brie
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Alison Brie
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -2714,7 +2219,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Alison Brie
@@ -2724,6 +2229,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Alison Brie
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Alison Brie
@@ -2751,33 +2265,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Alison Brie
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Alison Brie
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Lil Wayne
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Lil Wayne
@@ -2813,7 +2300,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Lil Wayne
@@ -2827,6 +2314,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Lil Wayne
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Lil Wayne
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -2852,33 +2348,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Lil Wayne
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Lil Wayne
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Adele
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Adele
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -2912,7 +2381,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Adele
@@ -2922,6 +2391,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Adele
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Adele
@@ -2949,33 +2427,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Adele
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Adele
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Lindsay Lohan
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Lindsay Lohan
@@ -3011,7 +2462,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Lindsay Lohan
@@ -3025,6 +2476,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Lindsay Lohan
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Lindsay Lohan
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -3050,33 +2510,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Lindsay Lohan
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Lindsay Lohan
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Addison Rae
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Addison Rae
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -3110,7 +2543,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Addison Rae
@@ -3120,6 +2553,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Addison Rae
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Addison Rae
@@ -3147,33 +2589,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Addison Rae
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Addison Rae
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Latto
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Latto
@@ -3209,7 +2624,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Latto
@@ -3223,6 +2638,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Latto
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Latto
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -3248,33 +2672,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Latto
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Latto
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Aaron Paul
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Aaron Paul
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -3308,7 +2705,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Aaron Paul
@@ -3318,6 +2715,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Aaron Paul
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Aaron Paul
@@ -3345,33 +2751,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Aaron Paul
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Aaron Paul
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## LeBron James
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## LeBron James
@@ -3407,7 +2786,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## LeBron James
@@ -3421,6 +2800,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## LeBron James
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## LeBron James
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -3446,33 +2834,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## LeBron James
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## LeBron James
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## 50 Cent
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## 50 Cent
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -3506,7 +2867,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## 50 Cent
@@ -3516,6 +2877,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## 50 Cent
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## 50 Cent
@@ -3543,33 +2913,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## 50 Cent
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## 50 Cent
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Kesha
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Kesha
@@ -3605,7 +2948,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Kesha
@@ -3619,6 +2962,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Kesha
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Kesha
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -3644,33 +2996,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Kesha
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Kesha
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## 21 Savage
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## 21 Savage
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -3704,7 +3029,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## 21 Savage
@@ -3714,6 +3039,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## 21 Savage
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## 21 Savage
@@ -3741,33 +3075,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## 21 Savage
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## 21 Savage
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Larry David
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Larry David
@@ -3803,7 +3110,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Larry David
@@ -3817,6 +3124,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Larry David
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Larry David
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -3842,33 +3158,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Larry David
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Larry David
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Seth Rogan
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Seth Rogan
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -3902,7 +3191,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Seth Rogan
@@ -3912,6 +3201,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Seth Rogan
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Seth Rogan
@@ -3939,33 +3237,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Seth Rogan
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Seth Rogan
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Simone Biles
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Simone Biles
@@ -4001,7 +3272,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Simone Biles
@@ -4015,6 +3286,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Simone Biles
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Simone Biles
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -4040,33 +3320,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Simone Biles
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Simone Biles
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Pete Davidson
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Pete Davidson
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -4100,7 +3353,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Pete Davidson
@@ -4110,6 +3363,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Pete Davidson
@@ -4137,33 +3399,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Pete Davidson
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Pete Davidson
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Prince Harry
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Prince Harry
@@ -4199,7 +3434,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Prince Harry
@@ -4213,6 +3448,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Prince Harry
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Prince Harry
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -4238,33 +3482,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Prince Harry
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Prince Harry
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Princess of Wales
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Princess of Wales
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -4298,7 +3515,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Princess of Wales
@@ -4308,6 +3525,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Princess of Wales
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Princess of Wales
@@ -4335,33 +3561,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Princess of Wales
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Princess of Wales
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Rachel McAdams
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Rachel McAdams
@@ -4397,7 +3596,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Rachel McAdams
@@ -4411,6 +3610,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Rachel McAdams
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Rachel McAdams
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -4436,33 +3644,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Rachel McAdams
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Rachel McAdams
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Reneé Rapp
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Reneé Rapp
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -4496,7 +3677,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Reneé Rapp
@@ -4506,6 +3687,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Reneé Rapp
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Reneé Rapp
@@ -4533,33 +3723,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Reneé Rapp
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Reneé Rapp
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Rick Ross
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Rick Ross
@@ -4595,7 +3758,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Rick Ross
@@ -4609,6 +3772,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Rick Ross
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Rick Ross
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -4634,33 +3806,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Rick Ross
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Rick Ross
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Sam Ashgari
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Sam Ashgari
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -4694,7 +3839,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Sam Ashgari
@@ -4704,6 +3849,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Sam Ashgari
@@ -4731,33 +3885,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Sam Ashgari
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Sam Ashgari
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Sandra Oh
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Sandra Oh
@@ -4793,7 +3920,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Sandra Oh
@@ -4807,6 +3934,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Sandra Oh
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Sandra Oh
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -4832,33 +3968,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sandra Oh
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Sandra Oh
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Donald Trump
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Donald Trump
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -4892,7 +4001,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Donald Trump
@@ -4902,6 +4011,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Donald Trump
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Donald Trump
@@ -4929,33 +4047,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Donald Trump
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Donald Trump
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Diddy
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Diddy
@@ -4991,7 +4082,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Diddy
@@ -5005,6 +4096,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Diddy
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Diddy
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -5030,33 +4130,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Diddy
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Diddy
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## City Girls
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## City Girls
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -5090,7 +4163,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## City Girls
@@ -5100,6 +4173,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## City Girls
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## City Girls
@@ -5127,33 +4209,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## City Girls
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## City Girls
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Chloe Bailey
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Chloe Bailey
@@ -5189,7 +4244,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Chloe Bailey
@@ -5203,6 +4258,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Chloe Bailey
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Chloe Bailey
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -5228,33 +4292,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Chloe Bailey
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Chloe Bailey
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Charli D Amelio
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Charli D Amelio
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -5288,7 +4325,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Charli D Amelio
@@ -5298,6 +4335,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Charli D Amelio
@@ -5325,33 +4371,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Charli D Amelio
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Charli D Amelio
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Cardi B
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Cardi B
@@ -5387,7 +4406,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Cardi B
@@ -5401,6 +4420,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Cardi B
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Cardi B
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -5426,33 +4454,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Cardi B
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Cardi B
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Bryan Cranston
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Bryan Cranston
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -5486,7 +4487,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Bryan Cranston
@@ -5496,6 +4497,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Bryan Cranston
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Bryan Cranston
@@ -5523,33 +4533,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Bryan Cranston
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bryan Cranston
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Brielle Biermann
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Brielle Biermann
@@ -5585,7 +4568,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Brielle Biermann
@@ -5599,6 +4582,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Brielle Biermann
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Brielle Biermann
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -5624,33 +4616,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Brielle Biermann
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Brielle Biermann
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Dua Lipa
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Dua Lipa
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -5684,7 +4649,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Dua Lipa
@@ -5694,6 +4659,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Dua Lipa
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Dua Lipa
@@ -5721,33 +4695,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Dua Lipa
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Dua Lipa
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Drake
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Drake
@@ -5783,7 +4730,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Drake
@@ -5797,6 +4744,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Drake
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Drake
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -5822,33 +4778,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Drake
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Drake
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Jenner
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Jenner
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -5882,7 +4811,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Jenner
@@ -5892,6 +4821,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Jenner
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Jenner
@@ -5919,33 +4857,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Jenner
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jenner
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## J. Cole
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## J. Cole
@@ -5981,7 +4892,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## J. Cole
@@ -5995,6 +4906,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## J. Cole
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## J. Cole
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -6020,33 +4940,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## J. Cole
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## J. Cole
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Jerrod Carmichael
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Jerrod Carmichael
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -6080,7 +4973,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -6090,6 +4983,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Jerrod Carmichael
@@ -6117,33 +5019,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Jerrod Carmichael
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jerrod Carmichael
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Jennifer Lawrence
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Jennifer Lawrence
@@ -6179,7 +5054,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -6193,6 +5068,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Jennifer Lawrence
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Jennifer Lawrence
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -6218,33 +5102,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Jennifer Lawrence
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jennifer Lawrence
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Joe Biden
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Joe Biden
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -6278,7 +5135,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Joe Biden
@@ -6288,6 +5145,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Joe Biden
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Joe Biden
@@ -6315,33 +5181,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Joe Biden
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Joe Biden
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## J.K. Simmons
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## J.K. Simmons
@@ -6377,7 +5216,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## J.K. Simmons
@@ -6391,6 +5230,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## J.K. Simmons
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## J.K. Simmons
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -6416,33 +5264,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## J.K. Simmons
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## J.K. Simmons
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Kamala Harris
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Kamala Harris
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -6476,7 +5297,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Kamala Harris
@@ -6486,6 +5307,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Kamala Harris
@@ -6513,33 +5343,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Kamala Harris
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Kamala Harris
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## John C Reilly
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## John C Reilly
@@ -6575,7 +5378,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## John C Reilly
@@ -6589,6 +5392,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## John C Reilly
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## John C Reilly
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -6614,33 +5426,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## John C Reilly
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## John C Reilly
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Kardashian
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Kardashian
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -6674,7 +5459,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Kardashian
@@ -6684,6 +5469,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Kardashian
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Kardashian
@@ -6711,33 +5505,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Kardashian
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Kardashian
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Kanye
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Kanye
@@ -6773,7 +5540,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Kanye
@@ -6787,6 +5554,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Kanye
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Kanye
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -6812,33 +5588,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Kanye
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Kanye
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Zendaya
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Zendaya
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -6872,7 +5621,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Zendaya
@@ -6882,6 +5631,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Zendaya
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Zendaya
@@ -6909,33 +5667,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Zendaya
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Zendaya
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Will Ferrell
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Will Ferrell
@@ -6971,7 +5702,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Will Ferrell
@@ -6985,6 +5716,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Will Ferrell
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Will Ferrell
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -7010,33 +5750,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Will Ferrell
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Will Ferrell
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Zazie Beetz
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Zazie Beetz
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -7070,7 +5783,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Zazie Beetz
@@ -7080,6 +5793,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Zazie Beetz
@@ -7107,33 +5829,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Zazie Beetz
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Zazie Beetz
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Bob Odenkirk
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Bob Odenkirk
@@ -7169,7 +5864,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Bob Odenkirk
@@ -7183,6 +5878,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Bob Odenkirk
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Bob Odenkirk
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -7208,33 +5912,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Bob Odenkirk
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bob Odenkirk
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Brad Pitt
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Brad Pitt
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -7268,7 +5945,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Brad Pitt
@@ -7278,6 +5955,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Brad Pitt
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Brad Pitt
@@ -7305,33 +5991,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Brad Pitt
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Brad Pitt
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Beyoncé
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Beyoncé
@@ -7367,7 +6026,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Beyoncé
@@ -7381,6 +6040,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Beyoncé
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Beyoncé
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -7406,33 +6074,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Beyoncé
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Beyoncé
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Bia
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Bia
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -7466,7 +6107,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Bia
@@ -7476,6 +6117,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Bia
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Bia
@@ -7503,33 +6153,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Bia
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bia
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Avantika
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Avantika
@@ -7565,7 +6188,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Avantika
@@ -7579,6 +6202,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Avantika
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Avantika
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -7604,33 +6236,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Avantika
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Avantika
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Bernie Sanders
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Bernie Sanders
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -7664,7 +6269,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Bernie Sanders
@@ -7674,6 +6279,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Bernie Sanders
@@ -7701,33 +6315,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Bernie Sanders
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bernie Sanders
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Big Sean
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Big Sean
@@ -7763,7 +6350,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Big Sean
@@ -7777,6 +6364,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Big Sean
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Big Sean
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -7802,33 +6398,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Big Sean
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Big Sean
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## BlockBoy JB
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## BlockBoy JB
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -7862,7 +6431,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## BlockBoy JB
@@ -7872,6 +6441,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## BlockBoy JB
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## BlockBoy JB
@@ -7899,33 +6477,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## BlockBoy JB
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## BlockBoy JB
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Biden
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Biden
@@ -7961,7 +6512,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Biden
@@ -7975,6 +6526,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Biden
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Biden
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -8000,33 +6560,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Biden
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Biden
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Bieber
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Bieber
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -8060,7 +6593,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Bieber
@@ -8070,6 +6603,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Bieber
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Bieber
@@ -8097,33 +6639,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Bieber
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bieber
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Paulina Porizkov
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Paulina Porizkov
@@ -8159,7 +6674,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Paulina Porizkov
@@ -8173,6 +6688,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Paulina Porizkov
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Paulina Porizkov
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -8198,33 +6722,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Paulina Porizkov
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Paulina Porizkov
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Paris Hilton
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Paris Hilton
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -8258,7 +6755,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Paris Hilton
@@ -8268,6 +6765,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Paris Hilton
@@ -8295,33 +6801,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Paris Hilton
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Paris Hilton
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Metro Boomin
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Metro Boomin
@@ -8357,7 +6836,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Metro Boomin
@@ -8371,6 +6850,15 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 
 ## Metro Boomin
 
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Metro Boomin
+
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
 At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
@@ -8396,33 +6884,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Metro Boomin
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Metro Boomin
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Meghan Markle
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
 ## Meghan Markle
 
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
@@ -8456,7 +6917,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Meghan Markle
@@ -8466,6 +6927,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Meghan Markle
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Meghan Markle
@@ -8493,33 +6963,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Meghan Markle
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Meghan Markle
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Megan Thee Stallion
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Megan Thee Stallion
@@ -8555,7 +6998,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -8565,6 +7008,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Megan Thee Stallion
@@ -8592,33 +7044,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Megan Thee Stallion
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Megan Thee Stallion
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Maya Rudolph
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Maya Rudolph
@@ -8654,7 +7079,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Maya Rudolph
@@ -8664,6 +7089,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Maya Rudolph
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Maya Rudolph
@@ -8691,33 +7125,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Maya Rudolph
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Maya Rudolph
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Olivia Rodrigo
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Olivia Rodrigo
@@ -8753,7 +7160,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -8763,6 +7170,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Olivia Rodrigo
@@ -8790,33 +7206,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Olivia Rodrigo
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Olivia Rodrigo
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Obama
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Obama
@@ -8852,7 +7241,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Obama
@@ -8862,6 +7251,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Obama
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Obama
@@ -8889,33 +7287,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Obama
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Obama
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## Nicki Minaj
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## Nicki Minaj
@@ -8951,7 +7322,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## Nicki Minaj
@@ -8961,6 +7332,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Nicki Minaj
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## Nicki Minaj
@@ -8988,33 +7368,6 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## Nicki Minaj
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Nicki Minaj
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
-
-
-## MrBeast
-
-## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
-
-From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
-
-*Published on: Tue, 25 Jun 2024 08:01:18 GMT*
 
 
 ## MrBeast
@@ -9050,7 +7403,7 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
-*Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
 
 
 ## MrBeast
@@ -9060,6 +7413,15 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## MrBeast
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
 ## MrBeast
@@ -9087,23 +7449,5 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
-
-
-## MrBeast
-
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## MrBeast
-
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
-
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
-
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
