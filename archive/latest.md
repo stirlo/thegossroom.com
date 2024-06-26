@@ -19,33 +19,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Tim Cook
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Tim Cook
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Tim Cook
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Tim Cook
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -82,6 +55,33 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 
 ## Tim Cook
 
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Tim Cook
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Tim Cook
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Tim Cook
+
 ## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
 
 Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
@@ -105,33 +105,6 @@ Hailey Bieber might be seven months pregnant, but that isn't stopping her from g
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
 *Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Taylor Swift
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Taylor Swift
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Taylor Swift
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
 
 
 ## Taylor Swift
@@ -172,6 +145,33 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 
 ## Taylor Swift
 
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Taylor Swift
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Taylor Swift
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Taylor Swift
+
 ## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
 
 Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
@@ -195,33 +195,6 @@ Hailey Bieber might be seven months pregnant, but that isn't stopping her from g
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
 *Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Tom Brady
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Tom Brady
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Tom Brady
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
 
 
 ## Tom Brady
@@ -262,6 +235,33 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 
 ## Tom Brady
 
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Tom Brady
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Tom Brady
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Tom Brady
+
 ## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
 
 Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
@@ -285,33 +285,6 @@ Hailey Bieber might be seven months pregnant, but that isn't stopping her from g
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
 *Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Tina Fey
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Tina Fey
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Tina Fey
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
 
 
 ## Tina Fey
@@ -352,6 +325,33 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 
 ## Tina Fey
 
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Tina Fey
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Tina Fey
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Tina Fey
+
 ## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
 
 Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
@@ -375,33 +375,6 @@ Hailey Bieber might be seven months pregnant, but that isn't stopping her from g
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
 *Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Steven Yuen
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Steven Yuen
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Steven Yuen
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
 
 
 ## Steven Yuen
@@ -442,6 +415,33 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 
 ## Steven Yuen
 
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Steven Yuen
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Steven Yuen
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Steven Yuen
+
 ## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
 
 Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
@@ -465,33 +465,6 @@ Hailey Bieber might be seven months pregnant, but that isn't stopping her from g
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
 *Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Sommer Ray
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Sommer Ray
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Sommer Ray
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
 
 
 ## Sommer Ray
@@ -532,6 +505,33 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 
 ## Sommer Ray
 
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Sommer Ray
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Sommer Ray
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Sommer Ray
+
 ## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
 
 Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
@@ -555,33 +555,6 @@ Hailey Bieber might be seven months pregnant, but that isn't stopping her from g
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
 *Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Sza
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Sza
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Sza
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
 
 
 ## Sza
@@ -622,6 +595,33 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 
 ## Sza
 
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Sza
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Sza
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Sza
+
 ## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
 
 Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
@@ -645,33 +645,6 @@ Hailey Bieber might be seven months pregnant, but that isn't stopping her from g
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
 *Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Sydney Sweeney
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Sydney Sweeney
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Sydney Sweeney
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
 
 
 ## Sydney Sweeney
@@ -712,6 +685,33 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 
 ## Sydney Sweeney
 
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Sydney Sweeney
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Sydney Sweeney
+
 ## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
 
 Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
@@ -735,33 +735,6 @@ Hailey Bieber might be seven months pregnant, but that isn't stopping her from g
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
 *Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Walton Goggins
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Walton Goggins
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Walton Goggins
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
 
 
 ## Walton Goggins
@@ -802,6 +775,33 @@ Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 
 
 ## Walton Goggins
 
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Walton Goggins
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Walton Goggins
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Walton Goggins
+
 ## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
 
 Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
@@ -825,33 +825,6 @@ Hailey Bieber might be seven months pregnant, but that isn't stopping her from g
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
 
 *Published on: Tue, 25 Jun 2024 08:01:18 GMT*
-
-
-## Tom Holland
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Tom Holland
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Tom Holland
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
 
 
 ## Tom Holland
@@ -888,6 +861,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Tom Holland
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Tom Holland
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Tom Holland
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Tom Holland
@@ -919,33 +919,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Gucci Mane
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Gucci Mane
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Gucci Mane
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Gucci Mane
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -978,6 +951,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Gucci Mane
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Gucci Mane
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Gucci Mane
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Gucci Mane
@@ -1009,33 +1009,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Harry Styles
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Harry Styles
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Harry Styles
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Harry Styles
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1068,6 +1041,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Harry Styles
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Harry Styles
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Harry Styles
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Harry Styles
@@ -1099,33 +1099,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Jake Paul
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Jake Paul
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Jake Paul
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Jake Paul
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1158,6 +1131,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Jake Paul
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Jake Paul
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Jake Paul
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Jake Paul
@@ -1189,33 +1189,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Jameela Jamil
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Jameela Jamil
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Jameela Jamil
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Jameela Jamil
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1248,6 +1221,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Jameela Jamil
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Jameela Jamil
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Jameela Jamil
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Jameela Jamil
@@ -1279,33 +1279,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Elon Musk
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Elon Musk
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Elon Musk
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Elon Musk
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1338,6 +1311,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Elon Musk
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Elon Musk
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Elon Musk
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Elon Musk
@@ -1369,33 +1369,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Gabrielle Union
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Gabrielle Union
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Gabrielle Union
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Gabrielle Union
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1428,6 +1401,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Gabrielle Union
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Gabrielle Union
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Gabrielle Union
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Gabrielle Union
@@ -1459,33 +1459,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Giancarlo Esposito
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Giancarlo Esposito
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Giancarlo Esposito
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1518,6 +1491,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Giancarlo Esposito
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Giancarlo Esposito
@@ -1549,33 +1549,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Gillian Jacobs
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Gillian Jacobs
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Gillian Jacobs
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Gillian Jacobs
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1608,6 +1581,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Gillian Jacobs
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Gillian Jacobs
@@ -1639,33 +1639,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Jason Mantzoukas
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Jason Mantzoukas
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Jason Mantzoukas
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1698,6 +1671,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Jason Mantzoukas
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Jason Mantzoukas
@@ -1729,33 +1729,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## JB Smoove
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## JB Smoove
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## JB Smoove
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## JB Smoove
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1788,6 +1761,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## JB Smoove
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## JB Smoove
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## JB Smoove
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## JB Smoove
@@ -1819,33 +1819,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Madison Pettis
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Madison Pettis
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Madison Pettis
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Madison Pettis
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1878,6 +1851,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Madison Pettis
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Madison Pettis
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Madison Pettis
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Madison Pettis
@@ -1909,33 +1909,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Austin Butler
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Austin Butler
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Austin Butler
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Austin Butler
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -1968,6 +1941,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Austin Butler
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Austin Butler
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Austin Butler
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Austin Butler
@@ -1999,33 +1999,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Mark Zuckerberg
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Mark Zuckerberg
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Mark Zuckerberg
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2058,6 +2031,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Mark Zuckerberg
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Mark Zuckerberg
@@ -2089,33 +2089,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Ariana Grande
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Ariana Grande
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Ariana Grande
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Ariana Grande
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2148,6 +2121,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Ariana Grande
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Ariana Grande
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Ariana Grande
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Ariana Grande
@@ -2179,33 +2179,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Livvy Dunne
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Livvy Dunne
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Livvy Dunne
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Livvy Dunne
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2238,6 +2211,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Livvy Dunne
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Livvy Dunne
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Livvy Dunne
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Livvy Dunne
@@ -2269,33 +2269,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Ali Wong
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Ali Wong
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Ali Wong
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Ali Wong
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2328,6 +2301,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Ali Wong
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Ali Wong
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Ali Wong
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Ali Wong
@@ -2359,33 +2359,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Lizzo
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Lizzo
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Lizzo
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Lizzo
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2418,6 +2391,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Lizzo
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Lizzo
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Lizzo
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Lizzo
@@ -2449,33 +2449,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Alison Brie
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Alison Brie
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Alison Brie
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Alison Brie
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2508,6 +2481,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Alison Brie
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Alison Brie
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Alison Brie
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Alison Brie
@@ -2539,33 +2539,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Lil Wayne
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Lil Wayne
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Lil Wayne
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Lil Wayne
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2598,6 +2571,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Lil Wayne
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Lil Wayne
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Lil Wayne
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Lil Wayne
@@ -2629,33 +2629,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Adele
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Adele
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Adele
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Adele
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2688,6 +2661,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Adele
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Adele
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Adele
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Adele
@@ -2719,33 +2719,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Lindsay Lohan
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Lindsay Lohan
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Lindsay Lohan
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Lindsay Lohan
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2778,6 +2751,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Lindsay Lohan
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Lindsay Lohan
@@ -2809,33 +2809,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Addison Rae
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Addison Rae
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Addison Rae
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Addison Rae
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2868,6 +2841,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Addison Rae
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Addison Rae
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Addison Rae
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Addison Rae
@@ -2899,33 +2899,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Latto
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Latto
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Latto
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Latto
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -2958,6 +2931,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Latto
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Latto
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Latto
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Latto
@@ -2989,33 +2989,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Aaron Paul
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Aaron Paul
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Aaron Paul
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Aaron Paul
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3048,6 +3021,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Aaron Paul
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Aaron Paul
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Aaron Paul
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Aaron Paul
@@ -3079,33 +3079,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## LeBron James
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## LeBron James
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## LeBron James
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## LeBron James
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3138,6 +3111,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## LeBron James
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## LeBron James
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## LeBron James
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## LeBron James
@@ -3169,33 +3169,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## 50 Cent
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## 50 Cent
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## 50 Cent
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## 50 Cent
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3228,6 +3201,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## 50 Cent
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## 50 Cent
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## 50 Cent
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## 50 Cent
@@ -3259,33 +3259,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Kesha
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Kesha
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Kesha
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Kesha
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3318,6 +3291,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Kesha
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Kesha
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Kesha
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Kesha
@@ -3349,33 +3349,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## 21 Savage
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## 21 Savage
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## 21 Savage
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## 21 Savage
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3408,6 +3381,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## 21 Savage
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## 21 Savage
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## 21 Savage
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## 21 Savage
@@ -3439,33 +3439,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Larry David
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Larry David
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Larry David
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Larry David
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3498,6 +3471,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Larry David
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Larry David
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Larry David
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Larry David
@@ -3529,33 +3529,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Seth Rogan
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Seth Rogan
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Seth Rogan
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Seth Rogan
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3588,6 +3561,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Seth Rogan
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Seth Rogan
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Seth Rogan
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Seth Rogan
@@ -3619,33 +3619,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Simone Biles
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Simone Biles
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Simone Biles
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Simone Biles
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3678,6 +3651,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Simone Biles
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Simone Biles
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Simone Biles
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Simone Biles
@@ -3709,33 +3709,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Pete Davidson
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Pete Davidson
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Pete Davidson
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Pete Davidson
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3768,6 +3741,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Pete Davidson
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Pete Davidson
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Pete Davidson
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Pete Davidson
@@ -3799,33 +3799,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Prince Harry
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Prince Harry
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Prince Harry
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Prince Harry
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3858,6 +3831,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Prince Harry
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Prince Harry
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Prince Harry
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Prince Harry
@@ -3889,33 +3889,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Princess of Wales
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Princess of Wales
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Princess of Wales
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Princess of Wales
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -3948,6 +3921,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Princess of Wales
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Princess of Wales
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Princess of Wales
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Princess of Wales
@@ -3979,33 +3979,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Rachel McAdams
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Rachel McAdams
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Rachel McAdams
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Rachel McAdams
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4038,6 +4011,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Rachel McAdams
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Rachel McAdams
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Rachel McAdams
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Rachel McAdams
@@ -4069,33 +4069,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Reneé Rapp
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Reneé Rapp
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Reneé Rapp
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Reneé Rapp
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4128,6 +4101,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Reneé Rapp
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Reneé Rapp
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Reneé Rapp
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Reneé Rapp
@@ -4159,33 +4159,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Rick Ross
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Rick Ross
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Rick Ross
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Rick Ross
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4218,6 +4191,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Rick Ross
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Rick Ross
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Rick Ross
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Rick Ross
@@ -4249,33 +4249,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Sam Ashgari
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Sam Ashgari
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Sam Ashgari
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Sam Ashgari
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4308,6 +4281,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Sam Ashgari
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Sam Ashgari
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Sam Ashgari
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Sam Ashgari
@@ -4339,33 +4339,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Sandra Oh
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Sandra Oh
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Sandra Oh
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Sandra Oh
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4398,6 +4371,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Sandra Oh
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Sandra Oh
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Sandra Oh
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Sandra Oh
@@ -4429,33 +4429,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Donald Trump
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Donald Trump
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Donald Trump
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Donald Trump
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4488,6 +4461,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Donald Trump
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Donald Trump
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Donald Trump
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Donald Trump
@@ -4519,33 +4519,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Diddy
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Diddy
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Diddy
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Diddy
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4578,6 +4551,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Diddy
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Diddy
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Diddy
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Diddy
@@ -4609,33 +4609,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## City Girls
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## City Girls
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## City Girls
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## City Girls
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4668,6 +4641,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## City Girls
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## City Girls
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## City Girls
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## City Girls
@@ -4699,33 +4699,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Chloe Bailey
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Chloe Bailey
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Chloe Bailey
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Chloe Bailey
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4758,6 +4731,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Chloe Bailey
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Chloe Bailey
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Chloe Bailey
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Chloe Bailey
@@ -4789,33 +4789,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Charli D Amelio
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Charli D Amelio
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Charli D Amelio
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Charli D Amelio
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4848,6 +4821,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Charli D Amelio
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Charli D Amelio
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Charli D Amelio
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Charli D Amelio
@@ -4879,33 +4879,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Cardi B
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Cardi B
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Cardi B
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Cardi B
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -4938,6 +4911,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Cardi B
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Cardi B
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Cardi B
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Cardi B
@@ -4969,33 +4969,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Bryan Cranston
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Bryan Cranston
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Bryan Cranston
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Bryan Cranston
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5028,6 +5001,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Bryan Cranston
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Bryan Cranston
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Bryan Cranston
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Bryan Cranston
@@ -5059,33 +5059,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Brielle Biermann
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Brielle Biermann
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Brielle Biermann
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Brielle Biermann
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5118,6 +5091,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Brielle Biermann
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Brielle Biermann
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Brielle Biermann
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Brielle Biermann
@@ -5149,33 +5149,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Dua Lipa
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Dua Lipa
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Dua Lipa
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Dua Lipa
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5208,6 +5181,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Dua Lipa
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Dua Lipa
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Dua Lipa
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Dua Lipa
@@ -5239,33 +5239,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Drake
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Drake
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Drake
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Drake
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5298,6 +5271,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Drake
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Drake
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Drake
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Drake
@@ -5329,33 +5329,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Jenner
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Jenner
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Jenner
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Jenner
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5388,6 +5361,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Jenner
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Jenner
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Jenner
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Jenner
@@ -5419,33 +5419,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## J. Cole
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## J. Cole
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## J. Cole
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## J. Cole
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5478,6 +5451,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## J. Cole
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## J. Cole
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## J. Cole
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## J. Cole
@@ -5509,33 +5509,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Jerrod Carmichael
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Jerrod Carmichael
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Jerrod Carmichael
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5568,6 +5541,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Jerrod Carmichael
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Jerrod Carmichael
@@ -5599,33 +5599,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Jennifer Lawrence
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Jennifer Lawrence
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Jennifer Lawrence
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5658,6 +5631,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Jennifer Lawrence
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Jennifer Lawrence
@@ -5689,33 +5689,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Joe Biden
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Joe Biden
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Joe Biden
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Joe Biden
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5748,6 +5721,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Joe Biden
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Joe Biden
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Joe Biden
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Joe Biden
@@ -5779,33 +5779,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## J.K. Simmons
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## J.K. Simmons
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## J.K. Simmons
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## J.K. Simmons
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5838,6 +5811,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## J.K. Simmons
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## J.K. Simmons
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## J.K. Simmons
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## J.K. Simmons
@@ -5869,33 +5869,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Kamala Harris
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Kamala Harris
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Kamala Harris
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Kamala Harris
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -5928,6 +5901,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Kamala Harris
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Kamala Harris
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Kamala Harris
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Kamala Harris
@@ -5959,33 +5959,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## John C Reilly
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## John C Reilly
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## John C Reilly
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## John C Reilly
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6018,6 +5991,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## John C Reilly
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## John C Reilly
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## John C Reilly
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## John C Reilly
@@ -6049,33 +6049,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Kardashian
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Kardashian
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Kardashian
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Kardashian
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6108,6 +6081,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Kardashian
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Kardashian
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Kardashian
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Kardashian
@@ -6139,33 +6139,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Kanye
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Kanye
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Kanye
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Kanye
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6198,6 +6171,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Kanye
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Kanye
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Kanye
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Kanye
@@ -6229,33 +6229,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Zendaya
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Zendaya
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Zendaya
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Zendaya
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6288,6 +6261,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Zendaya
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Zendaya
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Zendaya
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Zendaya
@@ -6319,33 +6319,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Will Ferrell
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Will Ferrell
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Will Ferrell
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Will Ferrell
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6378,6 +6351,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Will Ferrell
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Will Ferrell
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Will Ferrell
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Will Ferrell
@@ -6409,33 +6409,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Zazie Beetz
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Zazie Beetz
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Zazie Beetz
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Zazie Beetz
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6468,6 +6441,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Zazie Beetz
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Zazie Beetz
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Zazie Beetz
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Zazie Beetz
@@ -6499,33 +6499,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Bob Odenkirk
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Bob Odenkirk
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Bob Odenkirk
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Bob Odenkirk
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6558,6 +6531,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Bob Odenkirk
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Bob Odenkirk
@@ -6589,33 +6589,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Brad Pitt
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Brad Pitt
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Brad Pitt
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Brad Pitt
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6648,6 +6621,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Brad Pitt
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Brad Pitt
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Brad Pitt
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Brad Pitt
@@ -6679,33 +6679,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Beyoncé
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Beyoncé
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Beyoncé
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Beyoncé
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6738,6 +6711,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Beyoncé
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Beyoncé
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Beyoncé
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Beyoncé
@@ -6769,33 +6769,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Bia
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Bia
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Bia
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Bia
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6828,6 +6801,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Bia
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Bia
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Bia
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Bia
@@ -6859,33 +6859,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Avantika
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Avantika
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Avantika
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Avantika
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -6918,6 +6891,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Avantika
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Avantika
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Avantika
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Avantika
@@ -6949,33 +6949,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Bernie Sanders
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Bernie Sanders
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Bernie Sanders
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Bernie Sanders
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7008,6 +6981,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Bernie Sanders
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Bernie Sanders
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Bernie Sanders
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Bernie Sanders
@@ -7039,33 +7039,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Big Sean
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Big Sean
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Big Sean
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Big Sean
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7098,6 +7071,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Big Sean
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Big Sean
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Big Sean
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Big Sean
@@ -7129,33 +7129,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## BlockBoy JB
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## BlockBoy JB
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## BlockBoy JB
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## BlockBoy JB
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7188,6 +7161,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## BlockBoy JB
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## BlockBoy JB
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## BlockBoy JB
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## BlockBoy JB
@@ -7219,33 +7219,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Biden
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Biden
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Biden
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Biden
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7278,6 +7251,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Biden
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Biden
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Biden
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Biden
@@ -7309,33 +7309,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Bieber
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Bieber
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Bieber
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Bieber
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7368,6 +7341,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Bieber
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Bieber
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Bieber
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Bieber
@@ -7399,33 +7399,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Paulina Porizkov
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Paulina Porizkov
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Paulina Porizkov
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Paulina Porizkov
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7458,6 +7431,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Paulina Porizkov
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Paulina Porizkov
@@ -7489,33 +7489,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Paris Hilton
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Paris Hilton
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Paris Hilton
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Paris Hilton
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7548,6 +7521,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Paris Hilton
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Paris Hilton
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Paris Hilton
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Paris Hilton
@@ -7579,33 +7579,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Metro Boomin
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Metro Boomin
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Metro Boomin
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Metro Boomin
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7638,6 +7611,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Metro Boomin
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Metro Boomin
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Metro Boomin
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Metro Boomin
@@ -7669,33 +7669,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Meghan Markle
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Meghan Markle
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Meghan Markle
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Meghan Markle
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7728,6 +7701,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Meghan Markle
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Meghan Markle
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Meghan Markle
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Meghan Markle
@@ -7759,33 +7759,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Megan Thee Stallion
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Megan Thee Stallion
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Megan Thee Stallion
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7818,6 +7791,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Megan Thee Stallion
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Megan Thee Stallion
@@ -7849,33 +7849,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Maya Rudolph
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Maya Rudolph
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Maya Rudolph
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Maya Rudolph
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7908,6 +7881,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Maya Rudolph
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Maya Rudolph
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Maya Rudolph
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Maya Rudolph
@@ -7939,33 +7939,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Olivia Rodrigo
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Olivia Rodrigo
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Olivia Rodrigo
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -7998,6 +7971,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Olivia Rodrigo
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Olivia Rodrigo
@@ -8029,33 +8029,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Obama
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Obama
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Obama
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Obama
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -8088,6 +8061,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Obama
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Obama
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Obama
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Obama
@@ -8119,33 +8119,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## Nicki Minaj
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## Nicki Minaj
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## Nicki Minaj
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## Nicki Minaj
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -8178,6 +8151,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## Nicki Minaj
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## Nicki Minaj
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## Nicki Minaj
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## Nicki Minaj
@@ -8209,33 +8209,6 @@ From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano,
 
 ## MrBeast
 
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Tue, 25 Jun 2024 09:18:52 GMT*
-
-
-## MrBeast
-
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
-
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
-
-*Published on: Tue, 25 Jun 2024 09:29:40 GMT*
-
-
-## MrBeast
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Tue, 25 Jun 2024 11:55:27 GMT*
-
-
-## MrBeast
-
 ## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
 
 Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
@@ -8268,6 +8241,33 @@ You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparat
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
 
 *Published on: Tue, 25 Jun 2024 20:10:00 GMT*
+
+
+## MrBeast
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## MrBeast
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+
+
+## MrBeast
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
 ## MrBeast
