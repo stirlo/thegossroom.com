@@ -57,7 +57,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -147,7 +147,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -237,7 +237,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -327,7 +327,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -417,7 +417,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -507,7 +507,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -597,7 +597,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -687,7 +687,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -777,7 +777,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -867,7 +867,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -957,7 +957,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1047,7 +1047,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1137,7 +1137,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1227,7 +1227,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1317,7 +1317,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1407,7 +1407,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1497,7 +1497,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1587,7 +1587,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1677,7 +1677,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1767,7 +1767,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1857,7 +1857,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -1947,7 +1947,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2037,7 +2037,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2127,7 +2127,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2217,7 +2217,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2307,7 +2307,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2397,7 +2397,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2487,7 +2487,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2577,7 +2577,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2667,7 +2667,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2757,7 +2757,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2847,7 +2847,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -2937,7 +2937,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3027,7 +3027,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3117,7 +3117,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3207,7 +3207,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3297,7 +3297,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3387,7 +3387,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3477,7 +3477,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3567,7 +3567,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3657,7 +3657,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3747,7 +3747,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3837,7 +3837,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -3927,7 +3927,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4017,7 +4017,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4107,7 +4107,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4197,7 +4197,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4287,7 +4287,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4377,7 +4377,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4467,7 +4467,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4557,7 +4557,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4647,7 +4647,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4737,7 +4737,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4827,7 +4827,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -4917,7 +4917,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5007,7 +5007,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5097,7 +5097,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5187,7 +5187,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5277,7 +5277,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5367,7 +5367,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5457,7 +5457,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5547,7 +5547,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5637,7 +5637,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5727,7 +5727,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5817,7 +5817,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5907,7 +5907,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -5997,7 +5997,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6087,7 +6087,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6177,7 +6177,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6267,7 +6267,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6357,7 +6357,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6447,7 +6447,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6537,7 +6537,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6627,7 +6627,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6717,7 +6717,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6807,7 +6807,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6897,7 +6897,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -6987,7 +6987,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7077,7 +7077,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7167,7 +7167,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7257,7 +7257,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7347,7 +7347,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7437,7 +7437,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7527,7 +7527,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7617,7 +7617,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7707,7 +7707,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7797,7 +7797,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7887,7 +7887,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -7977,7 +7977,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -8067,7 +8067,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -8157,7 +8157,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
@@ -8247,7 +8247,7 @@ Named after the children's toy, the Burberry Rocking Horse bag is a nod to the n
 
 ## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
 
-Today, June 25th, marks the day that Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said opportunity, the est…
+Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
 
 *Published on: Tue, 25 Jun 2024 13:00:00 GMT*
 
