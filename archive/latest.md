@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Tim Cook
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -82,20 +73,29 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 
 ## Tim Cook
 
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
 
 Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
 
 *Published on: Tue, 25 Jun 2024 08:00:22 GMT*
+
+
+## Tim Cook
+
+## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+
+Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+
+*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
 ## Taylor Swift
@@ -172,20 +172,29 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 
 ## Taylor Swift
 
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
 ## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
 
 Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
 
 *Published on: Tue, 25 Jun 2024 08:00:22 GMT*
+
+
+## Taylor Swift
+
+## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+
+Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+
+*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
 ## Tom Brady
@@ -262,20 +271,29 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 
 ## Tom Brady
 
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
 
 Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
 
 *Published on: Tue, 25 Jun 2024 08:00:22 GMT*
+
+
+## Tom Brady
+
+## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+
+Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+
+*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
 ## Tina Fey
@@ -352,20 +370,29 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 
 ## Tina Fey
 
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
 
 Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
 
 *Published on: Tue, 25 Jun 2024 08:00:22 GMT*
+
+
+## Tina Fey
+
+## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+
+Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+
+*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
 ## Steven Yuen
@@ -442,20 +469,29 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 
 ## Steven Yuen
 
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
 ## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
 
 Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
 
 *Published on: Tue, 25 Jun 2024 08:00:22 GMT*
+
+
+## Steven Yuen
+
+## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+
+Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+
+*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
 ## Sommer Ray
@@ -532,20 +568,29 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 
 ## Sommer Ray
 
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sza
+## Sommer Ray
 
 ## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
 
 Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
 
 *Published on: Tue, 25 Jun 2024 08:00:22 GMT*
+
+
+## Sommer Ray
+
+## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+
+Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+
+*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
 ## Sza
@@ -622,20 +667,29 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 
 ## Sza
 
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
 
 Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
 
 *Published on: Tue, 25 Jun 2024 08:00:22 GMT*
+
+
+## Sza
+
+## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+
+Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+
+*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
 ## Sydney Sweeney
@@ -712,20 +766,29 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 
 ## Sydney Sweeney
 
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
 ## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
 
 Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
 
 *Published on: Tue, 25 Jun 2024 08:00:22 GMT*
+
+
+## Sydney Sweeney
+
+## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+
+Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+
+*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
 ## Walton Goggins
@@ -802,20 +865,29 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 
 ## Walton Goggins
 
-## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
 
 Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
 
 *Published on: Tue, 25 Jun 2024 08:00:22 GMT*
+
+
+## Walton Goggins
+
+## [Cashing in on the Beautiful Game: Ronaldo's Net Worth Breaks the Bank](https://www.highsnobiety.com/p/cristiano-ronaldo-net-worth/)
+
+Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greatest athletes of all time, leaving an indelible mark on the world of sports and b…
+
+*Published on: Tue, 25 Jun 2024 07:58:01 GMT*
 
 
 ## Tom Holland
@@ -888,6 +960,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Tom Holland
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Tom Holland
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Tom Holland
@@ -901,15 +991,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Gucci Mane
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Gucci Mane
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -978,6 +1059,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Gucci Mane
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Gucci Mane
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Gucci Mane
@@ -991,15 +1090,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Harry Styles
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Harry Styles
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1068,6 +1158,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Harry Styles
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Harry Styles
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Harry Styles
@@ -1081,15 +1189,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Jake Paul
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jake Paul
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1158,6 +1257,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Jake Paul
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Jake Paul
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Jake Paul
@@ -1171,15 +1288,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Jameela Jamil
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jameela Jamil
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1248,6 +1356,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Jameela Jamil
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Jameela Jamil
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Jameela Jamil
@@ -1261,15 +1387,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Elon Musk
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Elon Musk
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1338,6 +1455,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Elon Musk
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Elon Musk
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Elon Musk
@@ -1351,15 +1486,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Gabrielle Union
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Gabrielle Union
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1428,6 +1554,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Gabrielle Union
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Gabrielle Union
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Gabrielle Union
@@ -1441,15 +1585,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Giancarlo Esposito
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Giancarlo Esposito
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1518,6 +1653,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Giancarlo Esposito
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Giancarlo Esposito
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Giancarlo Esposito
@@ -1531,15 +1684,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Gillian Jacobs
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Gillian Jacobs
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1608,6 +1752,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Gillian Jacobs
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Gillian Jacobs
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Gillian Jacobs
@@ -1621,15 +1783,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Jason Mantzoukas
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jason Mantzoukas
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1698,6 +1851,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Jason Mantzoukas
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Jason Mantzoukas
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Jason Mantzoukas
@@ -1711,15 +1882,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## JB Smoove
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## JB Smoove
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1788,6 +1950,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## JB Smoove
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## JB Smoove
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## JB Smoove
@@ -1801,15 +1981,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Madison Pettis
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Madison Pettis
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1878,6 +2049,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Madison Pettis
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Madison Pettis
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Madison Pettis
@@ -1891,15 +2080,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Austin Butler
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Austin Butler
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -1968,6 +2148,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Austin Butler
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Austin Butler
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Austin Butler
@@ -1981,15 +2179,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Mark Zuckerberg
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Mark Zuckerberg
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2058,6 +2247,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Mark Zuckerberg
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Mark Zuckerberg
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Mark Zuckerberg
@@ -2071,15 +2278,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Ariana Grande
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Ariana Grande
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2148,6 +2346,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Ariana Grande
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Ariana Grande
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Ariana Grande
@@ -2161,15 +2377,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Livvy Dunne
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Livvy Dunne
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2238,6 +2445,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Livvy Dunne
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Livvy Dunne
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Livvy Dunne
@@ -2251,15 +2476,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Ali Wong
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Ali Wong
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2328,6 +2544,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Ali Wong
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Ali Wong
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Ali Wong
@@ -2341,15 +2575,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Lizzo
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Lizzo
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2418,6 +2643,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Lizzo
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Lizzo
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Lizzo
@@ -2431,15 +2674,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Alison Brie
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Alison Brie
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2508,6 +2742,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Alison Brie
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Alison Brie
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Alison Brie
@@ -2521,15 +2773,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Lil Wayne
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Lil Wayne
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2598,6 +2841,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Lil Wayne
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Lil Wayne
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Lil Wayne
@@ -2611,15 +2872,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Adele
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Adele
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2688,6 +2940,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Adele
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Adele
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Adele
@@ -2701,15 +2971,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Lindsay Lohan
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Lindsay Lohan
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2778,6 +3039,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Lindsay Lohan
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Lindsay Lohan
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Lindsay Lohan
@@ -2791,15 +3070,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Addison Rae
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Addison Rae
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2868,6 +3138,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Addison Rae
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Addison Rae
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Addison Rae
@@ -2881,15 +3169,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Latto
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Latto
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -2958,6 +3237,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Latto
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Latto
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Latto
@@ -2971,15 +3268,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Aaron Paul
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Aaron Paul
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3048,6 +3336,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Aaron Paul
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Aaron Paul
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Aaron Paul
@@ -3061,15 +3367,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## LeBron James
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## LeBron James
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3138,6 +3435,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## LeBron James
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## LeBron James
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## LeBron James
@@ -3151,15 +3466,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## 50 Cent
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## 50 Cent
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3228,6 +3534,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## 50 Cent
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## 50 Cent
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## 50 Cent
@@ -3241,15 +3565,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Kesha
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Kesha
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3318,6 +3633,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Kesha
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Kesha
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Kesha
@@ -3331,15 +3664,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## 21 Savage
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## 21 Savage
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3408,6 +3732,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## 21 Savage
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## 21 Savage
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## 21 Savage
@@ -3421,15 +3763,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Larry David
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Larry David
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3498,6 +3831,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Larry David
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Larry David
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Larry David
@@ -3511,15 +3862,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Seth Rogan
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Seth Rogan
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3588,6 +3930,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Seth Rogan
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Seth Rogan
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Seth Rogan
@@ -3601,15 +3961,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Simone Biles
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Simone Biles
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3678,6 +4029,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Simone Biles
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Simone Biles
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Simone Biles
@@ -3691,15 +4060,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Pete Davidson
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Pete Davidson
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3768,6 +4128,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Pete Davidson
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Pete Davidson
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Pete Davidson
@@ -3781,15 +4159,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Prince Harry
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Prince Harry
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3858,6 +4227,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Prince Harry
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Prince Harry
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Prince Harry
@@ -3871,15 +4258,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Princess of Wales
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Princess of Wales
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -3948,6 +4326,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Princess of Wales
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Princess of Wales
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Princess of Wales
@@ -3961,15 +4357,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Rachel McAdams
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Rachel McAdams
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4038,6 +4425,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Rachel McAdams
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Rachel McAdams
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Rachel McAdams
@@ -4051,15 +4456,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Reneé Rapp
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Reneé Rapp
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4128,6 +4524,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Reneé Rapp
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Reneé Rapp
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Reneé Rapp
@@ -4141,15 +4555,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Rick Ross
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Rick Ross
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4218,6 +4623,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Rick Ross
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Rick Ross
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Rick Ross
@@ -4231,15 +4654,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Sam Ashgari
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Sam Ashgari
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4308,6 +4722,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Sam Ashgari
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Sam Ashgari
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Sam Ashgari
@@ -4321,15 +4753,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Sandra Oh
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Sandra Oh
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4398,6 +4821,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Sandra Oh
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Sandra Oh
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Sandra Oh
@@ -4411,15 +4852,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Donald Trump
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Donald Trump
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4488,6 +4920,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Donald Trump
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Donald Trump
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Donald Trump
@@ -4501,15 +4951,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Diddy
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Diddy
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4578,6 +5019,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Diddy
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Diddy
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Diddy
@@ -4591,15 +5050,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## City Girls
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## City Girls
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4668,6 +5118,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## City Girls
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## City Girls
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## City Girls
@@ -4681,15 +5149,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Chloe Bailey
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Chloe Bailey
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4758,6 +5217,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Chloe Bailey
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Chloe Bailey
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Chloe Bailey
@@ -4771,15 +5248,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Charli D Amelio
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Charli D Amelio
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4848,6 +5316,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Charli D Amelio
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Charli D Amelio
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Charli D Amelio
@@ -4861,15 +5347,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Cardi B
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Cardi B
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -4938,6 +5415,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Cardi B
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Cardi B
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Cardi B
@@ -4951,15 +5446,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Bryan Cranston
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bryan Cranston
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5028,6 +5514,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Bryan Cranston
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Bryan Cranston
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Bryan Cranston
@@ -5041,15 +5545,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Brielle Biermann
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Brielle Biermann
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5118,6 +5613,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Brielle Biermann
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Brielle Biermann
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Brielle Biermann
@@ -5131,15 +5644,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Dua Lipa
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Dua Lipa
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5208,6 +5712,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Dua Lipa
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Dua Lipa
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Dua Lipa
@@ -5221,15 +5743,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Drake
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Drake
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5298,6 +5811,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Drake
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Drake
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Drake
@@ -5311,15 +5842,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Jenner
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jenner
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5388,6 +5910,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Jenner
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Jenner
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Jenner
@@ -5401,15 +5941,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## J. Cole
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## J. Cole
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5478,6 +6009,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## J. Cole
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## J. Cole
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## J. Cole
@@ -5491,15 +6040,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Jerrod Carmichael
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jerrod Carmichael
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5568,6 +6108,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Jerrod Carmichael
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Jerrod Carmichael
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Jerrod Carmichael
@@ -5581,15 +6139,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Jennifer Lawrence
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Jennifer Lawrence
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5658,6 +6207,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Jennifer Lawrence
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Jennifer Lawrence
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Jennifer Lawrence
@@ -5671,15 +6238,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Joe Biden
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Joe Biden
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5748,6 +6306,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Joe Biden
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Joe Biden
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Joe Biden
@@ -5761,15 +6337,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## J.K. Simmons
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## J.K. Simmons
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5838,6 +6405,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## J.K. Simmons
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## J.K. Simmons
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## J.K. Simmons
@@ -5851,15 +6436,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Kamala Harris
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Kamala Harris
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -5928,6 +6504,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Kamala Harris
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Kamala Harris
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Kamala Harris
@@ -5941,15 +6535,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## John C Reilly
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## John C Reilly
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6018,6 +6603,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## John C Reilly
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## John C Reilly
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## John C Reilly
@@ -6031,15 +6634,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Kardashian
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Kardashian
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6108,6 +6702,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Kardashian
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Kardashian
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Kardashian
@@ -6121,15 +6733,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Kanye
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Kanye
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6198,6 +6801,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Kanye
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Kanye
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Kanye
@@ -6211,15 +6832,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Zendaya
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Zendaya
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6288,6 +6900,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Zendaya
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Zendaya
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Zendaya
@@ -6301,15 +6931,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Will Ferrell
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Will Ferrell
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6378,6 +6999,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Will Ferrell
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Will Ferrell
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Will Ferrell
@@ -6391,15 +7030,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Zazie Beetz
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Zazie Beetz
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6468,6 +7098,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Zazie Beetz
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Zazie Beetz
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Zazie Beetz
@@ -6481,15 +7129,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Bob Odenkirk
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bob Odenkirk
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6558,6 +7197,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Bob Odenkirk
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Bob Odenkirk
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Bob Odenkirk
@@ -6571,15 +7228,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Brad Pitt
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Brad Pitt
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6648,6 +7296,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Brad Pitt
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Brad Pitt
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Brad Pitt
@@ -6661,15 +7327,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Beyoncé
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Beyoncé
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6738,6 +7395,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Beyoncé
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Beyoncé
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Beyoncé
@@ -6751,15 +7426,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Bia
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bia
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6828,6 +7494,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Bia
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Bia
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Bia
@@ -6841,15 +7525,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Avantika
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Avantika
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -6918,6 +7593,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Avantika
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Avantika
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Avantika
@@ -6931,15 +7624,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Bernie Sanders
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bernie Sanders
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7008,6 +7692,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Bernie Sanders
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Bernie Sanders
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Bernie Sanders
@@ -7021,15 +7723,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Big Sean
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Big Sean
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7098,6 +7791,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Big Sean
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Big Sean
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Big Sean
@@ -7111,15 +7822,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## BlockBoy JB
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## BlockBoy JB
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7188,6 +7890,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## BlockBoy JB
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## BlockBoy JB
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## BlockBoy JB
@@ -7201,15 +7921,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Biden
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Biden
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7278,6 +7989,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Biden
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Biden
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Biden
@@ -7291,15 +8020,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Bieber
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Bieber
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7368,6 +8088,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Bieber
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Bieber
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Bieber
@@ -7381,15 +8119,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Paulina Porizkov
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Paulina Porizkov
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7458,6 +8187,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Paulina Porizkov
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Paulina Porizkov
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Paulina Porizkov
@@ -7471,15 +8218,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Paris Hilton
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Paris Hilton
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7548,6 +8286,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Paris Hilton
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Paris Hilton
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Paris Hilton
@@ -7561,15 +8317,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Metro Boomin
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Metro Boomin
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7638,6 +8385,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Metro Boomin
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Metro Boomin
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Metro Boomin
@@ -7651,15 +8416,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Meghan Markle
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Meghan Markle
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7728,6 +8484,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Meghan Markle
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Meghan Markle
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Meghan Markle
@@ -7741,15 +8515,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Megan Thee Stallion
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Megan Thee Stallion
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7818,6 +8583,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Megan Thee Stallion
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Megan Thee Stallion
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Megan Thee Stallion
@@ -7831,15 +8614,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Maya Rudolph
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Maya Rudolph
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7908,6 +8682,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Maya Rudolph
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Maya Rudolph
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Maya Rudolph
@@ -7921,15 +8713,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Olivia Rodrigo
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Olivia Rodrigo
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -7998,6 +8781,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Olivia Rodrigo
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Olivia Rodrigo
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Olivia Rodrigo
@@ -8011,15 +8812,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Obama
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Obama
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -8088,6 +8880,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Obama
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Obama
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Obama
@@ -8101,15 +8911,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## Nicki Minaj
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## Nicki Minaj
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -8178,6 +8979,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Nicki Minaj
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## Nicki Minaj
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## Nicki Minaj
@@ -8191,15 +9010,6 @@ Cristiano Ronaldo, the football legend, stands tall in the Olympus of the greate
 
 ## MrBeast
 
-## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
-
-Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
-
-*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
-
-
-## MrBeast
-
 ## [The Explosive Rise Of Amapiano  Afrobeats Is Not Going To Stop](https://www.highsnobiety.com/p/what-is-amapiano-and-afrobeats/)
 
 From the pulsating beats of Afrobeats to the smooth, rhythmic flows of Amapiano, these sounds have taken the music industry by storm, have reshaped our listeni…
@@ -8268,6 +9078,24 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## MrBeast
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## MrBeast
+
+## [Hailey Bieber, Beauty Boss  Mom-To-Be, Dresses the Part](https://www.highsnobiety.com/p/hailey-bieber-rhode-pop-up-outfit/)
+
+Hailey Bieber might be seven months pregnant, but that isn't stopping her from getting down to business.The mom-to-be was photographed this morning in New York…
+
+*Published on: Tue, 25 Jun 2024 08:00:22 GMT*
 
 
 ## MrBeast
