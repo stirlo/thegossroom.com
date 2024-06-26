@@ -1,33 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
-
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
-
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Tim Cook
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Tim Cook
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
-
-
-## Tim Cook
-
 ## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
 
 Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
@@ -80,31 +53,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Taylor Swift
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Taylor Swift
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Taylor Swift
@@ -161,31 +116,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Tom Brady
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Tom Brady
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Tom Brady
@@ -242,31 +179,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Tina Fey
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Tina Fey
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Tina Fey
@@ -323,31 +242,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Steven Yuen
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Steven Yuen
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Steven Yuen
@@ -404,31 +305,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Sommer Ray
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Sommer Ray
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sommer Ray
@@ -485,31 +368,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Sza
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Sza
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sza
@@ -566,31 +431,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Sydney Sweeney
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sydney Sweeney
@@ -647,31 +494,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Walton Goggins
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Walton Goggins
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Walton Goggins
@@ -728,31 +557,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Tom Holland
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Tom Holland
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Tom Holland
@@ -809,31 +620,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Gucci Mane
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Gucci Mane
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Gucci Mane
@@ -890,31 +683,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Harry Styles
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Harry Styles
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Harry Styles
@@ -971,31 +746,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Jake Paul
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Jake Paul
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jake Paul
@@ -1052,31 +809,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Jameela Jamil
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Jameela Jamil
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jameela Jamil
@@ -1133,31 +872,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Elon Musk
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Elon Musk
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Elon Musk
@@ -1214,31 +935,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Gabrielle Union
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Gabrielle Union
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Gabrielle Union
@@ -1295,31 +998,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Giancarlo Esposito
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Giancarlo Esposito
@@ -1376,31 +1061,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Gillian Jacobs
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Gillian Jacobs
@@ -1457,31 +1124,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Jason Mantzoukas
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jason Mantzoukas
@@ -1538,31 +1187,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## JB Smoove
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## JB Smoove
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## JB Smoove
@@ -1619,31 +1250,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Madison Pettis
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Madison Pettis
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Madison Pettis
@@ -1700,31 +1313,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Austin Butler
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Austin Butler
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Austin Butler
@@ -1781,31 +1376,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Mark Zuckerberg
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Mark Zuckerberg
@@ -1862,31 +1439,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Ariana Grande
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Ariana Grande
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Ariana Grande
@@ -1943,31 +1502,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Livvy Dunne
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Livvy Dunne
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Livvy Dunne
@@ -2024,31 +1565,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Ali Wong
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Ali Wong
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Ali Wong
@@ -2105,31 +1628,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Lizzo
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Lizzo
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lizzo
@@ -2186,31 +1691,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Alison Brie
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Alison Brie
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Alison Brie
@@ -2267,31 +1754,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Lil Wayne
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Lil Wayne
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lil Wayne
@@ -2348,31 +1817,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Adele
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Adele
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Adele
@@ -2429,31 +1880,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Lindsay Lohan
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lindsay Lohan
@@ -2510,31 +1943,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Addison Rae
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Addison Rae
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Addison Rae
@@ -2591,31 +2006,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Latto
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Latto
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Latto
@@ -2672,31 +2069,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Aaron Paul
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Aaron Paul
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Aaron Paul
@@ -2753,31 +2132,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## LeBron James
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## LeBron James
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## LeBron James
@@ -2834,31 +2195,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## 50 Cent
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## 50 Cent
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## 50 Cent
@@ -2915,31 +2258,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Kesha
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Kesha
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kesha
@@ -2996,31 +2321,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## 21 Savage
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## 21 Savage
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## 21 Savage
@@ -3077,31 +2384,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Larry David
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Larry David
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Larry David
@@ -3158,31 +2447,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Seth Rogan
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Seth Rogan
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Seth Rogan
@@ -3239,31 +2510,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Simone Biles
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Simone Biles
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Simone Biles
@@ -3320,31 +2573,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Pete Davidson
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Pete Davidson
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Pete Davidson
@@ -3401,31 +2636,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Prince Harry
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Prince Harry
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Prince Harry
@@ -3482,31 +2699,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Princess of Wales
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Princess of Wales
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Princess of Wales
@@ -3563,31 +2762,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Rachel McAdams
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Rachel McAdams
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Rachel McAdams
@@ -3644,31 +2825,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Reneé Rapp
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Reneé Rapp
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Reneé Rapp
@@ -3725,31 +2888,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Rick Ross
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Rick Ross
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Rick Ross
@@ -3806,31 +2951,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Sam Ashgari
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Sam Ashgari
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sam Ashgari
@@ -3887,31 +3014,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Sandra Oh
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Sandra Oh
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sandra Oh
@@ -3968,31 +3077,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Donald Trump
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Donald Trump
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Donald Trump
@@ -4049,31 +3140,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Diddy
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Diddy
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Diddy
@@ -4130,31 +3203,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## City Girls
+## Diddy
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## City Girls
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## City Girls
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## City Girls
@@ -4211,31 +3266,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Chloe Bailey
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Chloe Bailey
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Chloe Bailey
@@ -4292,31 +3329,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Charli D Amelio
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Charli D Amelio
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Charli D Amelio
@@ -4373,31 +3392,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Cardi B
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Cardi B
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Cardi B
@@ -4454,31 +3455,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Bryan Cranston
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Bryan Cranston
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bryan Cranston
@@ -4535,31 +3518,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Brielle Biermann
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Brielle Biermann
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Brielle Biermann
@@ -4616,31 +3581,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Dua Lipa
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Dua Lipa
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Dua Lipa
@@ -4697,31 +3644,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Drake
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Drake
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Drake
@@ -4778,31 +3707,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Jenner
+## Drake
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Jenner
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Jenner
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jenner
@@ -4859,31 +3770,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## J. Cole
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## J. Cole
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J. Cole
@@ -4940,31 +3833,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Jerrod Carmichael
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jerrod Carmichael
@@ -5021,31 +3896,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Jennifer Lawrence
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jennifer Lawrence
@@ -5102,31 +3959,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Joe Biden
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Joe Biden
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Joe Biden
@@ -5183,31 +4022,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## J.K. Simmons
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## J.K. Simmons
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J.K. Simmons
@@ -5264,31 +4085,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Kamala Harris
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Kamala Harris
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kamala Harris
@@ -5345,31 +4148,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## John C Reilly
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## John C Reilly
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## John C Reilly
@@ -5426,31 +4211,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Kardashian
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Kardashian
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kardashian
@@ -5507,31 +4274,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Kanye
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Kanye
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kanye
@@ -5588,31 +4337,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Zendaya
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Zendaya
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Zendaya
@@ -5669,31 +4400,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Will Ferrell
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Will Ferrell
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Will Ferrell
@@ -5750,31 +4463,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Zazie Beetz
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Zazie Beetz
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Zazie Beetz
@@ -5831,31 +4526,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Bob Odenkirk
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bob Odenkirk
@@ -5912,31 +4589,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Brad Pitt
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Brad Pitt
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Brad Pitt
@@ -5993,31 +4652,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Beyoncé
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Beyoncé
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Beyoncé
@@ -6074,31 +4715,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Bia
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Bia
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bia
@@ -6155,31 +4778,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Avantika
+## Bia
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Avantika
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Avantika
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Avantika
@@ -6236,31 +4841,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Bernie Sanders
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Bernie Sanders
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bernie Sanders
@@ -6317,31 +4904,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Big Sean
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Big Sean
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Big Sean
@@ -6398,31 +4967,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## BlockBoy JB
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## BlockBoy JB
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## BlockBoy JB
@@ -6479,31 +5030,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Biden
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Biden
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Biden
@@ -6560,31 +5093,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Bieber
+## Biden
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Bieber
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Bieber
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bieber
@@ -6641,31 +5156,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Paulina Porizkov
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Paulina Porizkov
@@ -6722,31 +5219,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Paris Hilton
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Paris Hilton
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Paris Hilton
@@ -6803,31 +5282,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Metro Boomin
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Metro Boomin
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Metro Boomin
@@ -6884,31 +5345,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Meghan Markle
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Meghan Markle
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Meghan Markle
@@ -6965,31 +5408,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Megan Thee Stallion
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Megan Thee Stallion
@@ -7046,31 +5471,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Maya Rudolph
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Maya Rudolph
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Maya Rudolph
@@ -7127,31 +5534,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Olivia Rodrigo
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Olivia Rodrigo
@@ -7208,31 +5597,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Obama
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Obama
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Obama
@@ -7289,31 +5660,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## Nicki Minaj
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## Nicki Minaj
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Nicki Minaj
@@ -7370,31 +5723,13 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [Rock the Boat? Burberry's New Bag Is More About Rocking the Horse](https://www.highsnobiety.com/p/burberry-rocking-horse-bag/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-Named after the children's toy, the Burberry Rocking Horse bag is a nod to the new and the nostalgic. A curved satchel, reminiscent of a saddle, and straps tha…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Tue, 25 Jun 2024 12:36:44 GMT*
-
-
-## MrBeast
-
-## [Paint the Town Red? In Nike's New Crimson Air Jordan You'll Do Just That](https://www.highsnobiety.com/p/air-jordan-13-retro-dune-red/)
-
-Not long after the drop of the infamous Space Jam shoe, Nike's Air Jordan 13 Retro Dune Red finally becomes yours to purchase . And once you make use of said o…
-
-*Published on: Tue, 25 Jun 2024 13:00:00 GMT*
-
-
-## MrBeast
-
-## [Shoe-Printing Company Zellerfeld "Declares War [on] Footwear Industry"](https://www.highsnobiety.com/p/zellerfeld-sneaker-launch-interview/)
-
-You might know Zellerfeld for 3D-printing sneakers for luxury labels as disparate as Moncler , Heron Preston , Kidsuper , Louis Vuitton and even YEEZY . Zeller…
-
-*Published on: Tue, 25 Jun 2024 13:44:44 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## MrBeast
@@ -7449,5 +5784,14 @@ Nike has been teasing the return of its Air Max Sunder sneaker model for some ti
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Wed, 26 Jun 2024 10:53:34 GMT*
+
+
+## MrBeast
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
