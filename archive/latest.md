@@ -91,15 +91,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Tim Cook
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Tim Cook
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -116,15 +107,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Tim Cook
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Taylor Swift
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -217,15 +199,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Taylor Swift
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Taylor Swift
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -240,15 +213,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Taylor Swift
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Tom Brady
@@ -343,15 +307,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Tom Brady
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Tom Brady
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -368,15 +323,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Tom Brady
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Tina Fey
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -469,15 +415,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Tina Fey
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Tina Fey
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -492,15 +429,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Tina Fey
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Steven Yuen
@@ -595,15 +523,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Steven Yuen
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Steven Yuen
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -620,15 +539,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Steven Yuen
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Sommer Ray
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -721,15 +631,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Sommer Ray
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Sommer Ray
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -744,15 +645,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Sommer Ray
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sza
@@ -847,15 +739,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Sza
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Sza
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -872,15 +755,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Sza
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Sydney Sweeney
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -973,15 +847,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Sydney Sweeney
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Sydney Sweeney
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -996,15 +861,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Sydney Sweeney
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Walton Goggins
@@ -1099,15 +955,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Walton Goggins
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Walton Goggins
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1124,15 +971,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Walton Goggins
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Tom Holland
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -1225,15 +1063,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Tom Holland
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Tom Holland
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1248,15 +1077,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Tom Holland
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Gucci Mane
@@ -1351,15 +1171,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Gucci Mane
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Gucci Mane
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1376,15 +1187,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Gucci Mane
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Harry Styles
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -1477,15 +1279,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Harry Styles
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Harry Styles
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1500,15 +1293,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Harry Styles
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jake Paul
@@ -1603,15 +1387,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Jake Paul
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jake Paul
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1628,15 +1403,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Jake Paul
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Jameela Jamil
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -1729,15 +1495,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Jameela Jamil
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jameela Jamil
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1752,15 +1509,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Jameela Jamil
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Elon Musk
@@ -1855,15 +1603,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Elon Musk
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Elon Musk
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1880,15 +1619,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Elon Musk
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Gabrielle Union
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -1981,15 +1711,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Gabrielle Union
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Gabrielle Union
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2004,15 +1725,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Gabrielle Union
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Giancarlo Esposito
@@ -2107,15 +1819,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Giancarlo Esposito
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Giancarlo Esposito
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2132,15 +1835,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Giancarlo Esposito
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Gillian Jacobs
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -2233,15 +1927,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Gillian Jacobs
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Gillian Jacobs
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2256,15 +1941,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Gillian Jacobs
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jason Mantzoukas
@@ -2359,15 +2035,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Jason Mantzoukas
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jason Mantzoukas
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2384,15 +2051,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Jason Mantzoukas
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## JB Smoove
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -2485,15 +2143,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## JB Smoove
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## JB Smoove
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2508,15 +2157,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## JB Smoove
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Madison Pettis
@@ -2611,15 +2251,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Madison Pettis
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Madison Pettis
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2636,15 +2267,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Madison Pettis
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Austin Butler
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -2737,15 +2359,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Austin Butler
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Austin Butler
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2760,15 +2373,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Austin Butler
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Mark Zuckerberg
@@ -2863,15 +2467,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Mark Zuckerberg
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Mark Zuckerberg
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2888,15 +2483,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Mark Zuckerberg
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Ariana Grande
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -2989,15 +2575,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Ariana Grande
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Ariana Grande
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3012,15 +2589,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Ariana Grande
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Livvy Dunne
@@ -3115,15 +2683,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Livvy Dunne
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Livvy Dunne
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3140,15 +2699,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Livvy Dunne
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Ali Wong
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -3241,15 +2791,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Ali Wong
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Ali Wong
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3264,15 +2805,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Ali Wong
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lizzo
@@ -3367,15 +2899,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Lizzo
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Lizzo
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3392,15 +2915,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Lizzo
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Alison Brie
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -3493,15 +3007,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Alison Brie
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Alison Brie
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3516,15 +3021,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Alison Brie
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lil Wayne
@@ -3619,15 +3115,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Lil Wayne
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Lil Wayne
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3644,15 +3131,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Lil Wayne
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Adele
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -3745,15 +3223,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Adele
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Adele
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3768,15 +3237,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Adele
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lindsay Lohan
@@ -3871,15 +3331,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Lindsay Lohan
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Lindsay Lohan
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3896,15 +3347,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Lindsay Lohan
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Addison Rae
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -3997,15 +3439,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Addison Rae
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Addison Rae
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4020,15 +3453,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Addison Rae
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Latto
@@ -4123,15 +3547,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Latto
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Latto
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4148,15 +3563,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Latto
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Aaron Paul
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -4249,15 +3655,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Aaron Paul
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Aaron Paul
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4272,15 +3669,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Aaron Paul
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## LeBron James
@@ -4375,15 +3763,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## LeBron James
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## LeBron James
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4400,15 +3779,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## LeBron James
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## 50 Cent
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -4501,15 +3871,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## 50 Cent
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## 50 Cent
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4524,15 +3885,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## 50 Cent
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kesha
@@ -4627,15 +3979,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Kesha
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Kesha
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4652,15 +3995,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Kesha
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## 21 Savage
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -4753,15 +4087,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## 21 Savage
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## 21 Savage
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4776,15 +4101,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## 21 Savage
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Larry David
@@ -4879,15 +4195,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Larry David
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Larry David
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4904,15 +4211,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Larry David
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Seth Rogan
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -5005,15 +4303,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Seth Rogan
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Seth Rogan
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5028,15 +4317,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Seth Rogan
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Simone Biles
@@ -5131,15 +4411,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Simone Biles
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Simone Biles
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5156,15 +4427,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Simone Biles
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Pete Davidson
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -5257,15 +4519,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Pete Davidson
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Pete Davidson
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5280,15 +4533,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Pete Davidson
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Prince Harry
@@ -5383,15 +4627,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Prince Harry
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Prince Harry
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5408,15 +4643,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Prince Harry
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Princess of Wales
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -5509,15 +4735,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Princess of Wales
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Princess of Wales
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5532,15 +4749,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Princess of Wales
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Rachel McAdams
@@ -5635,15 +4843,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Rachel McAdams
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Rachel McAdams
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5660,15 +4859,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Rachel McAdams
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Reneé Rapp
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -5761,15 +4951,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Reneé Rapp
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Reneé Rapp
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5784,15 +4965,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Reneé Rapp
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Rick Ross
@@ -5887,15 +5059,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Rick Ross
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Rick Ross
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5912,15 +5075,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Rick Ross
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Sam Ashgari
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -6013,15 +5167,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Sam Ashgari
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Sam Ashgari
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6036,15 +5181,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Sam Ashgari
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sandra Oh
@@ -6139,15 +5275,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Sandra Oh
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Sandra Oh
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6164,15 +5291,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Sandra Oh
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Donald Trump
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -6265,15 +5383,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Donald Trump
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Donald Trump
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6288,15 +5397,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Donald Trump
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Diddy
@@ -6391,15 +5491,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Diddy
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Diddy
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6416,15 +5507,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Diddy
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## City Girls
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -6517,15 +5599,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## City Girls
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## City Girls
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6540,15 +5613,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## City Girls
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Chloe Bailey
@@ -6643,15 +5707,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Chloe Bailey
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Chloe Bailey
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6668,15 +5723,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Chloe Bailey
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Charli D Amelio
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -6769,15 +5815,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Charli D Amelio
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Charli D Amelio
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6792,15 +5829,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Charli D Amelio
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Cardi B
@@ -6895,15 +5923,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Cardi B
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Cardi B
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6920,15 +5939,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Cardi B
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Bryan Cranston
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -7021,15 +6031,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Bryan Cranston
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Bryan Cranston
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7044,15 +6045,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Bryan Cranston
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Brielle Biermann
@@ -7147,15 +6139,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Brielle Biermann
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Brielle Biermann
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7172,15 +6155,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Brielle Biermann
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Dua Lipa
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -7273,15 +6247,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Dua Lipa
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Dua Lipa
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7296,15 +6261,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Dua Lipa
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Drake
@@ -7399,15 +6355,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Drake
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Drake
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7424,15 +6371,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Drake
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Jenner
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -7525,15 +6463,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Jenner
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jenner
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7548,15 +6477,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Jenner
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J. Cole
@@ -7651,15 +6571,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## J. Cole
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## J. Cole
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7676,15 +6587,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## J. Cole
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Jerrod Carmichael
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -7777,15 +6679,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Jerrod Carmichael
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jerrod Carmichael
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7800,15 +6693,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Jerrod Carmichael
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jennifer Lawrence
@@ -7903,15 +6787,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Jennifer Lawrence
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jennifer Lawrence
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7928,15 +6803,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Jennifer Lawrence
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Joe Biden
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -8029,15 +6895,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Joe Biden
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Joe Biden
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8052,15 +6909,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Joe Biden
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J.K. Simmons
@@ -8155,15 +7003,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## J.K. Simmons
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## J.K. Simmons
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8180,15 +7019,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## J.K. Simmons
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Kamala Harris
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -8281,15 +7111,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Kamala Harris
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Kamala Harris
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8304,15 +7125,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Kamala Harris
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## John C Reilly
@@ -8407,15 +7219,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## John C Reilly
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## John C Reilly
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8432,15 +7235,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## John C Reilly
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Kardashian
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -8533,15 +7327,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Kardashian
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Kardashian
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8556,15 +7341,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Kardashian
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kanye
@@ -8659,15 +7435,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Kanye
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Kanye
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8684,15 +7451,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Kanye
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Zendaya
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -8785,15 +7543,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Zendaya
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Zendaya
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8808,15 +7557,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Zendaya
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Will Ferrell
@@ -8911,15 +7651,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Will Ferrell
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Will Ferrell
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8936,15 +7667,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Will Ferrell
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Zazie Beetz
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -9037,15 +7759,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Zazie Beetz
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Zazie Beetz
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9060,15 +7773,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Zazie Beetz
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bob Odenkirk
@@ -9163,15 +7867,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Bob Odenkirk
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Bob Odenkirk
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9188,15 +7883,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Bob Odenkirk
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Brad Pitt
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -9289,15 +7975,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Brad Pitt
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Brad Pitt
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9312,15 +7989,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Brad Pitt
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Beyoncé
@@ -9415,15 +8083,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Beyoncé
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Beyoncé
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9440,15 +8099,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Beyoncé
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Bia
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -9541,15 +8191,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Bia
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Bia
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9564,15 +8205,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Bia
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Avantika
@@ -9667,15 +8299,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Avantika
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Avantika
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9692,15 +8315,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Avantika
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Bernie Sanders
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -9793,15 +8407,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Bernie Sanders
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Bernie Sanders
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9816,15 +8421,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Bernie Sanders
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Big Sean
@@ -9919,15 +8515,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Big Sean
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Big Sean
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9944,15 +8531,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Big Sean
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## BlockBoy JB
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -10045,15 +8623,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## BlockBoy JB
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## BlockBoy JB
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10068,15 +8637,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## BlockBoy JB
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Biden
@@ -10171,15 +8731,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Biden
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Biden
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10196,15 +8747,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Biden
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Bieber
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -10297,15 +8839,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Bieber
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Bieber
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10320,15 +8853,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Bieber
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Paulina Porizkov
@@ -10423,15 +8947,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Paulina Porizkov
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Paulina Porizkov
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10448,15 +8963,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Paulina Porizkov
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Paris Hilton
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -10549,15 +9055,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Paris Hilton
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Paris Hilton
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10572,15 +9069,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Paris Hilton
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Metro Boomin
@@ -10675,15 +9163,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Metro Boomin
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Metro Boomin
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10700,15 +9179,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Metro Boomin
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Meghan Markle
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -10801,15 +9271,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Meghan Markle
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Meghan Markle
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10824,15 +9285,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Meghan Markle
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Megan Thee Stallion
@@ -10927,15 +9379,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Megan Thee Stallion
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Megan Thee Stallion
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10952,15 +9395,6 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Megan Thee Stallion
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Maya Rudolph
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
@@ -11053,15 +9487,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Maya Rudolph
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Maya Rudolph
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -11076,15 +9501,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Maya Rudolph
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Olivia Rodrigo
@@ -11179,15 +9595,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Olivia Rodrigo
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Olivia Rodrigo
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -11202,15 +9609,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Olivia Rodrigo
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Obama
@@ -11305,15 +9703,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Obama
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Obama
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -11328,15 +9717,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Obama
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Nicki Minaj
@@ -11431,15 +9811,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Nicki Minaj
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Nicki Minaj
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -11454,15 +9825,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Nicki Minaj
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## MrBeast
@@ -11557,15 +9919,6 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## MrBeast
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## MrBeast
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -11580,14 +9933,5 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## MrBeast
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
