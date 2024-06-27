@@ -80,15 +80,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Tim Cook
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Taylor Swift
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -168,15 +159,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Taylor Swift
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Tom Brady
@@ -260,15 +242,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Tom Brady
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Tina Fey
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -348,15 +321,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Tina Fey
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Steven Yuen
@@ -440,15 +404,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Steven Yuen
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Sommer Ray
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -528,15 +483,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sommer Ray
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sza
@@ -620,15 +566,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Sza
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Sydney Sweeney
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -708,15 +645,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sydney Sweeney
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Walton Goggins
@@ -800,15 +728,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Walton Goggins
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Tom Holland
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -888,15 +807,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Tom Holland
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Gucci Mane
@@ -980,15 +890,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Gucci Mane
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Harry Styles
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -1068,15 +969,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Harry Styles
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jake Paul
@@ -1160,15 +1052,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Jake Paul
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Jameela Jamil
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -1248,15 +1131,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jameela Jamil
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Elon Musk
@@ -1340,15 +1214,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Elon Musk
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Gabrielle Union
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -1428,15 +1293,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Gabrielle Union
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Giancarlo Esposito
@@ -1520,15 +1376,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Giancarlo Esposito
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Gillian Jacobs
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -1608,15 +1455,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Gillian Jacobs
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jason Mantzoukas
@@ -1700,15 +1538,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Jason Mantzoukas
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## JB Smoove
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -1788,15 +1617,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## JB Smoove
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Madison Pettis
@@ -1880,15 +1700,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Madison Pettis
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Austin Butler
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -1968,15 +1779,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Austin Butler
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Mark Zuckerberg
@@ -2060,15 +1862,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Mark Zuckerberg
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Ariana Grande
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -2148,15 +1941,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Ariana Grande
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Livvy Dunne
@@ -2240,15 +2024,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Livvy Dunne
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Ali Wong
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -2328,15 +2103,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Ali Wong
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lizzo
@@ -2420,15 +2186,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Lizzo
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Alison Brie
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -2508,15 +2265,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Alison Brie
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lil Wayne
@@ -2600,15 +2348,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Lil Wayne
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Adele
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -2688,15 +2427,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Adele
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lindsay Lohan
@@ -2780,15 +2510,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Lindsay Lohan
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Addison Rae
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -2868,15 +2589,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Addison Rae
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Latto
@@ -2960,15 +2672,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Latto
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Aaron Paul
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -3048,15 +2751,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Aaron Paul
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## LeBron James
@@ -3140,15 +2834,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## LeBron James
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## 50 Cent
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -3228,15 +2913,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## 50 Cent
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kesha
@@ -3320,15 +2996,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Kesha
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## 21 Savage
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -3408,15 +3075,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## 21 Savage
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Larry David
@@ -3500,15 +3158,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Larry David
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Seth Rogan
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -3588,15 +3237,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Seth Rogan
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Simone Biles
@@ -3680,15 +3320,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Simone Biles
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Pete Davidson
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -3768,15 +3399,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Pete Davidson
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Prince Harry
@@ -3860,15 +3482,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Prince Harry
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Princess of Wales
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -3948,15 +3561,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Princess of Wales
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Rachel McAdams
@@ -4040,15 +3644,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Rachel McAdams
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Reneé Rapp
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -4128,15 +3723,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Reneé Rapp
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Rick Ross
@@ -4220,15 +3806,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Rick Ross
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Sam Ashgari
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -4308,15 +3885,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sam Ashgari
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sandra Oh
@@ -4400,15 +3968,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Sandra Oh
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Donald Trump
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -4488,15 +4047,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Donald Trump
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Diddy
@@ -4580,15 +4130,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Diddy
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## City Girls
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -4668,15 +4209,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## City Girls
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Chloe Bailey
@@ -4760,15 +4292,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Chloe Bailey
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Charli D Amelio
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -4848,15 +4371,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Charli D Amelio
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Cardi B
@@ -4940,15 +4454,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Cardi B
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Bryan Cranston
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -5028,15 +4533,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bryan Cranston
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Brielle Biermann
@@ -5120,15 +4616,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Brielle Biermann
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Dua Lipa
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -5208,15 +4695,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Dua Lipa
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Drake
@@ -5300,15 +4778,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Drake
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Jenner
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -5388,15 +4857,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jenner
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J. Cole
@@ -5480,15 +4940,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## J. Cole
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Jerrod Carmichael
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -5568,15 +5019,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jerrod Carmichael
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jennifer Lawrence
@@ -5660,15 +5102,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Jennifer Lawrence
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Joe Biden
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -5748,15 +5181,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Joe Biden
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J.K. Simmons
@@ -5840,15 +5264,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## J.K. Simmons
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Kamala Harris
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -5928,15 +5343,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Kamala Harris
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## John C Reilly
@@ -6020,15 +5426,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## John C Reilly
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Kardashian
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -6108,15 +5505,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Kardashian
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kanye
@@ -6200,15 +5588,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Kanye
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Zendaya
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -6288,15 +5667,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Zendaya
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Will Ferrell
@@ -6380,15 +5750,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Will Ferrell
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Zazie Beetz
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -6468,15 +5829,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Zazie Beetz
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bob Odenkirk
@@ -6560,15 +5912,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Bob Odenkirk
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Brad Pitt
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -6648,15 +5991,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Brad Pitt
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Beyoncé
@@ -6740,15 +6074,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Beyoncé
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Bia
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -6828,15 +6153,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bia
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Avantika
@@ -6920,15 +6236,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Avantika
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Bernie Sanders
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -7008,15 +6315,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bernie Sanders
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Big Sean
@@ -7100,15 +6398,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Big Sean
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## BlockBoy JB
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -7188,15 +6477,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## BlockBoy JB
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Biden
@@ -7280,15 +6560,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Biden
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Bieber
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -7368,15 +6639,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bieber
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Paulina Porizkov
@@ -7460,15 +6722,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Paulina Porizkov
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Paris Hilton
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -7548,15 +6801,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Paris Hilton
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Metro Boomin
@@ -7640,15 +6884,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Metro Boomin
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Meghan Markle
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -7728,15 +6963,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Meghan Markle
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Megan Thee Stallion
@@ -7820,15 +7046,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Megan Thee Stallion
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Maya Rudolph
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -7908,15 +7125,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Maya Rudolph
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Olivia Rodrigo
@@ -8000,15 +7208,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Olivia Rodrigo
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## Obama
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -8088,15 +7287,6 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Obama
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Nicki Minaj
@@ -8180,15 +7370,6 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Nicki Minaj
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
 ## MrBeast
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
@@ -8268,14 +7449,5 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## MrBeast
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
