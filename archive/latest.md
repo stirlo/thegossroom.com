@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Tim Cook
-
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
 Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
@@ -80,7 +71,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Tim Cook
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -161,7 +161,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Taylor Swift
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -242,7 +251,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Tom Brady
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -323,7 +341,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Tina Fey
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -404,7 +431,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Steven Yuen
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -485,7 +521,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Sommer Ray
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -566,7 +611,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Sza
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -647,7 +701,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Sydney Sweeney
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -728,7 +791,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Walton Goggins
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -809,7 +881,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Tom Holland
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -890,7 +971,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Harry Styles
+## Gucci Mane
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Gucci Mane
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -971,7 +1061,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Jake Paul
+## Harry Styles
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Harry Styles
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1052,7 +1151,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jake Paul
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1133,7 +1241,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jameela Jamil
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1214,7 +1331,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Elon Musk
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1295,7 +1421,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Gabrielle Union
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1376,7 +1511,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Giancarlo Esposito
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1457,7 +1601,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Gillian Jacobs
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1538,7 +1691,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jason Mantzoukas
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1619,7 +1781,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Madison Pettis
+## JB Smoove
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## JB Smoove
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1700,7 +1871,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Austin Butler
+## Madison Pettis
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Madison Pettis
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1781,7 +1961,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Austin Butler
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1862,7 +2051,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Mark Zuckerberg
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1943,7 +2141,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Ariana Grande
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2024,7 +2231,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Livvy Dunne
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2105,7 +2321,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Lizzo
+## Ali Wong
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Ali Wong
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2186,7 +2411,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Alison Brie
+## Lizzo
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Lizzo
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2267,7 +2501,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Alison Brie
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2348,7 +2591,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Adele
+## Lil Wayne
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Lil Wayne
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2429,7 +2681,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Lindsay Lohan
+## Adele
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Adele
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2510,7 +2771,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Lindsay Lohan
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2591,7 +2861,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Latto
+## Addison Rae
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Addison Rae
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2672,7 +2951,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Aaron Paul
+## Latto
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Latto
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2753,7 +3041,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Aaron Paul
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2834,7 +3131,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## 50 Cent
+## LeBron James
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## LeBron James
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2915,7 +3221,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Kesha
+## 50 Cent
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## 50 Cent
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2996,7 +3311,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Kesha
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3077,7 +3401,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Larry David
+## 21 Savage
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## 21 Savage
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3158,7 +3491,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Seth Rogan
+## Larry David
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Larry David
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3239,7 +3581,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Seth Rogan
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3320,7 +3671,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Pete Davidson
+## Simone Biles
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Simone Biles
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3401,7 +3761,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Prince Harry
+## Pete Davidson
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Pete Davidson
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3482,7 +3851,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Prince Harry
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3563,7 +3941,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Princess of Wales
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3644,7 +4031,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Rachel McAdams
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3725,7 +4121,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Reneé Rapp
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3806,7 +4211,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Rick Ross
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3887,7 +4301,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Sam Ashgari
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3968,7 +4391,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Sandra Oh
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4049,7 +4481,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Diddy
+## Donald Trump
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Donald Trump
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4130,7 +4571,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## City Girls
+## Diddy
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Diddy
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4211,7 +4661,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## City Girls
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4292,7 +4751,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Chloe Bailey
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4373,7 +4841,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Cardi B
+## Charli D Amelio
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Charli D Amelio
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4454,7 +4931,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Cardi B
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4535,7 +5021,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Bryan Cranston
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4616,7 +5111,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Brielle Biermann
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4697,7 +5201,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Dua Lipa
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4778,7 +5291,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Jenner
+## Drake
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Drake
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4859,7 +5381,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## J. Cole
+## Jenner
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jenner
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4940,7 +5471,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## J. Cole
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5021,7 +5561,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jerrod Carmichael
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5102,7 +5651,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jennifer Lawrence
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5183,7 +5741,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Joe Biden
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5264,7 +5831,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## J.K. Simmons
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5345,7 +5921,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## John C Reilly
+## Kamala Harris
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Kamala Harris
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5426,7 +6011,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## John C Reilly
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5507,7 +6101,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Kanye
+## Kardashian
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Kardashian
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5588,7 +6191,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Zendaya
+## Kanye
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Kanye
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5669,7 +6281,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Zendaya
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5750,7 +6371,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Will Ferrell
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5831,7 +6461,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Zazie Beetz
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5912,7 +6551,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Bob Odenkirk
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5993,7 +6641,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Beyoncé
+## Brad Pitt
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Brad Pitt
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6074,7 +6731,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Bia
+## Beyoncé
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Beyoncé
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6155,7 +6821,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Avantika
+## Bia
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Bia
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6236,7 +6911,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Bernie Sanders
+## Avantika
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Avantika
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6317,7 +7001,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Big Sean
+## Bernie Sanders
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Bernie Sanders
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6398,7 +7091,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Big Sean
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6479,7 +7181,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Biden
+## BlockBoy JB
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## BlockBoy JB
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6560,7 +7271,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Bieber
+## Biden
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Biden
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6641,7 +7361,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Bieber
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6722,7 +7451,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Paulina Porizkov
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6803,7 +7541,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Paris Hilton
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6884,7 +7631,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Metro Boomin
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6965,7 +7721,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Meghan Markle
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7046,7 +7811,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Megan Thee Stallion
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7127,7 +7901,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Maya Rudolph
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7208,7 +7991,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Obama
+## Olivia Rodrigo
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Olivia Rodrigo
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7289,7 +8081,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## Nicki Minaj
+## Obama
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Obama
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7370,7 +8171,16 @@ It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
 
 
-## MrBeast
+## Nicki Minaj
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Nicki Minaj
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7449,5 +8259,23 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 It’s been a few years since Nike’s Zoom Vomero 5 model was taken from being a technical running shoe and put onto the shelves of fashionable boutiques. And, in…
 
 *Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## MrBeast
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## MrBeast
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
