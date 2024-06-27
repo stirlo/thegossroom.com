@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
-
-
-## Tim Cook
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -82,29 +73,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Tim Cook
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Tim Cook
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Tim Cook
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Tim Cook
@@ -116,13 +89,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Tim Cook
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Tim Cook
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Tim Cook
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Taylor Swift
@@ -199,6 +199,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Taylor Swift
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Taylor Swift
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Taylor Swift
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -208,11 +226,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Taylor Swift
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Taylor Swift
@@ -226,11 +244,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Taylor Swift
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Tom Brady
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Tom Brady
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Tom Brady
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Tom Brady
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Tom Brady
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Tom Brady
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Tom Brady
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Tom Brady
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Tom Brady
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Tom Brady
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Tom Brady
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Tom Brady
@@ -244,96 +361,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Tom Brady
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Tom Brady
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Tom Brady
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Tom Brady
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Tom Brady
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Tom Brady
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Tom Brady
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Tom Brady
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Tom Brady
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Tom Brady
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Tom Brady
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -343,20 +370,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Tom Brady
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Tina Fey
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Tina Fey
@@ -433,29 +451,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Tina Fey
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Tina Fey
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Tina Fey
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Tina Fey
@@ -467,13 +467,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Tina Fey
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Tina Fey
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Tina Fey
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Steven Yuen
@@ -550,6 +577,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Steven Yuen
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Steven Yuen
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Steven Yuen
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -559,11 +604,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Steven Yuen
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Steven Yuen
@@ -577,11 +622,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Steven Yuen
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Sommer Ray
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Sommer Ray
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Sommer Ray
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Sommer Ray
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Sommer Ray
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Sommer Ray
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Sommer Ray
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Sommer Ray
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Sommer Ray
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Sommer Ray
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Sommer Ray
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Sommer Ray
@@ -595,96 +739,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Sommer Ray
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Sommer Ray
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Sommer Ray
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Sommer Ray
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sommer Ray
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Sommer Ray
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Sommer Ray
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Sommer Ray
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Sommer Ray
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Sommer Ray
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Sommer Ray
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -694,20 +748,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Sommer Ray
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Sza
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sza
@@ -784,29 +829,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Sza
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Sza
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Sza
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Sza
@@ -818,13 +845,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Sza
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Sza
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Sza
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sydney Sweeney
@@ -901,6 +955,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Sydney Sweeney
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Sydney Sweeney
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Sydney Sweeney
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -910,11 +982,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Sydney Sweeney
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Sydney Sweeney
@@ -928,11 +1000,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Sydney Sweeney
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Walton Goggins
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Walton Goggins
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Walton Goggins
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Walton Goggins
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Walton Goggins
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Walton Goggins
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Walton Goggins
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Walton Goggins
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Walton Goggins
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Walton Goggins
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Walton Goggins
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Walton Goggins
@@ -946,96 +1117,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Walton Goggins
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Walton Goggins
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Walton Goggins
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Walton Goggins
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Walton Goggins
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Walton Goggins
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Walton Goggins
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Walton Goggins
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Walton Goggins
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Walton Goggins
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Walton Goggins
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -1045,20 +1126,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Walton Goggins
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Tom Holland
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Tom Holland
@@ -1135,29 +1207,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Tom Holland
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Tom Holland
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Tom Holland
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Tom Holland
@@ -1169,13 +1223,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Tom Holland
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Tom Holland
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Tom Holland
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Gucci Mane
@@ -1252,6 +1333,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Gucci Mane
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Gucci Mane
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Gucci Mane
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -1261,11 +1360,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Gucci Mane
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Gucci Mane
@@ -1279,11 +1378,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Gucci Mane
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Harry Styles
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Harry Styles
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Harry Styles
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Harry Styles
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Harry Styles
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Harry Styles
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Harry Styles
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Harry Styles
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Harry Styles
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Harry Styles
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Harry Styles
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Harry Styles
@@ -1297,96 +1495,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Harry Styles
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Harry Styles
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Harry Styles
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Harry Styles
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Harry Styles
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Harry Styles
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Harry Styles
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Harry Styles
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Harry Styles
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Harry Styles
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Harry Styles
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -1396,20 +1504,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Harry Styles
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Jake Paul
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jake Paul
@@ -1486,29 +1585,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Jake Paul
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jake Paul
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Jake Paul
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Jake Paul
@@ -1520,13 +1601,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Jake Paul
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Jake Paul
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Jake Paul
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jameela Jamil
@@ -1603,6 +1711,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Jameela Jamil
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Jameela Jamil
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Jameela Jamil
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -1612,11 +1738,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Jameela Jamil
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Jameela Jamil
@@ -1630,11 +1756,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Jameela Jamil
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Elon Musk
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Elon Musk
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Elon Musk
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Elon Musk
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Elon Musk
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Elon Musk
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Elon Musk
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Elon Musk
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Elon Musk
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Elon Musk
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Elon Musk
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Elon Musk
@@ -1648,96 +1873,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Elon Musk
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Elon Musk
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Elon Musk
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Elon Musk
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Elon Musk
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Elon Musk
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Elon Musk
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Elon Musk
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Elon Musk
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Elon Musk
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Elon Musk
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -1747,20 +1882,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Elon Musk
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Gabrielle Union
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Gabrielle Union
@@ -1837,29 +1963,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Gabrielle Union
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Gabrielle Union
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Gabrielle Union
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Gabrielle Union
@@ -1871,13 +1979,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Gabrielle Union
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Gabrielle Union
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Gabrielle Union
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Giancarlo Esposito
@@ -1954,6 +2089,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Giancarlo Esposito
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Giancarlo Esposito
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Giancarlo Esposito
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -1963,11 +2116,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Giancarlo Esposito
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Giancarlo Esposito
@@ -1981,11 +2134,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Giancarlo Esposito
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Gillian Jacobs
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Gillian Jacobs
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Gillian Jacobs
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Gillian Jacobs
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Gillian Jacobs
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Gillian Jacobs
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Gillian Jacobs
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Gillian Jacobs
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Gillian Jacobs
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Gillian Jacobs
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Gillian Jacobs
@@ -1999,96 +2251,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Gillian Jacobs
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Gillian Jacobs
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Gillian Jacobs
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Gillian Jacobs
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Gillian Jacobs
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Gillian Jacobs
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Gillian Jacobs
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Gillian Jacobs
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Gillian Jacobs
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Gillian Jacobs
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -2098,20 +2260,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Gillian Jacobs
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Jason Mantzoukas
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jason Mantzoukas
@@ -2188,29 +2341,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Jason Mantzoukas
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jason Mantzoukas
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Jason Mantzoukas
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Jason Mantzoukas
@@ -2222,13 +2357,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Jason Mantzoukas
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Jason Mantzoukas
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Jason Mantzoukas
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## JB Smoove
@@ -2305,6 +2467,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## JB Smoove
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## JB Smoove
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## JB Smoove
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -2314,11 +2494,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## JB Smoove
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## JB Smoove
@@ -2332,11 +2512,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## JB Smoove
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Madison Pettis
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Madison Pettis
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Madison Pettis
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Madison Pettis
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Madison Pettis
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Madison Pettis
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Madison Pettis
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Madison Pettis
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Madison Pettis
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Madison Pettis
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Madison Pettis
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Madison Pettis
@@ -2350,96 +2629,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Madison Pettis
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Madison Pettis
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Madison Pettis
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Madison Pettis
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Madison Pettis
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Madison Pettis
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Madison Pettis
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Madison Pettis
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Madison Pettis
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Madison Pettis
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Madison Pettis
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -2449,20 +2638,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Madison Pettis
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Austin Butler
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Austin Butler
@@ -2539,29 +2719,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Austin Butler
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Austin Butler
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Austin Butler
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Austin Butler
@@ -2573,13 +2735,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Austin Butler
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Austin Butler
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Austin Butler
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Mark Zuckerberg
@@ -2656,6 +2845,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Mark Zuckerberg
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Mark Zuckerberg
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Mark Zuckerberg
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -2665,11 +2872,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Mark Zuckerberg
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Mark Zuckerberg
@@ -2683,11 +2890,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Mark Zuckerberg
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Ariana Grande
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Ariana Grande
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Ariana Grande
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Ariana Grande
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Ariana Grande
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Ariana Grande
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Ariana Grande
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Ariana Grande
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Ariana Grande
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Ariana Grande
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Ariana Grande
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Ariana Grande
@@ -2701,96 +3007,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Ariana Grande
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Ariana Grande
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Ariana Grande
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Ariana Grande
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Ariana Grande
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Ariana Grande
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Ariana Grande
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Ariana Grande
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Ariana Grande
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Ariana Grande
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Ariana Grande
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -2800,20 +3016,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Ariana Grande
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Livvy Dunne
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Livvy Dunne
@@ -2890,29 +3097,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Livvy Dunne
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Livvy Dunne
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Livvy Dunne
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Livvy Dunne
@@ -2924,13 +3113,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Livvy Dunne
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Livvy Dunne
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Livvy Dunne
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Ali Wong
@@ -3007,6 +3223,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Ali Wong
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Ali Wong
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Ali Wong
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -3016,11 +3250,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Ali Wong
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Ali Wong
@@ -3034,11 +3268,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Ali Wong
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Lizzo
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Lizzo
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Lizzo
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Lizzo
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Lizzo
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Lizzo
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Lizzo
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Lizzo
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Lizzo
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Lizzo
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Lizzo
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Lizzo
@@ -3052,96 +3385,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Lizzo
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Lizzo
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Lizzo
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Lizzo
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Lizzo
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Lizzo
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Lizzo
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Lizzo
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Lizzo
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Lizzo
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Lizzo
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -3151,20 +3394,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Lizzo
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Alison Brie
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Alison Brie
@@ -3241,29 +3475,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Alison Brie
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Alison Brie
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Alison Brie
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Alison Brie
@@ -3275,13 +3491,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Alison Brie
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Alison Brie
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Alison Brie
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lil Wayne
@@ -3358,6 +3601,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Lil Wayne
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Lil Wayne
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Lil Wayne
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -3367,11 +3628,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Lil Wayne
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Lil Wayne
@@ -3385,11 +3646,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Lil Wayne
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Adele
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Adele
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Adele
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Adele
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Adele
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Adele
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Adele
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Adele
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Adele
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Adele
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Adele
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Adele
@@ -3403,96 +3763,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Adele
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Adele
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Adele
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Adele
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Adele
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Adele
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Adele
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Adele
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Adele
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Adele
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Adele
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -3502,20 +3772,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Adele
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Lindsay Lohan
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lindsay Lohan
@@ -3592,29 +3853,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Lindsay Lohan
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Lindsay Lohan
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Lindsay Lohan
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Lindsay Lohan
@@ -3626,13 +3869,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Lindsay Lohan
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Lindsay Lohan
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Lindsay Lohan
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Addison Rae
@@ -3709,6 +3979,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Addison Rae
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Addison Rae
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Addison Rae
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -3718,11 +4006,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Addison Rae
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Addison Rae
@@ -3736,11 +4024,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Addison Rae
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Latto
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Latto
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Latto
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Latto
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Latto
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Latto
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Latto
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Latto
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Latto
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Latto
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Latto
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Latto
@@ -3754,96 +4141,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Latto
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Latto
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Latto
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Latto
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Latto
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Latto
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Latto
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Latto
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Latto
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Latto
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Latto
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -3853,20 +4150,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Latto
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Aaron Paul
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Aaron Paul
@@ -3943,29 +4231,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Aaron Paul
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Aaron Paul
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Aaron Paul
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Aaron Paul
@@ -3977,13 +4247,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Aaron Paul
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Aaron Paul
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Aaron Paul
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## LeBron James
@@ -4060,6 +4357,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## LeBron James
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## LeBron James
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## LeBron James
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -4069,11 +4384,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## LeBron James
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## LeBron James
@@ -4087,11 +4402,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## LeBron James
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## 50 Cent
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## 50 Cent
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## 50 Cent
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## 50 Cent
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## 50 Cent
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## 50 Cent
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## 50 Cent
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## 50 Cent
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## 50 Cent
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## 50 Cent
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## 50 Cent
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## 50 Cent
@@ -4105,96 +4519,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## 50 Cent
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## 50 Cent
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## 50 Cent
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## 50 Cent
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## 50 Cent
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## 50 Cent
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## 50 Cent
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## 50 Cent
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## 50 Cent
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## 50 Cent
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## 50 Cent
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -4204,20 +4528,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## 50 Cent
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Kesha
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kesha
@@ -4294,29 +4609,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Kesha
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Kesha
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Kesha
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Kesha
@@ -4328,13 +4625,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Kesha
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Kesha
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Kesha
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## 21 Savage
@@ -4411,6 +4735,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## 21 Savage
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## 21 Savage
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## 21 Savage
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -4420,11 +4762,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## 21 Savage
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## 21 Savage
@@ -4438,11 +4780,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## 21 Savage
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Larry David
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Larry David
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Larry David
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Larry David
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Larry David
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Larry David
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Larry David
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Larry David
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Larry David
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Larry David
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Larry David
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Larry David
@@ -4456,96 +4897,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Larry David
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Larry David
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Larry David
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Larry David
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Larry David
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Larry David
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Larry David
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Larry David
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Larry David
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Larry David
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Larry David
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -4555,20 +4906,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Larry David
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Seth Rogan
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Seth Rogan
@@ -4645,29 +4987,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Seth Rogan
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Seth Rogan
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Seth Rogan
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Seth Rogan
@@ -4679,13 +5003,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Seth Rogan
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Seth Rogan
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Seth Rogan
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Simone Biles
@@ -4762,6 +5113,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Simone Biles
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Simone Biles
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Simone Biles
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -4771,11 +5140,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Simone Biles
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Simone Biles
@@ -4789,11 +5158,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Simone Biles
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Pete Davidson
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Pete Davidson
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Pete Davidson
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Pete Davidson
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Pete Davidson
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Pete Davidson
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Pete Davidson
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Pete Davidson
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Pete Davidson
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Pete Davidson
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Pete Davidson
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Pete Davidson
@@ -4807,96 +5275,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Pete Davidson
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Pete Davidson
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Pete Davidson
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Pete Davidson
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Pete Davidson
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Pete Davidson
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Pete Davidson
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Pete Davidson
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Pete Davidson
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Pete Davidson
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Pete Davidson
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -4906,20 +5284,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Pete Davidson
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Prince Harry
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Prince Harry
@@ -4996,29 +5365,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Prince Harry
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Prince Harry
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Prince Harry
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Prince Harry
@@ -5030,13 +5381,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Prince Harry
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Prince Harry
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Prince Harry
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Princess of Wales
@@ -5113,6 +5491,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Princess of Wales
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Princess of Wales
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Princess of Wales
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -5122,11 +5518,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Princess of Wales
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Princess of Wales
@@ -5140,11 +5536,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Princess of Wales
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Rachel McAdams
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Rachel McAdams
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Rachel McAdams
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Rachel McAdams
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Rachel McAdams
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Rachel McAdams
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Rachel McAdams
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Rachel McAdams
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Rachel McAdams
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Rachel McAdams
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Rachel McAdams
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Rachel McAdams
@@ -5158,96 +5653,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Rachel McAdams
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Rachel McAdams
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Rachel McAdams
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Rachel McAdams
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Rachel McAdams
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Rachel McAdams
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Rachel McAdams
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Rachel McAdams
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Rachel McAdams
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Rachel McAdams
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Rachel McAdams
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -5257,20 +5662,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Rachel McAdams
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Reneé Rapp
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Reneé Rapp
@@ -5347,29 +5743,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Reneé Rapp
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Reneé Rapp
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Reneé Rapp
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Reneé Rapp
@@ -5381,13 +5759,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Reneé Rapp
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Reneé Rapp
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Reneé Rapp
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Rick Ross
@@ -5464,6 +5869,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Rick Ross
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Rick Ross
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Rick Ross
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -5473,11 +5896,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Rick Ross
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Rick Ross
@@ -5491,11 +5914,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Rick Ross
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Sam Ashgari
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Sam Ashgari
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Sam Ashgari
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Sam Ashgari
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Sam Ashgari
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Sam Ashgari
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Sam Ashgari
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Sam Ashgari
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Sam Ashgari
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Sam Ashgari
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Sam Ashgari
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Sam Ashgari
@@ -5509,96 +6031,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Sam Ashgari
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Sam Ashgari
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Sam Ashgari
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Sam Ashgari
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sam Ashgari
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Sam Ashgari
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Sam Ashgari
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Sam Ashgari
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Sam Ashgari
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Sam Ashgari
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Sam Ashgari
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -5608,20 +6040,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Sam Ashgari
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Sandra Oh
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sandra Oh
@@ -5698,29 +6121,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Sandra Oh
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Sandra Oh
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Sandra Oh
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Sandra Oh
@@ -5732,13 +6137,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Sandra Oh
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Sandra Oh
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Sandra Oh
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Donald Trump
@@ -5815,6 +6247,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Donald Trump
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Donald Trump
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Donald Trump
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -5824,11 +6274,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Donald Trump
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Donald Trump
@@ -5842,11 +6292,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Donald Trump
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Diddy
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Diddy
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Diddy
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Diddy
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Diddy
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Diddy
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Diddy
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Diddy
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Diddy
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Diddy
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Diddy
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Diddy
@@ -5860,96 +6409,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Diddy
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Diddy
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Diddy
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Diddy
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Diddy
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Diddy
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Diddy
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Diddy
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Diddy
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Diddy
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Diddy
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -5959,20 +6418,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Diddy
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## City Girls
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## City Girls
@@ -6049,29 +6499,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## City Girls
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## City Girls
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## City Girls
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## City Girls
@@ -6083,13 +6515,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## City Girls
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## City Girls
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## City Girls
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Chloe Bailey
@@ -6166,6 +6625,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Chloe Bailey
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Chloe Bailey
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Chloe Bailey
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -6175,11 +6652,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Chloe Bailey
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Chloe Bailey
@@ -6193,11 +6670,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Chloe Bailey
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Charli D Amelio
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Charli D Amelio
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Charli D Amelio
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Charli D Amelio
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Charli D Amelio
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Charli D Amelio
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Charli D Amelio
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Charli D Amelio
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Charli D Amelio
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Charli D Amelio
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Charli D Amelio
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Charli D Amelio
@@ -6211,96 +6787,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Charli D Amelio
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Charli D Amelio
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Charli D Amelio
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Charli D Amelio
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Charli D Amelio
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Charli D Amelio
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Charli D Amelio
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Charli D Amelio
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Charli D Amelio
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Charli D Amelio
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Charli D Amelio
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -6310,20 +6796,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Charli D Amelio
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Cardi B
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Cardi B
@@ -6400,29 +6877,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Cardi B
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Cardi B
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Cardi B
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Cardi B
@@ -6434,13 +6893,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Cardi B
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Cardi B
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Cardi B
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bryan Cranston
@@ -6517,6 +7003,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Bryan Cranston
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Bryan Cranston
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Bryan Cranston
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -6526,11 +7030,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Bryan Cranston
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Bryan Cranston
@@ -6544,11 +7048,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Bryan Cranston
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Brielle Biermann
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Brielle Biermann
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Brielle Biermann
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Brielle Biermann
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Brielle Biermann
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Brielle Biermann
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Brielle Biermann
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Brielle Biermann
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Brielle Biermann
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Brielle Biermann
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Brielle Biermann
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Brielle Biermann
@@ -6562,96 +7165,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Brielle Biermann
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Brielle Biermann
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Brielle Biermann
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Brielle Biermann
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Brielle Biermann
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Brielle Biermann
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Brielle Biermann
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Brielle Biermann
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Brielle Biermann
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Brielle Biermann
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Brielle Biermann
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -6661,20 +7174,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Brielle Biermann
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Dua Lipa
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Dua Lipa
@@ -6751,29 +7255,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Dua Lipa
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Dua Lipa
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Dua Lipa
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Dua Lipa
@@ -6785,13 +7271,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Dua Lipa
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Dua Lipa
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Dua Lipa
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Drake
@@ -6868,6 +7381,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Drake
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Drake
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Drake
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -6877,11 +7408,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Drake
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Drake
@@ -6895,11 +7426,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Drake
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Jenner
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Jenner
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Jenner
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Jenner
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Jenner
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jenner
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Jenner
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Jenner
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Jenner
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Jenner
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Jenner
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Jenner
@@ -6913,96 +7543,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Jenner
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Jenner
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Jenner
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Jenner
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jenner
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Jenner
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Jenner
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Jenner
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Jenner
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jenner
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Jenner
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -7012,20 +7552,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Jenner
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## J. Cole
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J. Cole
@@ -7102,29 +7633,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## J. Cole
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## J. Cole
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## J. Cole
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## J. Cole
@@ -7136,13 +7649,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## J. Cole
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## J. Cole
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## J. Cole
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jerrod Carmichael
@@ -7219,6 +7759,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Jerrod Carmichael
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Jerrod Carmichael
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Jerrod Carmichael
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -7228,11 +7786,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Jerrod Carmichael
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Jerrod Carmichael
@@ -7246,11 +7804,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Jerrod Carmichael
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Jennifer Lawrence
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Jennifer Lawrence
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Jennifer Lawrence
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Jennifer Lawrence
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jennifer Lawrence
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Jennifer Lawrence
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Jennifer Lawrence
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Jennifer Lawrence
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Jennifer Lawrence
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Jennifer Lawrence
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Jennifer Lawrence
@@ -7264,96 +7921,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Jennifer Lawrence
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Jennifer Lawrence
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Jennifer Lawrence
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jennifer Lawrence
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Jennifer Lawrence
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Jennifer Lawrence
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Jennifer Lawrence
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Jennifer Lawrence
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Jennifer Lawrence
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Jennifer Lawrence
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -7363,20 +7930,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Jennifer Lawrence
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Joe Biden
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Joe Biden
@@ -7453,29 +8011,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Joe Biden
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Joe Biden
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Joe Biden
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Joe Biden
@@ -7487,13 +8027,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Joe Biden
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Joe Biden
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Joe Biden
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J.K. Simmons
@@ -7570,6 +8137,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## J.K. Simmons
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## J.K. Simmons
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## J.K. Simmons
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -7579,11 +8164,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## J.K. Simmons
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## J.K. Simmons
@@ -7597,11 +8182,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## J.K. Simmons
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Kamala Harris
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Kamala Harris
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Kamala Harris
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Kamala Harris
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Kamala Harris
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Kamala Harris
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Kamala Harris
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Kamala Harris
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Kamala Harris
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Kamala Harris
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Kamala Harris
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Kamala Harris
@@ -7615,96 +8299,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Kamala Harris
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Kamala Harris
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Kamala Harris
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Kamala Harris
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Kamala Harris
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Kamala Harris
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Kamala Harris
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Kamala Harris
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Kamala Harris
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Kamala Harris
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Kamala Harris
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -7714,20 +8308,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Kamala Harris
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## John C Reilly
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## John C Reilly
@@ -7804,29 +8389,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## John C Reilly
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## John C Reilly
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## John C Reilly
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## John C Reilly
@@ -7838,13 +8405,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## John C Reilly
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## John C Reilly
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## John C Reilly
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kardashian
@@ -7921,6 +8515,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Kardashian
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Kardashian
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Kardashian
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -7930,11 +8542,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Kardashian
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Kardashian
@@ -7948,11 +8560,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Kardashian
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Kanye
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Kanye
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Kanye
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Kanye
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Kanye
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Kanye
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Kanye
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Kanye
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Kanye
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Kanye
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Kanye
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Kanye
@@ -7966,96 +8677,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Kanye
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Kanye
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Kanye
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Kanye
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Kanye
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Kanye
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Kanye
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Kanye
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Kanye
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Kanye
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Kanye
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -8065,20 +8686,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Kanye
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Zendaya
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Zendaya
@@ -8155,29 +8767,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Zendaya
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Zendaya
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Zendaya
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Zendaya
@@ -8189,13 +8783,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Zendaya
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Zendaya
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Zendaya
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Will Ferrell
@@ -8272,6 +8893,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Will Ferrell
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Will Ferrell
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Will Ferrell
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -8281,11 +8920,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Will Ferrell
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Will Ferrell
@@ -8299,11 +8938,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Will Ferrell
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Zazie Beetz
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Zazie Beetz
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Zazie Beetz
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Zazie Beetz
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Zazie Beetz
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Zazie Beetz
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Zazie Beetz
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Zazie Beetz
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Zazie Beetz
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Zazie Beetz
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Zazie Beetz
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Zazie Beetz
@@ -8317,96 +9055,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Zazie Beetz
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Zazie Beetz
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Zazie Beetz
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Zazie Beetz
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Zazie Beetz
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Zazie Beetz
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Zazie Beetz
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Zazie Beetz
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Zazie Beetz
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Zazie Beetz
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Zazie Beetz
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -8416,20 +9064,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Zazie Beetz
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Bob Odenkirk
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bob Odenkirk
@@ -8506,29 +9145,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Bob Odenkirk
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Bob Odenkirk
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Bob Odenkirk
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Bob Odenkirk
@@ -8540,13 +9161,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Bob Odenkirk
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Bob Odenkirk
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Bob Odenkirk
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Brad Pitt
@@ -8623,6 +9271,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Brad Pitt
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Brad Pitt
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Brad Pitt
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -8632,11 +9298,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Brad Pitt
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Brad Pitt
@@ -8650,11 +9316,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Brad Pitt
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Beyoncé
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Beyoncé
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Beyoncé
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Beyoncé
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Beyoncé
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Beyoncé
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Beyoncé
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Beyoncé
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Beyoncé
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Beyoncé
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Beyoncé
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Beyoncé
@@ -8668,96 +9433,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Beyoncé
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Beyoncé
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Beyoncé
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Beyoncé
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Beyoncé
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Beyoncé
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Beyoncé
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Beyoncé
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Beyoncé
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Beyoncé
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Beyoncé
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -8767,20 +9442,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Beyoncé
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Bia
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bia
@@ -8857,29 +9523,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Bia
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Bia
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Bia
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Bia
@@ -8891,13 +9539,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Avantika
+## Bia
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Bia
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Bia
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Bia
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Avantika
@@ -8974,6 +9649,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Avantika
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Avantika
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Avantika
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -8983,11 +9676,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Avantika
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Avantika
@@ -9001,11 +9694,110 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Avantika
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Bernie Sanders
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Bernie Sanders
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Bernie Sanders
+
+## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Bernie Sanders
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
+
+
+## Bernie Sanders
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Bernie Sanders
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
+
+
+## Bernie Sanders
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
+
+
+## Bernie Sanders
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Bernie Sanders
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Bernie Sanders
+
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
 In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Bernie Sanders
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
 ## Bernie Sanders
@@ -9019,96 +9811,6 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Bernie Sanders
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Bernie Sanders
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Bernie Sanders
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Bernie Sanders
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bernie Sanders
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Bernie Sanders
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Bernie Sanders
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
-
-
-## Bernie Sanders
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Bernie Sanders
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Bernie Sanders
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Bernie Sanders
-
 ## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
@@ -9118,20 +9820,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Bernie Sanders
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Big Sean
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Big Sean
@@ -9208,29 +9901,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Big Sean
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Big Sean
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Big Sean
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Big Sean
@@ -9242,13 +9917,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Big Sean
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Big Sean
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Big Sean
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## BlockBoy JB
@@ -9325,29 +10027,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## BlockBoy JB
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## BlockBoy JB
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## BlockBoy JB
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## BlockBoy JB
@@ -9359,13 +10043,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Biden
+## BlockBoy JB
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## BlockBoy JB
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## BlockBoy JB
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## BlockBoy JB
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Biden
@@ -9442,29 +10153,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Biden
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Biden
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Biden
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Biden
@@ -9476,13 +10169,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Bieber
+## Biden
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Biden
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Biden
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Biden
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bieber
@@ -9559,29 +10279,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Bieber
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Bieber
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Bieber
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Bieber
@@ -9593,13 +10295,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Bieber
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Bieber
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Bieber
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Paulina Porizkov
@@ -9676,29 +10405,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Paulina Porizkov
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Paulina Porizkov
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Paulina Porizkov
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Paulina Porizkov
@@ -9710,13 +10421,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Paulina Porizkov
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Paulina Porizkov
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Paulina Porizkov
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Paris Hilton
@@ -9793,29 +10531,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Paris Hilton
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Paris Hilton
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Paris Hilton
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Paris Hilton
@@ -9827,13 +10547,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Paris Hilton
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Paris Hilton
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Paris Hilton
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Metro Boomin
@@ -9910,29 +10657,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Metro Boomin
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Metro Boomin
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Metro Boomin
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Metro Boomin
@@ -9944,13 +10673,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Metro Boomin
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Metro Boomin
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Metro Boomin
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Meghan Markle
@@ -10027,29 +10783,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Meghan Markle
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Meghan Markle
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Meghan Markle
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Meghan Markle
@@ -10061,13 +10799,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Meghan Markle
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Meghan Markle
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Meghan Markle
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Megan Thee Stallion
@@ -10144,29 +10909,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Megan Thee Stallion
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Megan Thee Stallion
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Megan Thee Stallion
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Megan Thee Stallion
@@ -10178,13 +10925,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Megan Thee Stallion
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Megan Thee Stallion
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Megan Thee Stallion
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Maya Rudolph
@@ -10261,29 +11035,11 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Maya Rudolph
 
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Maya Rudolph
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Maya Rudolph
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Maya Rudolph
@@ -10295,13 +11051,40 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Maya Rudolph
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Maya Rudolph
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Maya Rudolph
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Olivia Rodrigo
@@ -10378,6 +11161,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Olivia Rodrigo
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Olivia Rodrigo
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Olivia Rodrigo
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -10387,11 +11188,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Olivia Rodrigo
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Olivia Rodrigo
@@ -10405,20 +11206,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Olivia Rodrigo
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Obama
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Obama
@@ -10495,6 +11287,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Obama
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Obama
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Obama
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -10504,11 +11314,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Obama
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Obama
@@ -10522,20 +11332,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Obama
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Nicki Minaj
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Nicki Minaj
@@ -10612,6 +11413,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## Nicki Minaj
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Nicki Minaj
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Nicki Minaj
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -10621,11 +11440,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## Nicki Minaj
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Nicki Minaj
@@ -10639,20 +11458,11 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## Nicki Minaj
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## MrBeast
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## MrBeast
@@ -10729,6 +11539,24 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 
 ## MrBeast
 
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## MrBeast
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## MrBeast
+
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
@@ -10738,11 +11566,11 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 
 ## MrBeast
 
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## MrBeast
@@ -10756,10 +11584,10 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 
 ## MrBeast
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
 
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
