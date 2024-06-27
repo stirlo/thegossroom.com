@@ -89,6 +89,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Tim Cook
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Taylor Swift
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -177,6 +186,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Taylor Swift
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Tom Brady
@@ -269,6 +287,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Tom Brady
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Tina Fey
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -357,6 +384,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Tina Fey
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Steven Yuen
@@ -449,6 +485,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Steven Yuen
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Sommer Ray
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -537,6 +582,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Sommer Ray
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sza
@@ -629,6 +683,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Sza
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -717,6 +780,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Sydney Sweeney
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Walton Goggins
@@ -809,6 +881,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Walton Goggins
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Tom Holland
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -897,6 +978,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Tom Holland
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Gucci Mane
@@ -989,6 +1079,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Gucci Mane
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Harry Styles
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -1077,6 +1176,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Harry Styles
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jake Paul
@@ -1169,6 +1277,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Jake Paul
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Jameela Jamil
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -1257,6 +1374,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Jameela Jamil
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Elon Musk
@@ -1349,6 +1475,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Elon Musk
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Gabrielle Union
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -1437,6 +1572,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Gabrielle Union
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Giancarlo Esposito
@@ -1529,6 +1673,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Giancarlo Esposito
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -1617,6 +1770,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Gillian Jacobs
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jason Mantzoukas
@@ -1709,6 +1871,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Jason Mantzoukas
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## JB Smoove
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -1797,6 +1968,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## JB Smoove
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Madison Pettis
@@ -1889,6 +2069,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Madison Pettis
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Austin Butler
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -1977,6 +2166,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Austin Butler
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Mark Zuckerberg
@@ -2069,6 +2267,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Mark Zuckerberg
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Ariana Grande
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -2157,6 +2364,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Ariana Grande
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Livvy Dunne
@@ -2249,6 +2465,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Livvy Dunne
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Ali Wong
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -2337,6 +2562,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Ali Wong
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lizzo
@@ -2429,6 +2663,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Lizzo
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Alison Brie
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -2517,6 +2760,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Alison Brie
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lil Wayne
@@ -2609,6 +2861,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Lil Wayne
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Adele
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -2697,6 +2958,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Adele
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Lindsay Lohan
@@ -2789,6 +3059,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Lindsay Lohan
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Addison Rae
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -2877,6 +3156,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Addison Rae
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Latto
@@ -2969,6 +3257,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Latto
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Aaron Paul
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -3057,6 +3354,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Aaron Paul
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## LeBron James
@@ -3149,6 +3455,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## LeBron James
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## 50 Cent
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -3237,6 +3552,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## 50 Cent
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kesha
@@ -3329,6 +3653,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Kesha
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## 21 Savage
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -3417,6 +3750,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## 21 Savage
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Larry David
@@ -3509,6 +3851,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Larry David
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Seth Rogan
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -3597,6 +3948,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Seth Rogan
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Simone Biles
@@ -3689,6 +4049,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Simone Biles
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Pete Davidson
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -3777,6 +4146,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Pete Davidson
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Prince Harry
@@ -3869,6 +4247,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Prince Harry
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Princess of Wales
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -3957,6 +4344,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Princess of Wales
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Rachel McAdams
@@ -4049,6 +4445,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Rachel McAdams
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Reneé Rapp
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -4137,6 +4542,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Reneé Rapp
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Rick Ross
@@ -4229,6 +4643,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Rick Ross
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Sam Ashgari
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -4317,6 +4740,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Sam Ashgari
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Sandra Oh
@@ -4409,6 +4841,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Sandra Oh
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Donald Trump
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -4497,6 +4938,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Donald Trump
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Diddy
@@ -4589,6 +5039,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Diddy
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## City Girls
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -4677,6 +5136,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## City Girls
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Chloe Bailey
@@ -4769,6 +5237,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Chloe Bailey
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Charli D Amelio
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -4857,6 +5334,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Charli D Amelio
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Cardi B
@@ -4949,6 +5435,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Cardi B
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Bryan Cranston
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -5037,6 +5532,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Bryan Cranston
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Brielle Biermann
@@ -5129,6 +5633,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Brielle Biermann
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Dua Lipa
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -5217,6 +5730,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Dua Lipa
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Drake
@@ -5309,6 +5831,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Drake
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Jenner
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -5397,6 +5928,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Jenner
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J. Cole
@@ -5489,6 +6029,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## J. Cole
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -5577,6 +6126,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Jerrod Carmichael
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Jennifer Lawrence
@@ -5669,6 +6227,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Jennifer Lawrence
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Joe Biden
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -5757,6 +6324,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Joe Biden
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## J.K. Simmons
@@ -5849,6 +6425,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## J.K. Simmons
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Kamala Harris
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -5937,6 +6522,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Kamala Harris
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## John C Reilly
@@ -6029,6 +6623,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## John C Reilly
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Kardashian
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -6117,6 +6720,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Kardashian
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Kanye
@@ -6209,6 +6821,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Kanye
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Zendaya
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -6297,6 +6918,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Zendaya
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Will Ferrell
@@ -6389,6 +7019,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Will Ferrell
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Zazie Beetz
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -6477,6 +7116,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Zazie Beetz
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Bob Odenkirk
@@ -6569,6 +7217,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Bob Odenkirk
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Brad Pitt
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -6657,6 +7314,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Brad Pitt
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Beyoncé
@@ -6749,6 +7415,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Beyoncé
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Bia
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -6837,6 +7512,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Bia
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Avantika
@@ -6929,6 +7613,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Avantika
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Bernie Sanders
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -7017,6 +7710,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Bernie Sanders
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Big Sean
@@ -7109,6 +7811,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Big Sean
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## BlockBoy JB
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -7197,6 +7908,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## BlockBoy JB
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Biden
@@ -7289,6 +8009,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Biden
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Bieber
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -7377,6 +8106,15 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Bieber
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
 ## Paulina Porizkov
@@ -7469,6 +8207,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Paulina Porizkov
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Paris Hilton
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -7559,6 +8306,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Paris Hilton
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Metro Boomin
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -7649,6 +8405,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Metro Boomin
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Meghan Markle
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -7739,6 +8504,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Meghan Markle
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Megan Thee Stallion
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -7829,6 +8603,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Megan Thee Stallion
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Maya Rudolph
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -7919,6 +8702,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Maya Rudolph
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -8009,6 +8801,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Olivia Rodrigo
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Obama
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -8099,6 +8900,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Obama
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## Nicki Minaj
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -8189,6 +8999,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
+## Nicki Minaj
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
 ## MrBeast
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
@@ -8277,5 +9096,14 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## MrBeast
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
