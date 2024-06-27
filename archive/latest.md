@@ -1,24 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Tim Cook
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Tim Cook
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -55,6 +37,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Tim Cook
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Tim Cook
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -82,29 +73,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Tim Cook
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Tim Cook
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Tim Cook
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Tim Cook
@@ -116,88 +89,7 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Taylor Swift
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Taylor Swift
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Taylor Swift
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
-
-*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
-
-
-## Taylor Swift
-
-## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
-
-
-## Taylor Swift
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Wed, 26 Jun 2024 15:16:59 GMT*
-
-
-## Taylor Swift
-
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Taylor Swift
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
-
-
-## Taylor Swift
-
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Taylor Swift
-
-## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
-
-AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
-
-*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
-
-
-## Taylor Swift
+## Tim Cook
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -206,16 +98,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -226,33 +118,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Taylor Swift
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Tom Brady
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Tom Brady
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Tom Brady
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -260,7 +125,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -269,7 +134,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -278,7 +143,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -287,7 +152,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Taylor Swift
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -296,7 +170,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -305,7 +179,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -314,7 +188,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Taylor Swift
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Taylor Swift
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -323,16 +215,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -343,33 +235,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Tom Brady
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Tina Fey
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Tina Fey
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Tina Fey
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -377,7 +242,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -386,7 +251,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -395,7 +260,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -404,7 +269,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Tom Brady
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -413,7 +287,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -422,7 +296,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -431,7 +305,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Tom Brady
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Tom Brady
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -440,16 +332,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -460,33 +352,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Tina Fey
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Steven Yuen
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Steven Yuen
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Steven Yuen
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -494,7 +359,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -503,7 +368,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -512,7 +377,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -521,7 +386,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Tina Fey
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -530,7 +404,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -539,7 +413,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -548,7 +422,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Tina Fey
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Tina Fey
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -557,16 +449,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -577,33 +469,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Steven Yuen
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Sommer Ray
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Sommer Ray
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Sommer Ray
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -611,7 +476,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -620,7 +485,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -629,7 +494,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -638,7 +503,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Steven Yuen
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -647,7 +521,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -656,7 +530,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -665,7 +539,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Steven Yuen
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Steven Yuen
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -674,16 +566,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -694,33 +586,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Sommer Ray
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Sza
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Sza
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Sza
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -728,7 +593,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Sza
+## Sommer Ray
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -737,7 +602,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Sza
+## Sommer Ray
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -746,7 +611,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Sza
+## Sommer Ray
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -755,7 +620,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Sommer Ray
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -764,7 +638,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Sza
+## Sommer Ray
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -773,7 +647,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Sza
+## Sommer Ray
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -782,7 +656,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Sommer Ray
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -791,16 +683,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Sza
+## Sommer Ray
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -811,33 +703,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Sza
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Sydney Sweeney
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Sydney Sweeney
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Sydney Sweeney
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -845,7 +710,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -854,7 +719,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -863,7 +728,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -872,7 +737,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Sza
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -881,7 +755,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -890,7 +764,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -899,7 +773,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Sza
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Sza
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -908,16 +800,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -928,33 +820,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Sydney Sweeney
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Walton Goggins
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Walton Goggins
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Walton Goggins
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -962,7 +827,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -971,7 +836,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -980,7 +845,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -989,7 +854,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Sydney Sweeney
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -998,7 +872,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -1007,7 +881,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -1016,7 +890,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Sydney Sweeney
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -1025,16 +917,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -1045,33 +937,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Walton Goggins
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Tom Holland
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Tom Holland
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Tom Holland
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -1079,7 +944,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1088,7 +953,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -1097,7 +962,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -1106,7 +971,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Walton Goggins
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1115,7 +989,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -1124,7 +998,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -1133,7 +1007,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Walton Goggins
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -1142,16 +1034,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -1162,33 +1054,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Tom Holland
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Gucci Mane
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Gucci Mane
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Gucci Mane
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -1196,7 +1061,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1205,7 +1070,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -1214,7 +1079,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -1223,7 +1088,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Tom Holland
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1232,7 +1106,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -1241,7 +1115,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -1250,7 +1124,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Tom Holland
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Tom Holland
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -1259,16 +1151,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -1279,33 +1171,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Gucci Mane
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Harry Styles
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Harry Styles
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Harry Styles
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -1313,7 +1178,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1322,7 +1187,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -1331,7 +1196,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -1340,7 +1205,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Harry Styles
+## Gucci Mane
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Gucci Mane
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1349,7 +1223,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -1358,7 +1232,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -1367,7 +1241,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Harry Styles
+## Gucci Mane
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Gucci Mane
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Gucci Mane
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -1376,16 +1268,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -1396,33 +1288,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Harry Styles
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Jake Paul
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Jake Paul
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Jake Paul
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -1430,7 +1295,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1439,7 +1304,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -1448,7 +1313,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -1457,7 +1322,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Jake Paul
+## Harry Styles
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Harry Styles
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1466,7 +1340,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -1475,7 +1349,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -1484,7 +1358,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Jake Paul
+## Harry Styles
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Harry Styles
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Harry Styles
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -1493,16 +1385,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -1513,33 +1405,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Jake Paul
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Jameela Jamil
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Jameela Jamil
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Jameela Jamil
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -1547,7 +1412,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1556,7 +1421,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -1565,7 +1430,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -1574,7 +1439,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Jake Paul
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1583,7 +1457,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -1592,7 +1466,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -1601,7 +1475,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Jake Paul
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Jake Paul
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -1610,16 +1502,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -1630,33 +1522,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Jameela Jamil
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Elon Musk
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Elon Musk
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Elon Musk
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -1664,7 +1529,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1673,7 +1538,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -1682,7 +1547,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -1691,7 +1556,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Jameela Jamil
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1700,7 +1574,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -1709,7 +1583,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -1718,7 +1592,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Jameela Jamil
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Jameela Jamil
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -1727,16 +1619,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -1747,33 +1639,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Elon Musk
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Gabrielle Union
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Gabrielle Union
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Gabrielle Union
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -1781,7 +1646,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1790,7 +1655,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -1799,7 +1664,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -1808,7 +1673,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Elon Musk
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1817,7 +1691,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -1826,7 +1700,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -1835,7 +1709,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Elon Musk
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Elon Musk
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -1844,16 +1736,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -1864,33 +1756,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Gabrielle Union
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Giancarlo Esposito
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Giancarlo Esposito
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -1898,7 +1763,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -1907,7 +1772,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -1916,7 +1781,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -1925,7 +1790,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Gabrielle Union
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1934,7 +1808,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -1943,7 +1817,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -1952,7 +1826,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Gabrielle Union
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Gabrielle Union
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -1961,16 +1853,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -1981,33 +1873,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Giancarlo Esposito
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Gillian Jacobs
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Gillian Jacobs
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -2015,7 +1880,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2024,7 +1889,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -2033,7 +1898,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -2042,7 +1907,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Giancarlo Esposito
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2051,7 +1925,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -2060,7 +1934,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -2069,7 +1943,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Giancarlo Esposito
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -2078,16 +1970,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -2098,33 +1990,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Gillian Jacobs
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Jason Mantzoukas
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -2132,7 +1997,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2141,7 +2006,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -2150,7 +2015,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -2159,7 +2024,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Gillian Jacobs
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2168,7 +2042,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -2177,7 +2051,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -2186,7 +2060,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Gillian Jacobs
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -2195,16 +2087,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -2215,33 +2107,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Jason Mantzoukas
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## JB Smoove
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## JB Smoove
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## JB Smoove
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -2249,7 +2114,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2258,7 +2123,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -2267,7 +2132,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -2276,7 +2141,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Jason Mantzoukas
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2285,7 +2159,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -2294,7 +2168,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -2303,7 +2177,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Jason Mantzoukas
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -2312,16 +2204,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -2332,33 +2224,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## JB Smoove
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Madison Pettis
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Madison Pettis
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Madison Pettis
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -2366,7 +2231,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2375,7 +2240,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -2384,7 +2249,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -2393,7 +2258,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Madison Pettis
+## JB Smoove
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## JB Smoove
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2402,7 +2276,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -2411,7 +2285,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -2420,7 +2294,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Madison Pettis
+## JB Smoove
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## JB Smoove
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## JB Smoove
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -2429,16 +2321,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -2449,33 +2341,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Madison Pettis
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Austin Butler
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Austin Butler
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Austin Butler
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -2483,7 +2348,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2492,7 +2357,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -2501,7 +2366,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -2510,7 +2375,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Austin Butler
+## Madison Pettis
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Madison Pettis
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2519,7 +2393,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -2528,7 +2402,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -2537,7 +2411,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Austin Butler
+## Madison Pettis
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Madison Pettis
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -2546,16 +2438,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -2566,33 +2458,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Austin Butler
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Mark Zuckerberg
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Mark Zuckerberg
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -2600,7 +2465,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2609,7 +2474,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -2618,7 +2483,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -2627,7 +2492,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Austin Butler
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2636,7 +2510,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -2645,7 +2519,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -2654,7 +2528,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Austin Butler
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Austin Butler
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -2663,16 +2555,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -2683,33 +2575,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Mark Zuckerberg
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Ariana Grande
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Ariana Grande
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Ariana Grande
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -2717,7 +2582,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2726,7 +2591,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -2735,7 +2600,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -2744,7 +2609,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Mark Zuckerberg
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2753,7 +2627,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -2762,7 +2636,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -2771,7 +2645,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Mark Zuckerberg
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -2780,16 +2672,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -2800,33 +2692,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Ariana Grande
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Livvy Dunne
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Livvy Dunne
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Livvy Dunne
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -2834,7 +2699,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2843,7 +2708,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -2852,7 +2717,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -2861,7 +2726,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Ariana Grande
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2870,7 +2744,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -2879,7 +2753,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -2888,7 +2762,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Ariana Grande
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -2897,16 +2789,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -2917,33 +2809,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Livvy Dunne
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Ali Wong
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Ali Wong
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Ali Wong
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -2951,7 +2816,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -2960,7 +2825,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -2969,7 +2834,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -2978,7 +2843,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Livvy Dunne
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2987,7 +2861,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -2996,7 +2870,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -3005,7 +2879,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Livvy Dunne
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Livvy Dunne
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -3014,16 +2906,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -3034,33 +2926,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Ali Wong
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Lizzo
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Lizzo
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Lizzo
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -3068,7 +2933,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Lizzo
+## Ali Wong
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3077,7 +2942,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Lizzo
+## Ali Wong
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -3086,7 +2951,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Lizzo
+## Ali Wong
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -3095,7 +2960,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Lizzo
+## Ali Wong
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Ali Wong
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3104,7 +2978,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Lizzo
+## Ali Wong
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -3113,7 +2987,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Lizzo
+## Ali Wong
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -3122,7 +2996,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Lizzo
+## Ali Wong
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Ali Wong
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Ali Wong
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -3131,16 +3023,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Lizzo
+## Ali Wong
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -3151,33 +3043,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Lizzo
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Alison Brie
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Alison Brie
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Alison Brie
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -3185,7 +3050,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Alison Brie
+## Lizzo
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3194,7 +3059,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Alison Brie
+## Lizzo
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -3203,7 +3068,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Alison Brie
+## Lizzo
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -3212,7 +3077,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Alison Brie
+## Lizzo
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Lizzo
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3221,7 +3095,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Alison Brie
+## Lizzo
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -3230,7 +3104,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Alison Brie
+## Lizzo
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -3239,7 +3113,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Alison Brie
+## Lizzo
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Lizzo
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Lizzo
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -3248,16 +3140,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Alison Brie
+## Lizzo
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -3268,33 +3160,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Alison Brie
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Lil Wayne
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Lil Wayne
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Lil Wayne
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -3302,7 +3167,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3311,7 +3176,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -3320,7 +3185,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -3329,7 +3194,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Alison Brie
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3338,7 +3212,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -3347,7 +3221,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -3356,7 +3230,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Alison Brie
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Alison Brie
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -3365,16 +3257,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -3385,33 +3277,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Lil Wayne
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Adele
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Adele
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Adele
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -3419,7 +3284,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Adele
+## Lil Wayne
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3428,7 +3293,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Adele
+## Lil Wayne
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -3437,7 +3302,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Adele
+## Lil Wayne
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -3446,7 +3311,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Adele
+## Lil Wayne
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Lil Wayne
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3455,7 +3329,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Adele
+## Lil Wayne
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -3464,7 +3338,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Adele
+## Lil Wayne
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -3473,7 +3347,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Adele
+## Lil Wayne
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Lil Wayne
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Lil Wayne
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -3482,16 +3374,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Adele
+## Lil Wayne
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -3502,33 +3394,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Adele
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Lindsay Lohan
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Lindsay Lohan
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Lindsay Lohan
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -3536,7 +3401,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3545,7 +3410,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -3554,7 +3419,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -3563,7 +3428,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Lindsay Lohan
+## Adele
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Adele
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3572,7 +3446,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -3581,7 +3455,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -3590,7 +3464,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Lindsay Lohan
+## Adele
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Adele
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Adele
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -3599,16 +3491,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -3619,33 +3511,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Lindsay Lohan
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Addison Rae
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Addison Rae
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Addison Rae
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -3653,7 +3518,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3662,7 +3527,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -3671,7 +3536,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -3680,7 +3545,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Lindsay Lohan
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3689,7 +3563,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -3698,7 +3572,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -3707,7 +3581,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Lindsay Lohan
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -3716,16 +3608,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -3736,33 +3628,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Addison Rae
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Latto
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Latto
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Latto
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -3770,7 +3635,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Latto
+## Addison Rae
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3779,7 +3644,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Latto
+## Addison Rae
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -3788,7 +3653,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Latto
+## Addison Rae
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -3797,7 +3662,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Latto
+## Addison Rae
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Addison Rae
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3806,7 +3680,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Latto
+## Addison Rae
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -3815,7 +3689,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Latto
+## Addison Rae
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -3824,7 +3698,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Latto
+## Addison Rae
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Addison Rae
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Addison Rae
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -3833,16 +3725,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Latto
+## Addison Rae
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -3853,33 +3745,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Latto
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Aaron Paul
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Aaron Paul
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Aaron Paul
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -3887,7 +3752,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Aaron Paul
+## Latto
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -3896,7 +3761,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Aaron Paul
+## Latto
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -3905,7 +3770,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Aaron Paul
+## Latto
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -3914,7 +3779,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Aaron Paul
+## Latto
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Latto
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3923,7 +3797,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Aaron Paul
+## Latto
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -3932,7 +3806,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Aaron Paul
+## Latto
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -3941,7 +3815,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Aaron Paul
+## Latto
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Latto
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Latto
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -3950,16 +3842,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Aaron Paul
+## Latto
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -3970,33 +3862,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Aaron Paul
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## LeBron James
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## LeBron James
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## LeBron James
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -4004,7 +3869,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4013,7 +3878,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -4022,7 +3887,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -4031,7 +3896,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Aaron Paul
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4040,7 +3914,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -4049,7 +3923,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -4058,7 +3932,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Aaron Paul
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Aaron Paul
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -4067,16 +3959,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -4087,33 +3979,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## LeBron James
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## 50 Cent
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## 50 Cent
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## 50 Cent
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -4121,7 +3986,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## 50 Cent
+## LeBron James
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4130,7 +3995,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## 50 Cent
+## LeBron James
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -4139,7 +4004,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## 50 Cent
+## LeBron James
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -4148,7 +4013,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## 50 Cent
+## LeBron James
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## LeBron James
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4157,7 +4031,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## 50 Cent
+## LeBron James
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -4166,7 +4040,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## 50 Cent
+## LeBron James
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -4175,7 +4049,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## 50 Cent
+## LeBron James
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## LeBron James
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## LeBron James
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -4184,16 +4076,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## 50 Cent
+## LeBron James
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -4204,33 +4096,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## 50 Cent
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Kesha
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Kesha
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Kesha
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -4238,7 +4103,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Kesha
+## 50 Cent
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4247,7 +4112,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Kesha
+## 50 Cent
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -4256,7 +4121,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Kesha
+## 50 Cent
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -4265,7 +4130,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Kesha
+## 50 Cent
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## 50 Cent
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4274,7 +4148,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Kesha
+## 50 Cent
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -4283,7 +4157,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Kesha
+## 50 Cent
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -4292,7 +4166,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Kesha
+## 50 Cent
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## 50 Cent
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## 50 Cent
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -4301,16 +4193,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Kesha
+## 50 Cent
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -4321,33 +4213,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Kesha
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## 21 Savage
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## 21 Savage
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## 21 Savage
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -4355,7 +4220,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4364,7 +4229,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -4373,7 +4238,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -4382,7 +4247,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Kesha
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4391,7 +4265,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -4400,7 +4274,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -4409,7 +4283,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Kesha
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Kesha
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -4418,16 +4310,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -4438,33 +4330,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## 21 Savage
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Larry David
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Larry David
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Larry David
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -4472,7 +4337,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Larry David
+## 21 Savage
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4481,7 +4346,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Larry David
+## 21 Savage
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -4490,7 +4355,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Larry David
+## 21 Savage
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -4499,7 +4364,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Larry David
+## 21 Savage
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## 21 Savage
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4508,7 +4382,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Larry David
+## 21 Savage
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -4517,7 +4391,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Larry David
+## 21 Savage
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -4526,7 +4400,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Larry David
+## 21 Savage
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## 21 Savage
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## 21 Savage
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -4535,16 +4427,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Larry David
+## 21 Savage
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -4555,33 +4447,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Larry David
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Seth Rogan
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Seth Rogan
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Seth Rogan
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -4589,7 +4454,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Seth Rogan
+## Larry David
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4598,7 +4463,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Seth Rogan
+## Larry David
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -4607,7 +4472,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Seth Rogan
+## Larry David
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -4616,7 +4481,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Seth Rogan
+## Larry David
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Larry David
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4625,7 +4499,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Seth Rogan
+## Larry David
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -4634,7 +4508,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Seth Rogan
+## Larry David
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -4643,7 +4517,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Seth Rogan
+## Larry David
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Larry David
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Larry David
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -4652,16 +4544,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Seth Rogan
+## Larry David
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -4672,33 +4564,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Seth Rogan
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Simone Biles
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Simone Biles
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Simone Biles
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -4706,7 +4571,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4715,7 +4580,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -4724,7 +4589,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -4733,7 +4598,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Seth Rogan
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4742,7 +4616,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -4751,7 +4625,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -4760,7 +4634,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Seth Rogan
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Seth Rogan
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -4769,16 +4661,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -4789,33 +4681,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Simone Biles
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Pete Davidson
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Pete Davidson
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Pete Davidson
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -4823,7 +4688,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4832,7 +4697,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -4841,7 +4706,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -4850,7 +4715,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Pete Davidson
+## Simone Biles
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Simone Biles
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4859,7 +4733,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -4868,7 +4742,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -4877,7 +4751,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Pete Davidson
+## Simone Biles
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Simone Biles
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Simone Biles
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -4886,16 +4778,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -4906,33 +4798,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Pete Davidson
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Prince Harry
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Prince Harry
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Prince Harry
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -4940,7 +4805,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -4949,7 +4814,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -4958,7 +4823,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -4967,7 +4832,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Prince Harry
+## Pete Davidson
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Pete Davidson
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4976,7 +4850,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -4985,7 +4859,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -4994,7 +4868,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Prince Harry
+## Pete Davidson
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Pete Davidson
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -5003,16 +4895,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -5023,33 +4915,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Prince Harry
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Princess of Wales
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Princess of Wales
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Princess of Wales
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -5057,7 +4922,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5066,7 +4931,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -5075,7 +4940,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -5084,7 +4949,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Prince Harry
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5093,7 +4967,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -5102,7 +4976,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -5111,7 +4985,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Prince Harry
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Prince Harry
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -5120,16 +5012,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -5140,33 +5032,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Princess of Wales
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Rachel McAdams
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Rachel McAdams
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Rachel McAdams
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -5174,7 +5039,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5183,7 +5048,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -5192,7 +5057,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -5201,7 +5066,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Princess of Wales
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5210,7 +5084,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -5219,7 +5093,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -5228,7 +5102,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Princess of Wales
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Princess of Wales
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -5237,16 +5129,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -5257,33 +5149,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Rachel McAdams
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Reneé Rapp
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Reneé Rapp
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Reneé Rapp
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -5291,7 +5156,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5300,7 +5165,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -5309,7 +5174,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -5318,7 +5183,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Rachel McAdams
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5327,7 +5201,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -5336,7 +5210,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -5345,7 +5219,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Rachel McAdams
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -5354,16 +5246,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -5374,33 +5266,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Reneé Rapp
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Rick Ross
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Rick Ross
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Rick Ross
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -5408,7 +5273,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5417,7 +5282,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -5426,7 +5291,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -5435,7 +5300,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Reneé Rapp
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5444,7 +5318,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -5453,7 +5327,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -5462,7 +5336,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Reneé Rapp
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Reneé Rapp
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -5471,16 +5363,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -5491,33 +5383,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Rick Ross
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Sam Ashgari
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Sam Ashgari
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Sam Ashgari
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -5525,7 +5390,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5534,7 +5399,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -5543,7 +5408,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -5552,7 +5417,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Rick Ross
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5561,7 +5435,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -5570,7 +5444,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -5579,7 +5453,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Rick Ross
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Rick Ross
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -5588,16 +5480,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -5608,33 +5500,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Sam Ashgari
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Sandra Oh
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Sandra Oh
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Sandra Oh
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -5642,7 +5507,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5651,7 +5516,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -5660,7 +5525,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -5669,7 +5534,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Sam Ashgari
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5678,7 +5552,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -5687,7 +5561,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -5696,7 +5570,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Sam Ashgari
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -5705,16 +5597,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -5725,33 +5617,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Sandra Oh
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Donald Trump
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Donald Trump
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Donald Trump
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -5759,7 +5624,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5768,7 +5633,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -5777,7 +5642,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -5786,7 +5651,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Sandra Oh
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5795,7 +5669,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -5804,7 +5678,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -5813,7 +5687,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Sandra Oh
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Sandra Oh
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -5822,16 +5714,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -5842,33 +5734,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Donald Trump
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Diddy
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Diddy
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Diddy
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -5876,7 +5741,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Diddy
+## Donald Trump
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -5885,7 +5750,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Diddy
+## Donald Trump
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -5894,7 +5759,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Diddy
+## Donald Trump
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -5903,7 +5768,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Diddy
+## Donald Trump
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Donald Trump
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5912,7 +5786,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Diddy
+## Donald Trump
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -5921,7 +5795,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Diddy
+## Donald Trump
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -5930,7 +5804,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Diddy
+## Donald Trump
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Donald Trump
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Donald Trump
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -5939,16 +5831,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Diddy
+## Donald Trump
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -5959,33 +5851,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Diddy
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## City Girls
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## City Girls
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## City Girls
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -5993,7 +5858,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## City Girls
+## Diddy
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6002,7 +5867,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## City Girls
+## Diddy
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -6011,7 +5876,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## City Girls
+## Diddy
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -6020,7 +5885,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## City Girls
+## Diddy
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Diddy
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6029,7 +5903,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## City Girls
+## Diddy
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -6038,7 +5912,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## City Girls
+## Diddy
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -6047,7 +5921,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## City Girls
+## Diddy
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Diddy
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Diddy
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -6056,16 +5948,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## City Girls
+## Diddy
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## City Girls
+## Diddy
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -6076,33 +5968,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## City Girls
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Chloe Bailey
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Chloe Bailey
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Chloe Bailey
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -6110,7 +5975,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6119,7 +5984,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -6128,7 +5993,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -6137,7 +6002,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## City Girls
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6146,7 +6020,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -6155,7 +6029,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -6164,7 +6038,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## City Girls
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## City Girls
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -6173,16 +6065,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -6193,33 +6085,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Chloe Bailey
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Charli D Amelio
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Charli D Amelio
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Charli D Amelio
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -6227,7 +6092,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6236,7 +6101,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -6245,7 +6110,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -6254,7 +6119,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Chloe Bailey
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6263,7 +6137,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -6272,7 +6146,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -6281,7 +6155,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Chloe Bailey
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Chloe Bailey
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -6290,16 +6182,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -6310,33 +6202,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Charli D Amelio
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Cardi B
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Cardi B
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Cardi B
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -6344,7 +6209,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6353,7 +6218,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -6362,7 +6227,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -6371,7 +6236,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Cardi B
+## Charli D Amelio
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Charli D Amelio
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6380,7 +6254,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -6389,7 +6263,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -6398,7 +6272,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Cardi B
+## Charli D Amelio
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Charli D Amelio
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -6407,16 +6299,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -6427,33 +6319,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Cardi B
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Bryan Cranston
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Bryan Cranston
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Bryan Cranston
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -6461,7 +6326,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6470,7 +6335,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -6479,7 +6344,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -6488,7 +6353,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Cardi B
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6497,7 +6371,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -6506,7 +6380,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -6515,7 +6389,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Cardi B
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Cardi B
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -6524,16 +6416,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -6544,33 +6436,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Bryan Cranston
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Brielle Biermann
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Brielle Biermann
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Brielle Biermann
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -6578,7 +6443,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6587,7 +6452,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -6596,7 +6461,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -6605,7 +6470,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Bryan Cranston
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6614,7 +6488,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -6623,7 +6497,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -6632,7 +6506,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Bryan Cranston
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Bryan Cranston
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -6641,16 +6533,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -6661,33 +6553,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Brielle Biermann
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Dua Lipa
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Dua Lipa
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Dua Lipa
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -6695,7 +6560,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6704,7 +6569,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -6713,7 +6578,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -6722,7 +6587,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Brielle Biermann
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6731,7 +6605,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -6740,7 +6614,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -6749,7 +6623,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Brielle Biermann
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -6758,16 +6650,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -6778,33 +6670,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Dua Lipa
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Drake
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Drake
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Drake
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -6812,7 +6677,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6821,7 +6686,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -6830,7 +6695,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -6839,7 +6704,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Dua Lipa
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6848,7 +6722,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -6857,7 +6731,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -6866,7 +6740,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Dua Lipa
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Dua Lipa
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -6875,16 +6767,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -6895,33 +6787,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Drake
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Jenner
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Jenner
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Jenner
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -6929,7 +6794,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Jenner
+## Drake
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -6938,7 +6803,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Jenner
+## Drake
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -6947,7 +6812,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Jenner
+## Drake
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -6956,7 +6821,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Jenner
+## Drake
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Drake
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6965,7 +6839,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Jenner
+## Drake
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -6974,7 +6848,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Jenner
+## Drake
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -6983,7 +6857,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Jenner
+## Drake
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Drake
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Drake
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -6992,16 +6884,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Jenner
+## Drake
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Jenner
+## Drake
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -7012,33 +6904,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Jenner
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## J. Cole
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## J. Cole
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## J. Cole
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -7046,7 +6911,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## J. Cole
+## Jenner
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7055,7 +6920,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## J. Cole
+## Jenner
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -7064,7 +6929,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## J. Cole
+## Jenner
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -7073,7 +6938,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## J. Cole
+## Jenner
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Jenner
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -7082,7 +6956,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## J. Cole
+## Jenner
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -7091,7 +6965,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## J. Cole
+## Jenner
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -7100,7 +6974,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## J. Cole
+## Jenner
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Jenner
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Jenner
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -7109,16 +7001,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## J. Cole
+## Jenner
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -7129,33 +7021,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## J. Cole
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Jerrod Carmichael
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Jerrod Carmichael
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -7163,7 +7028,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7172,7 +7037,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -7181,7 +7046,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -7190,7 +7055,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## J. Cole
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -7199,7 +7073,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -7208,7 +7082,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -7217,7 +7091,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## J. Cole
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## J. Cole
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -7226,16 +7118,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -7246,33 +7138,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Jerrod Carmichael
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Jennifer Lawrence
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -7280,7 +7145,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7289,7 +7154,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -7298,7 +7163,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -7307,7 +7172,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Jerrod Carmichael
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -7316,7 +7190,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -7325,7 +7199,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -7334,7 +7208,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Jerrod Carmichael
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -7343,16 +7235,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -7363,33 +7255,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Jennifer Lawrence
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Joe Biden
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Joe Biden
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Joe Biden
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -7397,7 +7262,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7406,7 +7271,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -7415,7 +7280,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -7424,7 +7289,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Jennifer Lawrence
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -7433,7 +7307,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -7442,7 +7316,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -7451,7 +7325,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -7460,16 +7352,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -7480,33 +7372,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Joe Biden
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## J.K. Simmons
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## J.K. Simmons
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## J.K. Simmons
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -7514,7 +7379,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7523,7 +7388,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -7532,7 +7397,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -7541,7 +7406,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Joe Biden
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -7550,7 +7424,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -7559,7 +7433,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -7568,7 +7442,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Joe Biden
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Joe Biden
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -7577,16 +7469,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -7597,33 +7489,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## J.K. Simmons
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Kamala Harris
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Kamala Harris
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Kamala Harris
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -7631,7 +7496,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7640,7 +7505,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -7649,7 +7514,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -7658,7 +7523,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## J.K. Simmons
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -7667,7 +7541,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -7676,7 +7550,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -7685,7 +7559,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## J.K. Simmons
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## J.K. Simmons
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -7694,16 +7586,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -7714,33 +7606,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Kamala Harris
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## John C Reilly
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## John C Reilly
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## John C Reilly
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -7748,7 +7613,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7757,7 +7622,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -7766,7 +7631,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -7775,7 +7640,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## John C Reilly
+## Kamala Harris
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Kamala Harris
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -7784,7 +7658,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -7793,7 +7667,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -7802,7 +7676,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## John C Reilly
+## Kamala Harris
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Kamala Harris
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -7811,16 +7703,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -7831,33 +7723,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## John C Reilly
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Kardashian
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Kardashian
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Kardashian
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -7865,7 +7730,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7874,7 +7739,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -7883,7 +7748,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -7892,7 +7757,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## John C Reilly
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -7901,7 +7775,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -7910,7 +7784,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -7919,7 +7793,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## John C Reilly
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## John C Reilly
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -7928,16 +7820,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -7948,33 +7840,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Kardashian
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Kanye
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Kanye
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Kanye
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -7982,7 +7847,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Kanye
+## Kardashian
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -7991,7 +7856,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Kanye
+## Kardashian
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -8000,7 +7865,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Kanye
+## Kardashian
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -8009,7 +7874,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Kanye
+## Kardashian
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Kardashian
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -8018,7 +7892,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Kanye
+## Kardashian
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -8027,7 +7901,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Kanye
+## Kardashian
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -8036,7 +7910,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Kanye
+## Kardashian
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Kardashian
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Kardashian
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -8045,16 +7937,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Kanye
+## Kardashian
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -8065,33 +7957,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Kanye
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Zendaya
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Zendaya
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Zendaya
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -8099,7 +7964,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Zendaya
+## Kanye
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -8108,7 +7973,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Zendaya
+## Kanye
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -8117,7 +7982,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Zendaya
+## Kanye
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -8126,7 +7991,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Zendaya
+## Kanye
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Kanye
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -8135,7 +8009,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Zendaya
+## Kanye
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -8144,7 +8018,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Zendaya
+## Kanye
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -8153,7 +8027,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Zendaya
+## Kanye
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Kanye
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Kanye
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -8162,16 +8054,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Zendaya
+## Kanye
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -8182,33 +8074,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Zendaya
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Will Ferrell
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Will Ferrell
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Will Ferrell
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -8216,7 +8081,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -8225,7 +8090,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -8234,7 +8099,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -8243,7 +8108,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Zendaya
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -8252,7 +8126,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -8261,7 +8135,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -8270,7 +8144,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Zendaya
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Zendaya
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -8279,16 +8171,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -8299,33 +8191,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Will Ferrell
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Zazie Beetz
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Zazie Beetz
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Zazie Beetz
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -8333,7 +8198,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -8342,7 +8207,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -8351,7 +8216,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -8360,7 +8225,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Will Ferrell
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -8369,7 +8243,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -8378,7 +8252,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -8387,7 +8261,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Will Ferrell
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Will Ferrell
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -8396,16 +8288,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -8416,33 +8308,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Zazie Beetz
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Bob Odenkirk
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Bob Odenkirk
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Bob Odenkirk
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -8450,7 +8315,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -8459,7 +8324,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -8468,7 +8333,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -8477,7 +8342,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Zazie Beetz
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -8486,7 +8360,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -8495,7 +8369,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -8504,7 +8378,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Zazie Beetz
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -8513,16 +8405,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -8533,33 +8425,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Bob Odenkirk
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Brad Pitt
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Brad Pitt
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Brad Pitt
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -8567,7 +8432,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -8576,7 +8441,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -8585,7 +8450,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -8594,7 +8459,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Bob Odenkirk
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -8603,7 +8477,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -8612,7 +8486,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -8621,7 +8495,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Bob Odenkirk
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -8630,16 +8522,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -8650,33 +8542,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Brad Pitt
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Beyoncé
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Beyoncé
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Beyoncé
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -8684,7 +8549,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -8693,7 +8558,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -8702,7 +8567,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -8711,7 +8576,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Beyoncé
+## Brad Pitt
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Brad Pitt
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -8720,7 +8594,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -8729,7 +8603,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -8738,7 +8612,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Beyoncé
+## Brad Pitt
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Brad Pitt
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Brad Pitt
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -8747,16 +8639,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -8767,33 +8659,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Beyoncé
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Bia
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Bia
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Bia
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -8801,7 +8666,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Bia
+## Beyoncé
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -8810,7 +8675,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Bia
+## Beyoncé
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -8819,7 +8684,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Bia
+## Beyoncé
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -8828,7 +8693,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Bia
+## Beyoncé
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Beyoncé
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -8837,7 +8711,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Bia
+## Beyoncé
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -8846,7 +8720,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Bia
+## Beyoncé
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -8855,7 +8729,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Bia
+## Beyoncé
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Beyoncé
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Beyoncé
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -8864,16 +8756,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Bia
+## Beyoncé
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -8884,33 +8776,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Bia
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Avantika
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Avantika
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Avantika
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -8918,7 +8783,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Avantika
+## Bia
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -8927,7 +8792,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Avantika
+## Bia
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -8936,7 +8801,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Avantika
+## Bia
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -8945,7 +8810,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Avantika
+## Bia
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Bia
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -8954,7 +8828,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Avantika
+## Bia
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -8963,7 +8837,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Avantika
+## Bia
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -8972,7 +8846,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Avantika
+## Bia
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Bia
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Bia
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -8981,16 +8873,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Avantika
+## Bia
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Avantika
+## Bia
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -9001,33 +8893,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Avantika
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Bernie Sanders
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Bernie Sanders
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Bernie Sanders
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -9035,7 +8900,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -9044,7 +8909,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -9053,7 +8918,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -9062,7 +8927,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Bernie Sanders
+## Avantika
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Avantika
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -9071,7 +8945,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -9080,7 +8954,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -9089,7 +8963,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Bernie Sanders
+## Avantika
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Avantika
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Avantika
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -9098,16 +8990,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -9118,33 +9010,6 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Bernie Sanders
 
-## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
-
-Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
-
-*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
-
-
-## Big Sean
-
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
-
-
-## Big Sean
-
-## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
-
-Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
-
-*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
-
-
-## Big Sean
-
 ## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
 
 It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
@@ -9152,7 +9017,7 @@ It's time to talk about The Bear —the show that sneaked into our lives, made u
 *Published on: Wed, 26 Jun 2024 13:18:19 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
 ## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
 
@@ -9161,7 +9026,7 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Wed, 26 Jun 2024 15:05:05 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
 ## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
@@ -9170,7 +9035,7 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 *Published on: Wed, 26 Jun 2024 15:16:59 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
 ## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
 
@@ -9179,7 +9044,16 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 *Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
-## Big Sean
+## Bernie Sanders
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Bernie Sanders
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -9188,7 +9062,7 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
@@ -9197,7 +9071,7 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
@@ -9206,7 +9080,25 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 *Published on: Thu, 27 Jun 2024 09:08:55 GMT*
 
 
-## Big Sean
+## Bernie Sanders
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
+
+Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
+
+*Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## Bernie Sanders
 
 ## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
@@ -9215,16 +9107,16 @@ The team at the New York-based fashion label 3sixteen has been a fan of Crocs’
 *Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
 ## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
 
@@ -9235,6 +9127,87 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 
 ## Big Sean
 
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear —the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our …
+
+*Published on: Wed, 26 Jun 2024 13:18:19 GMT*
+
+
+## Big Sean
+
+## [From ASICS to Nike, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jun-week-4/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Wed, 26 Jun 2024 15:05:05 GMT*
+
+
+## Big Sean
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Wed, 26 Jun 2024 15:16:59 GMT*
+
+
+## Big Sean
+
+## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
+
+In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
+
+*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
+
+
+## Big Sean
+
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Big Sean
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+
+
+## Big Sean
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Big Sean
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Thu, 27 Jun 2024 09:08:55 GMT*
+
+
+## Big Sean
+
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
+
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+
+
+## Big Sean
+
 ## [Nike's Chunky Jean Air Max Sandals Kinda Slay  ](https://www.highsnobiety.com/p/nike-air-max-koko-sandal-denim-2024/)
 
 Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
@@ -9242,22 +9215,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Big Sean
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## BlockBoy JB
@@ -9298,6 +9280,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## BlockBoy JB
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## BlockBoy JB
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9325,29 +9316,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## BlockBoy JB
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## BlockBoy JB
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## BlockBoy JB
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## BlockBoy JB
@@ -9359,22 +9332,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Biden
+## BlockBoy JB
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## BlockBoy JB
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Biden
@@ -9415,6 +9397,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Biden
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Biden
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9442,29 +9433,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Biden
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Biden
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Biden
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Biden
@@ -9476,22 +9449,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Bieber
+## Biden
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Bieber
+## Biden
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Biden
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Bieber
@@ -9532,6 +9514,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Bieber
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Bieber
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9559,29 +9550,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Bieber
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Bieber
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Bieber
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Bieber
@@ -9593,22 +9566,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Bieber
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Paulina Porizkov
@@ -9649,6 +9631,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Paulina Porizkov
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Paulina Porizkov
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9676,29 +9667,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Paulina Porizkov
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Paulina Porizkov
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Paulina Porizkov
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Paulina Porizkov
@@ -9710,22 +9683,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Paulina Porizkov
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Paris Hilton
@@ -9766,6 +9748,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Paris Hilton
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Paris Hilton
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9793,29 +9784,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Paris Hilton
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Paris Hilton
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Paris Hilton
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Paris Hilton
@@ -9827,22 +9800,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Paris Hilton
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Metro Boomin
@@ -9883,6 +9865,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Metro Boomin
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Metro Boomin
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9910,29 +9901,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Metro Boomin
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Metro Boomin
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Metro Boomin
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Metro Boomin
@@ -9944,22 +9917,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Metro Boomin
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Meghan Markle
@@ -10000,6 +9982,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Meghan Markle
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Meghan Markle
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10027,29 +10018,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Meghan Markle
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Meghan Markle
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Meghan Markle
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Meghan Markle
@@ -10061,22 +10034,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Meghan Markle
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Megan Thee Stallion
@@ -10117,6 +10099,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Megan Thee Stallion
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Megan Thee Stallion
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10144,29 +10135,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Megan Thee Stallion
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Megan Thee Stallion
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Megan Thee Stallion
@@ -10178,22 +10151,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Megan Thee Stallion
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Maya Rudolph
@@ -10234,6 +10216,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Maya Rudolph
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Maya Rudolph
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10261,29 +10252,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Maya Rudolph
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Maya Rudolph
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Maya Rudolph
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Maya Rudolph
@@ -10295,22 +10268,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Maya Rudolph
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Olivia Rodrigo
@@ -10351,6 +10333,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Olivia Rodrigo
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Olivia Rodrigo
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10378,29 +10369,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Olivia Rodrigo
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Olivia Rodrigo
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Olivia Rodrigo
@@ -10412,22 +10385,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Olivia Rodrigo
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Obama
@@ -10468,6 +10450,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Obama
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Obama
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10495,29 +10486,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Obama
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Obama
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Obama
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Obama
@@ -10529,22 +10502,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Obama
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## Nicki Minaj
@@ -10585,6 +10567,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## Nicki Minaj
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## Nicki Minaj
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10612,29 +10603,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## Nicki Minaj
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## Nicki Minaj
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## Nicki Minaj
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## Nicki Minaj
@@ -10646,22 +10619,31 @@ Ah, denim shoes. Some can do without their favorite steppers slipping into a pai
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
 
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
 
-*Published on: Wed, 26 Jun 2024 08:30:34 GMT*
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
 
 Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
 
 *Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## Nicki Minaj
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
 ## MrBeast
@@ -10702,6 +10684,15 @@ In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan 
 
 ## MrBeast
 
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
+
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
+
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## MrBeast
+
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -10729,29 +10720,11 @@ AURALEE is finally poised to explode. The humble Japanese clothing brand has qui
 
 ## MrBeast
 
-## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+## [Stefon Diggs Is Reviving a Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
 
-The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+The ASICS Gel-Nimbus 10.1 is yet to be released and Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American foot…
 
-*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
-
-
-## MrBeast
-
-## [Nike's Sporty Air Max Hybrid Is Ready to Rock (Tongue-First, Naturally)](https://www.highsnobiety.com/p/nike-air-max-plus-tiempo-sneakers-where-to-buy/)
-
-Nike's Air Max Plus Tiempo is a clever ode to the Tiempo series, which turns 30 this year. To celebrate this milestone, the Swoosh decided to whip up an imposi…
-
-*Published on: Wed, 26 Jun 2024 05:10:00 GMT*
-
-
-## MrBeast
-
-## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
-
-At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
-
-*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
+*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
 
 
 ## MrBeast
@@ -10761,5 +10734,32 @@ At the start of this year, inside an abandoned department store, the Berlin and 
 Ah, denim shoes. Some can do without their favorite steppers slipping into a pair of jeans, while others absolutely love footwear wearing the unexpected materi…
 
 *Published on: Wed, 26 Jun 2024 08:16:15 GMT*
+
+
+## MrBeast
+
+## [Crocs’ Minimalist Mule Gets a Tasteful Woven Update](https://www.highsnobiety.com/p/crocs-3sixteen-dylan-clog/)
+
+The team at the New York-based fashion label 3sixteen has been a fan of Crocs’ Dylan Clog ever since it was first released.“Their minimal design made them suit…
+
+*Published on: Wed, 26 Jun 2024 08:00:40 GMT*
+
+
+## MrBeast
+
+## [Nike’s Ultra-Rare Zip-Up Sneaker Is Back With a Bang](https://www.highsnobiety.com/p/nike-kids-of-immigrants-air-max-sunder/)
+
+Nike has been teasing the return of its Air Max Sunder sneaker model for some time — it’s been a whole three years since COMME des GARÇONS dropped its collabor…
+
+*Published on: Wed, 26 Jun 2024 09:18:52 GMT*
+
+
+## MrBeast
+
+## [INTERVENTION Brings a Bumper Schedule to Berlin Fashion Week ](https://www.highsnobiety.com/p/intervention-berlin-fashion-week-2024/)
+
+At the start of this year, inside an abandoned department store, the Berlin and Milan-based communications agency Reference Studios launched its first edition …
+
+*Published on: Wed, 26 Jun 2024 08:30:27 GMT*
 
 
