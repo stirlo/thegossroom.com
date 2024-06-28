@@ -1,24 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Tim Cook
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Tim Cook
-
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
 
 Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
@@ -80,16 +62,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Tim Cook
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -153,6 +144,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Taylor Swift
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Taylor Swift
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Taylor Swift
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Taylor Swift
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Tom Brady
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Tom Brady
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Tom Brady
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Tom Brady
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Tom Brady
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Tom Brady
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Tom Brady
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -163,11 +244,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Tom Brady
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Tom Brady
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Tom Brady
@@ -179,87 +269,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Tom Brady
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Tom Brady
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Tom Brady
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Tom Brady
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Tom Brady
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Tom Brady
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Tom Brady
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Tina Fey
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Tina Fey
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Tina Fey
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -323,16 +332,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Tina Fey
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -404,16 +422,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Steven Yuen
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -477,6 +504,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Sommer Ray
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Sommer Ray
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Sommer Ray
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Sommer Ray
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Sza
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Sza
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Sza
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sza
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Sza
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Sza
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Sza
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -487,11 +604,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Sza
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Sza
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Sza
@@ -503,87 +629,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Sza
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Sza
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Sza
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Sza
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Sza
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Sza
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Sza
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Sydney Sweeney
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Sydney Sweeney
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Sydney Sweeney
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -647,16 +692,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Sydney Sweeney
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -728,16 +782,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Walton Goggins
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -801,6 +864,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Tom Holland
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Tom Holland
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Tom Holland
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Tom Holland
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Gucci Mane
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Gucci Mane
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Gucci Mane
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Gucci Mane
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Gucci Mane
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Gucci Mane
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Gucci Mane
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -811,11 +964,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Gucci Mane
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Gucci Mane
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Gucci Mane
@@ -827,87 +989,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Gucci Mane
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Gucci Mane
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Gucci Mane
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Gucci Mane
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Gucci Mane
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Gucci Mane
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Gucci Mane
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Harry Styles
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Harry Styles
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Harry Styles
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -971,16 +1052,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Jake Paul
+## Harry Styles
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Harry Styles
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -1052,16 +1142,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Jake Paul
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -1125,6 +1224,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Jameela Jamil
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Jameela Jamil
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Jameela Jamil
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Jameela Jamil
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Elon Musk
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Elon Musk
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Elon Musk
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Elon Musk
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Elon Musk
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Elon Musk
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Elon Musk
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1135,11 +1324,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Elon Musk
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Elon Musk
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Elon Musk
@@ -1151,87 +1349,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Elon Musk
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Elon Musk
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Elon Musk
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Elon Musk
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Elon Musk
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Elon Musk
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Elon Musk
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Gabrielle Union
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Gabrielle Union
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Gabrielle Union
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -1295,16 +1412,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Gabrielle Union
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -1376,16 +1502,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Giancarlo Esposito
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -1449,6 +1584,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Gillian Jacobs
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Gillian Jacobs
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Gillian Jacobs
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Gillian Jacobs
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jason Mantzoukas
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Jason Mantzoukas
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Jason Mantzoukas
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Jason Mantzoukas
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Jason Mantzoukas
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Jason Mantzoukas
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1459,11 +1684,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Jason Mantzoukas
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Jason Mantzoukas
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Jason Mantzoukas
@@ -1475,87 +1709,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Jason Mantzoukas
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Jason Mantzoukas
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Jason Mantzoukas
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Jason Mantzoukas
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Jason Mantzoukas
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Jason Mantzoukas
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## JB Smoove
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## JB Smoove
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## JB Smoove
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -1619,16 +1772,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Madison Pettis
+## JB Smoove
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## JB Smoove
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -1700,16 +1862,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Austin Butler
+## Madison Pettis
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Madison Pettis
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -1773,6 +1944,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Austin Butler
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Austin Butler
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Austin Butler
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Austin Butler
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Mark Zuckerberg
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Mark Zuckerberg
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Mark Zuckerberg
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Mark Zuckerberg
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Mark Zuckerberg
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Mark Zuckerberg
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -1783,11 +2044,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Mark Zuckerberg
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Mark Zuckerberg
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Mark Zuckerberg
@@ -1799,87 +2069,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Mark Zuckerberg
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Mark Zuckerberg
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Mark Zuckerberg
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Mark Zuckerberg
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Mark Zuckerberg
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Mark Zuckerberg
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Mark Zuckerberg
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Ariana Grande
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Ariana Grande
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Ariana Grande
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -1943,16 +2132,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Ariana Grande
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -2024,16 +2222,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Livvy Dunne
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -2097,6 +2304,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Ali Wong
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Ali Wong
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Ali Wong
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Ali Wong
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Lizzo
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Lizzo
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Lizzo
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Lizzo
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Lizzo
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Lizzo
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Lizzo
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2107,11 +2404,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Lizzo
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Lizzo
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Lizzo
@@ -2123,87 +2429,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Lizzo
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Lizzo
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Lizzo
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Lizzo
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Lizzo
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Lizzo
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Lizzo
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Alison Brie
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Alison Brie
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Alison Brie
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -2267,16 +2492,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Alison Brie
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -2348,16 +2582,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Adele
+## Lil Wayne
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Lil Wayne
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -2421,6 +2664,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Adele
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Adele
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Adele
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Adele
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Lindsay Lohan
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Lindsay Lohan
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Lindsay Lohan
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Lindsay Lohan
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Lindsay Lohan
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Lindsay Lohan
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2431,11 +2764,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Lindsay Lohan
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Lindsay Lohan
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Lindsay Lohan
@@ -2447,87 +2789,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Lindsay Lohan
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Lindsay Lohan
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Lindsay Lohan
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Lindsay Lohan
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Lindsay Lohan
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Lindsay Lohan
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Lindsay Lohan
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Addison Rae
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Addison Rae
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Addison Rae
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -2591,16 +2852,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Latto
+## Addison Rae
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Addison Rae
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -2672,16 +2942,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Aaron Paul
+## Latto
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Latto
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -2745,6 +3024,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Aaron Paul
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Aaron Paul
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Aaron Paul
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Aaron Paul
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## LeBron James
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## LeBron James
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## LeBron James
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## LeBron James
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## LeBron James
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## LeBron James
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## LeBron James
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -2755,11 +3124,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## LeBron James
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## LeBron James
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## LeBron James
@@ -2771,87 +3149,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## LeBron James
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## LeBron James
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## LeBron James
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## LeBron James
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## LeBron James
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## LeBron James
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## LeBron James
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## 50 Cent
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## 50 Cent
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## 50 Cent
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -2915,16 +3212,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Kesha
+## 50 Cent
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## 50 Cent
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -2996,16 +3302,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Kesha
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -3069,6 +3384,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## 21 Savage
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## 21 Savage
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## 21 Savage
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## 21 Savage
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Larry David
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Larry David
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Larry David
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Larry David
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Larry David
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Larry David
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Larry David
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3079,11 +3484,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Larry David
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Larry David
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Larry David
@@ -3095,87 +3509,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Larry David
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Larry David
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Larry David
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Larry David
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Larry David
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Larry David
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Larry David
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Seth Rogan
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Seth Rogan
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Seth Rogan
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -3239,16 +3572,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Seth Rogan
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -3320,16 +3662,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Pete Davidson
+## Simone Biles
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Simone Biles
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -3393,6 +3744,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Pete Davidson
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Pete Davidson
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Pete Davidson
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Pete Davidson
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Prince Harry
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Prince Harry
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Prince Harry
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Prince Harry
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Prince Harry
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Prince Harry
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Prince Harry
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3403,11 +3844,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Prince Harry
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Prince Harry
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Prince Harry
@@ -3419,87 +3869,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Prince Harry
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Prince Harry
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Prince Harry
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Prince Harry
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Prince Harry
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Prince Harry
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Prince Harry
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Princess of Wales
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Princess of Wales
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Princess of Wales
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -3563,16 +3932,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Princess of Wales
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -3644,16 +4022,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Rachel McAdams
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -3717,6 +4104,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Reneé Rapp
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Reneé Rapp
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Reneé Rapp
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Reneé Rapp
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Rick Ross
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Rick Ross
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Rick Ross
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Rick Ross
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Rick Ross
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Rick Ross
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Rick Ross
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -3727,11 +4204,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Rick Ross
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Rick Ross
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Rick Ross
@@ -3743,87 +4229,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Rick Ross
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Rick Ross
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Rick Ross
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Rick Ross
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Rick Ross
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Rick Ross
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Rick Ross
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Sam Ashgari
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Sam Ashgari
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Sam Ashgari
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -3887,16 +4292,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Sam Ashgari
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -3968,16 +4382,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Sandra Oh
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -4041,6 +4464,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Donald Trump
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Donald Trump
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Donald Trump
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Donald Trump
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Diddy
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Diddy
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Diddy
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Diddy
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Diddy
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Diddy
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Diddy
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4051,11 +4564,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Diddy
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Diddy
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Diddy
@@ -4067,87 +4589,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Diddy
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Diddy
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Diddy
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Diddy
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Diddy
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Diddy
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Diddy
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## City Girls
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## City Girls
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## City Girls
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -4211,16 +4652,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## City Girls
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -4292,16 +4742,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Chloe Bailey
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -4365,6 +4824,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Charli D Amelio
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Charli D Amelio
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Charli D Amelio
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Charli D Amelio
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Cardi B
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Cardi B
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Cardi B
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Cardi B
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Cardi B
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Cardi B
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Cardi B
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4375,11 +4924,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Cardi B
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Cardi B
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Cardi B
@@ -4391,87 +4949,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Cardi B
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Cardi B
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Cardi B
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Cardi B
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Cardi B
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Cardi B
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Cardi B
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Bryan Cranston
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Bryan Cranston
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Bryan Cranston
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -4535,16 +5012,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Bryan Cranston
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -4616,16 +5102,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Brielle Biermann
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -4689,6 +5184,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Dua Lipa
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Dua Lipa
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Dua Lipa
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Dua Lipa
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Drake
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Drake
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Drake
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Drake
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Drake
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Drake
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Drake
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -4699,11 +5284,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Drake
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Drake
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Drake
@@ -4715,87 +5309,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Drake
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Drake
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Drake
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Drake
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Drake
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Drake
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Drake
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Jenner
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Jenner
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Jenner
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -4859,16 +5372,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## J. Cole
+## Jenner
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Jenner
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -4940,16 +5462,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## J. Cole
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -5013,6 +5544,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Jerrod Carmichael
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Jerrod Carmichael
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Jerrod Carmichael
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Jerrod Carmichael
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Jennifer Lawrence
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Jennifer Lawrence
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Jennifer Lawrence
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Jennifer Lawrence
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Jennifer Lawrence
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Jennifer Lawrence
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5023,11 +5644,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Jennifer Lawrence
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Jennifer Lawrence
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Jennifer Lawrence
@@ -5039,87 +5669,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Jennifer Lawrence
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Jennifer Lawrence
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Jennifer Lawrence
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Jennifer Lawrence
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Jennifer Lawrence
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Jennifer Lawrence
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Joe Biden
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Joe Biden
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Joe Biden
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -5183,16 +5732,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Joe Biden
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -5264,16 +5822,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## J.K. Simmons
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -5337,6 +5904,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Kamala Harris
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Kamala Harris
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Kamala Harris
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Kamala Harris
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## John C Reilly
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## John C Reilly
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## John C Reilly
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## John C Reilly
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## John C Reilly
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## John C Reilly
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## John C Reilly
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5347,11 +6004,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## John C Reilly
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## John C Reilly
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## John C Reilly
@@ -5363,87 +6029,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## John C Reilly
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## John C Reilly
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## John C Reilly
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## John C Reilly
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## John C Reilly
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## John C Reilly
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## John C Reilly
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Kardashian
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Kardashian
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Kardashian
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -5507,16 +6092,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Kanye
+## Kardashian
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Kardashian
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -5588,16 +6182,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Zendaya
+## Kanye
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Kanye
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -5661,6 +6264,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Zendaya
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Zendaya
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Zendaya
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Zendaya
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Will Ferrell
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Will Ferrell
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Will Ferrell
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Will Ferrell
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Will Ferrell
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Will Ferrell
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Will Ferrell
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5671,11 +6364,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Will Ferrell
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Will Ferrell
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Will Ferrell
@@ -5687,87 +6389,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Will Ferrell
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Will Ferrell
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Will Ferrell
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Will Ferrell
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Will Ferrell
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Will Ferrell
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Will Ferrell
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Zazie Beetz
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Zazie Beetz
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Zazie Beetz
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -5831,16 +6452,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Zazie Beetz
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -5912,16 +6542,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Bob Odenkirk
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -5985,6 +6624,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Brad Pitt
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Brad Pitt
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Brad Pitt
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Brad Pitt
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Beyoncé
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Beyoncé
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Beyoncé
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Beyoncé
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Beyoncé
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Beyoncé
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Beyoncé
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -5995,11 +6724,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Beyoncé
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Beyoncé
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Beyoncé
@@ -6011,87 +6749,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Beyoncé
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Beyoncé
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Beyoncé
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Beyoncé
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Beyoncé
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Beyoncé
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Beyoncé
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Bia
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Bia
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Bia
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -6155,16 +6812,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Avantika
+## Bia
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Avantika
+## Bia
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Bia
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -6236,16 +6902,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Bernie Sanders
+## Avantika
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Avantika
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -6309,6 +6984,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Bernie Sanders
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Bernie Sanders
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Bernie Sanders
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Bernie Sanders
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Big Sean
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Big Sean
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Big Sean
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Big Sean
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Big Sean
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Big Sean
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Big Sean
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6319,11 +7084,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Big Sean
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Big Sean
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Big Sean
@@ -6335,87 +7109,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Big Sean
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Big Sean
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Big Sean
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Big Sean
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Big Sean
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Big Sean
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Big Sean
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## BlockBoy JB
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## BlockBoy JB
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## BlockBoy JB
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -6479,16 +7172,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Biden
+## BlockBoy JB
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## BlockBoy JB
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -6560,16 +7262,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Bieber
+## Biden
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Bieber
+## Biden
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Biden
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -6633,6 +7344,96 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 
 ## Bieber
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Bieber
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Bieber
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Bieber
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
+
+
+## Paulina Porizkov
+
+## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
+
+Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
+
+*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
+
+
+## Paulina Porizkov
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
+## Paulina Porizkov
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Paulina Porizkov
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Paulina Porizkov
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
+
+
+## Paulina Porizkov
 
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
@@ -6643,11 +7444,20 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 
 ## Paulina Porizkov
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## Paulina Porizkov
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
 
 
 ## Paulina Porizkov
@@ -6659,87 +7469,6 @@ JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
-## Paulina Porizkov
-
-## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
-
-Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bronson's deliciously flashy New Balance 1906R sneaker only just dropping (and sell…
-
-*Published on: Thu, 27 Jun 2024 18:49:35 GMT*
-
-
-## Paulina Porizkov
-
-## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
-
-Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
-
-*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## Paulina Porizkov
-
-## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
-
-The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
-
-*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
-
-
-## Paulina Porizkov
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
-
-
-## Paulina Porizkov
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
-
-
-## Paulina Porizkov
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
-
-
-## Paulina Porizkov
-
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Fri, 28 Jun 2024 12:46:23 GMT*
-
-
-## Paris Hilton
-
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
-
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
-
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
-
-
-## Paris Hilton
-
-## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
-
-JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
-
-*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
 ## Paris Hilton
 
 ## [Action Bronson's New Balance Trail Sneaker Is a Wonderfully Weird Mutation](https://www.highsnobiety.com/p/action-bronson-new-balance-minimus-trail-shoe/)
@@ -6803,16 +7532,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Paris Hilton
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -6884,16 +7622,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Metro Boomin
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -6965,16 +7712,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Meghan Markle
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -7046,16 +7802,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Megan Thee Stallion
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -7127,16 +7892,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Maya Rudolph
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -7208,16 +7982,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Obama
+## Olivia Rodrigo
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Olivia Rodrigo
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -7289,16 +8072,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## Nicki Minaj
+## Obama
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Obama
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -7370,16 +8162,25 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [Stefon Diggs Is Reviving an Unreleased Retro ASICS Banger](https://www.highsnobiety.com/p/stefon-diggs-asics-gel-nimbus-10-1/)
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
-ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has already emerged as the new ASICS model’s biggest advocate.First, the stylish American…
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
 
-*Published on: Thu, 27 Jun 2024 10:09:22 GMT*
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
 
 
-## MrBeast
+## Nicki Minaj
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## Nicki Minaj
 
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
@@ -7449,5 +8250,32 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## MrBeast
+
+## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
+
+Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
+
+*Published on: Fri, 28 Jun 2024 13:33:06 GMT*
+
+
+## MrBeast
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Fri, 28 Jun 2024 13:42:05 GMT*
+
+
+## MrBeast
+
+## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
+
+JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
+
+*Published on: Thu, 27 Jun 2024 14:14:35 GMT*
 
 
