@@ -82,15 +82,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Tim Cook
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Tim Cook
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -100,11 +91,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Tim Cook
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Taylor Swift
@@ -190,15 +181,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Taylor Swift
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Taylor Swift
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -208,11 +190,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Taylor Swift
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Tom Brady
@@ -298,15 +280,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Tom Brady
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Tom Brady
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -316,11 +289,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Tom Brady
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Tina Fey
@@ -406,15 +379,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Tina Fey
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Tina Fey
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -424,11 +388,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Tina Fey
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Steven Yuen
@@ -514,15 +478,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Steven Yuen
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Steven Yuen
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -532,11 +487,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Steven Yuen
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Sommer Ray
@@ -622,15 +577,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Sommer Ray
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Sommer Ray
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -640,11 +586,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Sommer Ray
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Sza
@@ -730,15 +676,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Sza
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Sza
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -748,11 +685,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Sza
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Sydney Sweeney
@@ -838,15 +775,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Sydney Sweeney
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Sydney Sweeney
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -856,11 +784,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Sydney Sweeney
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Walton Goggins
@@ -946,15 +874,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Walton Goggins
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Walton Goggins
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -964,11 +883,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Walton Goggins
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Tom Holland
@@ -1054,15 +973,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Tom Holland
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Tom Holland
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -1072,11 +982,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Tom Holland
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Gucci Mane
@@ -1162,15 +1072,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Gucci Mane
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Gucci Mane
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -1180,11 +1081,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Gucci Mane
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Harry Styles
@@ -1270,15 +1171,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Harry Styles
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Harry Styles
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -1288,11 +1180,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Harry Styles
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Jake Paul
@@ -1378,15 +1270,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Jake Paul
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Jake Paul
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -1396,11 +1279,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Jake Paul
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Jameela Jamil
@@ -1486,15 +1369,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Jameela Jamil
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Jameela Jamil
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -1504,11 +1378,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Jameela Jamil
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Elon Musk
@@ -1594,15 +1468,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Elon Musk
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Elon Musk
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -1612,11 +1477,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Elon Musk
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Gabrielle Union
@@ -1702,15 +1567,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Gabrielle Union
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Gabrielle Union
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -1720,11 +1576,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Gabrielle Union
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Giancarlo Esposito
@@ -1810,15 +1666,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Giancarlo Esposito
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -1828,11 +1675,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Giancarlo Esposito
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Gillian Jacobs
@@ -1918,15 +1765,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Gillian Jacobs
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Gillian Jacobs
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -1936,11 +1774,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Gillian Jacobs
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Jason Mantzoukas
@@ -2026,15 +1864,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Jason Mantzoukas
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -2044,11 +1873,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Jason Mantzoukas
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## JB Smoove
@@ -2134,15 +1963,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## JB Smoove
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## JB Smoove
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -2152,11 +1972,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## JB Smoove
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Madison Pettis
@@ -2242,15 +2062,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Madison Pettis
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Madison Pettis
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -2260,11 +2071,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Madison Pettis
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Austin Butler
@@ -2350,15 +2161,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Austin Butler
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Austin Butler
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -2368,11 +2170,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Austin Butler
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Mark Zuckerberg
@@ -2458,15 +2260,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Mark Zuckerberg
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -2476,11 +2269,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Mark Zuckerberg
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Ariana Grande
@@ -2566,15 +2359,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Ariana Grande
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Ariana Grande
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -2584,11 +2368,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Ariana Grande
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Livvy Dunne
@@ -2674,15 +2458,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Livvy Dunne
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Livvy Dunne
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -2692,11 +2467,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Livvy Dunne
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Ali Wong
@@ -2782,15 +2557,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Ali Wong
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Ali Wong
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -2800,11 +2566,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Ali Wong
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Lizzo
@@ -2890,15 +2656,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Lizzo
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Lizzo
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -2908,11 +2665,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Lizzo
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Alison Brie
@@ -2998,15 +2755,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Alison Brie
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Alison Brie
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3016,11 +2764,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Alison Brie
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Lil Wayne
@@ -3106,15 +2854,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Lil Wayne
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Lil Wayne
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3124,11 +2863,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Lil Wayne
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Adele
@@ -3214,15 +2953,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Adele
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Adele
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3232,11 +2962,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Adele
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Lindsay Lohan
@@ -3322,15 +3052,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Lindsay Lohan
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Lindsay Lohan
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3340,11 +3061,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Lindsay Lohan
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Addison Rae
@@ -3430,15 +3151,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Addison Rae
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Addison Rae
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3448,11 +3160,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Addison Rae
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Latto
@@ -3538,15 +3250,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Latto
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Latto
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3556,11 +3259,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Latto
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Aaron Paul
@@ -3646,15 +3349,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Aaron Paul
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Aaron Paul
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3664,11 +3358,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Aaron Paul
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## LeBron James
@@ -3754,15 +3448,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## LeBron James
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## LeBron James
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3772,11 +3457,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## LeBron James
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## 50 Cent
@@ -3862,15 +3547,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## 50 Cent
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## 50 Cent
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3880,11 +3556,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## 50 Cent
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Kesha
@@ -3970,15 +3646,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Kesha
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Kesha
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -3988,11 +3655,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Kesha
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## 21 Savage
@@ -4078,15 +3745,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## 21 Savage
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## 21 Savage
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -4096,11 +3754,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## 21 Savage
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Larry David
@@ -4186,15 +3844,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Larry David
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Larry David
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -4204,11 +3853,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Larry David
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Seth Rogan
@@ -4294,15 +3943,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Seth Rogan
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Seth Rogan
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -4312,11 +3952,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Seth Rogan
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Simone Biles
@@ -4402,15 +4042,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Simone Biles
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Simone Biles
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -4420,11 +4051,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Simone Biles
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Pete Davidson
@@ -4510,15 +4141,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Pete Davidson
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Pete Davidson
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -4528,11 +4150,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Pete Davidson
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Prince Harry
@@ -4618,15 +4240,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Prince Harry
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Prince Harry
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -4636,11 +4249,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Prince Harry
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Princess of Wales
@@ -4726,15 +4339,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Princess of Wales
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Princess of Wales
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -4744,11 +4348,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Princess of Wales
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Rachel McAdams
@@ -4834,15 +4438,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Rachel McAdams
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Rachel McAdams
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -4852,11 +4447,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Rachel McAdams
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Reneé Rapp
@@ -4942,15 +4537,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Reneé Rapp
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Reneé Rapp
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -4960,11 +4546,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Reneé Rapp
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Rick Ross
@@ -5050,15 +4636,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Rick Ross
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Rick Ross
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -5068,11 +4645,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Rick Ross
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Sam Ashgari
@@ -5158,15 +4735,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Sam Ashgari
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Sam Ashgari
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -5176,11 +4744,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Sam Ashgari
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Sandra Oh
@@ -5266,15 +4834,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Sandra Oh
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Sandra Oh
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -5284,11 +4843,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Sandra Oh
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Donald Trump
@@ -5374,15 +4933,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Donald Trump
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Donald Trump
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -5392,11 +4942,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Donald Trump
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Diddy
@@ -5482,15 +5032,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Diddy
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Diddy
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -5500,11 +5041,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Diddy
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## City Girls
@@ -5590,15 +5131,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## City Girls
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## City Girls
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -5608,11 +5140,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## City Girls
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Chloe Bailey
@@ -5698,15 +5230,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Chloe Bailey
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Chloe Bailey
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -5716,11 +5239,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Chloe Bailey
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Charli D Amelio
@@ -5806,15 +5329,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Charli D Amelio
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Charli D Amelio
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -5824,11 +5338,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Charli D Amelio
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Cardi B
@@ -5914,15 +5428,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Cardi B
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Cardi B
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -5932,11 +5437,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Cardi B
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Bryan Cranston
@@ -6022,15 +5527,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Bryan Cranston
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Bryan Cranston
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -6040,11 +5536,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Bryan Cranston
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Brielle Biermann
@@ -6130,15 +5626,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Brielle Biermann
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Brielle Biermann
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -6148,11 +5635,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Brielle Biermann
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Dua Lipa
@@ -6238,15 +5725,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Dua Lipa
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Dua Lipa
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -6256,11 +5734,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Dua Lipa
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Drake
@@ -6346,15 +5824,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Drake
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Drake
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -6364,11 +5833,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Drake
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Jenner
@@ -6454,15 +5923,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Jenner
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Jenner
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -6472,11 +5932,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Jenner
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## J. Cole
@@ -6562,15 +6022,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## J. Cole
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## J. Cole
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -6580,11 +6031,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## J. Cole
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Jerrod Carmichael
@@ -6670,15 +6121,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Jerrod Carmichael
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -6688,11 +6130,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Jerrod Carmichael
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Jennifer Lawrence
@@ -6778,15 +6220,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Jennifer Lawrence
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -6796,11 +6229,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Jennifer Lawrence
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Joe Biden
@@ -6886,15 +6319,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Joe Biden
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Joe Biden
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -6904,11 +6328,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Joe Biden
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## J.K. Simmons
@@ -6994,15 +6418,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## J.K. Simmons
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## J.K. Simmons
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7012,11 +6427,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## J.K. Simmons
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Kamala Harris
@@ -7102,15 +6517,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Kamala Harris
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Kamala Harris
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7120,11 +6526,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Kamala Harris
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## John C Reilly
@@ -7210,15 +6616,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## John C Reilly
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## John C Reilly
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7228,11 +6625,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## John C Reilly
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Kardashian
@@ -7318,15 +6715,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Kardashian
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Kardashian
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7336,11 +6724,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Kardashian
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Kanye
@@ -7426,15 +6814,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Kanye
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Kanye
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7444,11 +6823,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Kanye
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Zendaya
@@ -7534,15 +6913,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Zendaya
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Zendaya
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7552,11 +6922,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Zendaya
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Will Ferrell
@@ -7642,15 +7012,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Will Ferrell
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Will Ferrell
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7660,11 +7021,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Will Ferrell
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Zazie Beetz
@@ -7750,15 +7111,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Zazie Beetz
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Zazie Beetz
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7768,11 +7120,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Zazie Beetz
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Bob Odenkirk
@@ -7858,15 +7210,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Bob Odenkirk
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Bob Odenkirk
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7876,11 +7219,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Bob Odenkirk
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Brad Pitt
@@ -7966,15 +7309,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Brad Pitt
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Brad Pitt
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -7984,11 +7318,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Brad Pitt
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Beyoncé
@@ -8074,15 +7408,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Beyoncé
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Beyoncé
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -8092,11 +7417,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Beyoncé
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Bia
@@ -8182,15 +7507,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Bia
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Bia
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -8200,11 +7516,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Bia
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Avantika
@@ -8290,15 +7606,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Avantika
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Avantika
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -8308,11 +7615,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Avantika
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Bernie Sanders
@@ -8398,15 +7705,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Bernie Sanders
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Bernie Sanders
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -8416,11 +7714,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Bernie Sanders
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Big Sean
@@ -8506,15 +7804,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Big Sean
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Big Sean
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -8524,11 +7813,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Big Sean
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## BlockBoy JB
@@ -8614,15 +7903,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## BlockBoy JB
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## BlockBoy JB
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -8632,11 +7912,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## BlockBoy JB
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Biden
@@ -8722,15 +8002,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Biden
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Biden
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -8740,11 +8011,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Biden
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Bieber
@@ -8830,15 +8101,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Bieber
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Bieber
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -8848,11 +8110,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Bieber
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Paulina Porizkov
@@ -8938,15 +8200,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Paulina Porizkov
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Paulina Porizkov
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -8956,11 +8209,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Paulina Porizkov
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Paris Hilton
@@ -9046,15 +8299,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Paris Hilton
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Paris Hilton
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -9064,11 +8308,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Paris Hilton
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Metro Boomin
@@ -9154,15 +8398,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Metro Boomin
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Metro Boomin
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -9172,11 +8407,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Metro Boomin
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Meghan Markle
@@ -9262,15 +8497,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Meghan Markle
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Meghan Markle
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -9280,11 +8506,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Meghan Markle
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Megan Thee Stallion
@@ -9370,15 +8596,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Megan Thee Stallion
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -9388,11 +8605,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Megan Thee Stallion
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Maya Rudolph
@@ -9478,15 +8695,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Maya Rudolph
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Maya Rudolph
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -9496,11 +8704,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Maya Rudolph
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Olivia Rodrigo
@@ -9586,15 +8794,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Olivia Rodrigo
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -9604,11 +8803,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Olivia Rodrigo
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Obama
@@ -9694,15 +8893,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Obama
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Obama
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -9712,11 +8902,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Obama
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## Nicki Minaj
@@ -9802,15 +8992,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Nicki Minaj
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## Nicki Minaj
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -9820,11 +9001,11 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## Nicki Minaj
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
 ## MrBeast
@@ -9910,15 +9091,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## MrBeast
 
-## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
-
-Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
-
-*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
-
-
-## MrBeast
-
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
@@ -9928,10 +9100,10 @@ Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back 
 
 ## MrBeast
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [adidas  Dime Turn An Iconic Court Sneaker Into a Wavy Skate Shoe](https://www.highsnobiety.com/p/adidas-dime-stan-smith/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
