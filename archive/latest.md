@@ -82,15 +82,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Tim Cook
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Tim Cook
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -190,15 +181,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Taylor Swift
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Taylor Swift
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -298,15 +280,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Tom Brady
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Tom Brady
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -406,15 +379,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Tina Fey
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Tina Fey
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -514,15 +478,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Steven Yuen
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Steven Yuen
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -622,15 +577,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sommer Ray
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Sommer Ray
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -730,15 +676,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sza
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Sza
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -838,15 +775,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sydney Sweeney
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Sydney Sweeney
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -946,15 +874,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Walton Goggins
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Walton Goggins
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1054,15 +973,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Tom Holland
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Tom Holland
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1162,15 +1072,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Gucci Mane
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Gucci Mane
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1270,15 +1171,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Harry Styles
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Harry Styles
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1378,15 +1270,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jake Paul
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Jake Paul
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1486,15 +1369,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jameela Jamil
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Jameela Jamil
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1594,15 +1468,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Elon Musk
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Elon Musk
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1702,15 +1567,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Gabrielle Union
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Gabrielle Union
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1810,15 +1666,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Giancarlo Esposito
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Giancarlo Esposito
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -1918,15 +1765,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Gillian Jacobs
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Gillian Jacobs
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2026,15 +1864,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jason Mantzoukas
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Jason Mantzoukas
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2134,15 +1963,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## JB Smoove
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## JB Smoove
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2242,15 +2062,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Madison Pettis
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Madison Pettis
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2350,15 +2161,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Austin Butler
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Austin Butler
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2458,15 +2260,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Mark Zuckerberg
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Mark Zuckerberg
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2566,15 +2359,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Ariana Grande
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Ariana Grande
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2674,15 +2458,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Livvy Dunne
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Livvy Dunne
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2782,15 +2557,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Ali Wong
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Ali Wong
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2890,15 +2656,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Lizzo
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Lizzo
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -2998,15 +2755,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Alison Brie
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Alison Brie
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3106,15 +2854,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Lil Wayne
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Lil Wayne
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3214,15 +2953,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Adele
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Adele
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3322,15 +3052,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Lindsay Lohan
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Lindsay Lohan
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3430,15 +3151,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Addison Rae
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Addison Rae
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3538,15 +3250,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Latto
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Latto
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3646,15 +3349,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Aaron Paul
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Aaron Paul
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3754,15 +3448,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## LeBron James
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## LeBron James
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3862,15 +3547,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## 50 Cent
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## 50 Cent
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -3970,15 +3646,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Kesha
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Kesha
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4078,15 +3745,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## 21 Savage
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## 21 Savage
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4186,15 +3844,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Larry David
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Larry David
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4294,15 +3943,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Seth Rogan
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Seth Rogan
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4402,15 +4042,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Simone Biles
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Simone Biles
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4510,15 +4141,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Pete Davidson
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Pete Davidson
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4618,15 +4240,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Prince Harry
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Prince Harry
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4726,15 +4339,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Princess of Wales
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Princess of Wales
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4834,15 +4438,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Rachel McAdams
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Rachel McAdams
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -4942,15 +4537,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Reneé Rapp
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Reneé Rapp
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5050,15 +4636,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Rick Ross
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Rick Ross
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5158,15 +4735,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sam Ashgari
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Sam Ashgari
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5266,15 +4834,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sandra Oh
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Sandra Oh
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5374,15 +4933,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Donald Trump
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Donald Trump
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5482,15 +5032,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Diddy
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Diddy
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5590,15 +5131,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## City Girls
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## City Girls
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5698,15 +5230,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Chloe Bailey
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Chloe Bailey
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5806,15 +5329,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Charli D Amelio
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Charli D Amelio
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -5914,15 +5428,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Cardi B
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Cardi B
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6022,15 +5527,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bryan Cranston
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Bryan Cranston
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6130,15 +5626,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Brielle Biermann
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Brielle Biermann
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6238,15 +5725,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Dua Lipa
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Dua Lipa
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6346,15 +5824,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Drake
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Drake
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6454,15 +5923,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jenner
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Jenner
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6562,15 +6022,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## J. Cole
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## J. Cole
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6670,15 +6121,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jerrod Carmichael
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Jerrod Carmichael
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6778,15 +6220,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jennifer Lawrence
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Jennifer Lawrence
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6886,15 +6319,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Joe Biden
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Joe Biden
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -6994,15 +6418,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## J.K. Simmons
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## J.K. Simmons
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7102,15 +6517,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Kamala Harris
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Kamala Harris
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7210,15 +6616,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## John C Reilly
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## John C Reilly
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7318,15 +6715,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Kardashian
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Kardashian
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7426,15 +6814,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Kanye
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Kanye
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7534,15 +6913,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Zendaya
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Zendaya
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7642,15 +7012,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Will Ferrell
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Will Ferrell
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7750,15 +7111,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Zazie Beetz
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Zazie Beetz
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7858,15 +7210,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bob Odenkirk
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Bob Odenkirk
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -7966,15 +7309,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Brad Pitt
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Brad Pitt
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8074,15 +7408,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Beyoncé
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Beyoncé
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8182,15 +7507,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bia
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Bia
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8290,15 +7606,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Avantika
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Avantika
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8398,15 +7705,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bernie Sanders
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Bernie Sanders
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8506,15 +7804,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Big Sean
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Big Sean
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8614,15 +7903,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## BlockBoy JB
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## BlockBoy JB
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8722,15 +8002,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Biden
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Biden
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8830,15 +8101,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bieber
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Bieber
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -8938,15 +8200,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Paulina Porizkov
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Paulina Porizkov
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9046,15 +8299,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Paris Hilton
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Paris Hilton
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9154,15 +8398,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Metro Boomin
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Metro Boomin
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9262,15 +8497,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Meghan Markle
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Meghan Markle
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9370,15 +8596,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Megan Thee Stallion
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Megan Thee Stallion
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9478,15 +8695,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Maya Rudolph
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Maya Rudolph
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9586,15 +8794,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Olivia Rodrigo
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Olivia Rodrigo
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9694,15 +8893,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Obama
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Obama
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9802,15 +8992,6 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Nicki Minaj
 
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
-
-
-## Nicki Minaj
-
 ## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
 
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
@@ -9906,15 +9087,6 @@ Action Bronson's sublime New Balance sneaker collabs just keep coming. With Bron
 Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
 *Published on: Thu, 27 Jun 2024 19:36:59 GMT*
-
-
-## MrBeast
-
-## [Is the Rodeo Over for Travis Scott's Air Jordan  1 Lows?](https://www.highsnobiety.com/p/travis-scott-air-jordan-1-low-2024/)
-
-In June 2024, two new iterations of Travis Scott's ever-popular Nike Air Jordan sneaker collaborations popped up on the timeline like a Cactus Jack in the box.…
-
-*Published on: Wed, 26 Jun 2024 21:27:49 GMT*
 
 
 ## MrBeast
