@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
-
-Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
-
-*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
-
-
-## Tim Cook
-
 ## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
 
 AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
@@ -28,38 +19,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Tim Cook
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Tim Cook
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Tim Cook
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Tim Cook
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Tim Cook
@@ -82,11 +46,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Tim Cook
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Tim Cook
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Tim Cook
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Tim Cook
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Tim Cook
@@ -98,13 +89,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Tim Cook
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Taylor Swift
@@ -127,38 +127,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Taylor Swift
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Taylor Swift
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Taylor Swift
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Taylor Swift
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Taylor Swift
@@ -181,11 +154,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Taylor Swift
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Taylor Swift
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Taylor Swift
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Taylor Swift
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Taylor Swift
@@ -197,13 +197,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Taylor Swift
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Tom Brady
@@ -226,38 +235,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Tom Brady
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Tom Brady
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Tom Brady
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Tom Brady
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Tom Brady
@@ -280,11 +262,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Tom Brady
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Tom Brady
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Tom Brady
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Tom Brady
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Tom Brady
@@ -296,13 +305,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Tom Brady
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Tina Fey
@@ -325,38 +343,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Tina Fey
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Tina Fey
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Tina Fey
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Tina Fey
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Tina Fey
@@ -379,11 +370,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Tina Fey
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Tina Fey
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Tina Fey
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Tina Fey
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Tina Fey
@@ -395,13 +413,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Tina Fey
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Steven Yuen
@@ -424,38 +451,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Steven Yuen
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Steven Yuen
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Steven Yuen
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Steven Yuen
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Steven Yuen
@@ -478,11 +478,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Steven Yuen
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Steven Yuen
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Steven Yuen
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Steven Yuen
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Steven Yuen
@@ -494,13 +521,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Steven Yuen
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Sommer Ray
@@ -523,38 +559,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Sommer Ray
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sommer Ray
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Sommer Ray
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Sommer Ray
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Sommer Ray
@@ -577,11 +586,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sommer Ray
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sommer Ray
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Sommer Ray
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Sommer Ray
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Sommer Ray
@@ -593,13 +629,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Sza
+## Sommer Ray
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Sommer Ray
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Sza
@@ -622,38 +667,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Sza
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sza
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Sza
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Sza
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Sza
@@ -676,11 +694,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sza
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sza
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Sza
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Sza
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Sza
@@ -692,13 +737,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Sza
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Sydney Sweeney
@@ -721,38 +775,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Sydney Sweeney
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sydney Sweeney
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Sydney Sweeney
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Sydney Sweeney
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Sydney Sweeney
@@ -775,11 +802,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sydney Sweeney
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Sydney Sweeney
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Sydney Sweeney
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Sydney Sweeney
@@ -791,13 +845,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Sydney Sweeney
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Walton Goggins
@@ -820,38 +883,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Walton Goggins
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Walton Goggins
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Walton Goggins
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Walton Goggins
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Walton Goggins
@@ -874,11 +910,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Walton Goggins
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Walton Goggins
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Walton Goggins
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Walton Goggins
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Walton Goggins
@@ -890,13 +953,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Walton Goggins
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Tom Holland
@@ -919,38 +991,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Tom Holland
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Tom Holland
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Tom Holland
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Tom Holland
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Tom Holland
@@ -973,11 +1018,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Tom Holland
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Tom Holland
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Tom Holland
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Tom Holland
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Tom Holland
@@ -989,13 +1061,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Tom Holland
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Gucci Mane
@@ -1018,38 +1099,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Gucci Mane
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Gucci Mane
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Gucci Mane
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Gucci Mane
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Gucci Mane
@@ -1072,11 +1126,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Gucci Mane
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Gucci Mane
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Gucci Mane
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Gucci Mane
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Gucci Mane
@@ -1088,13 +1169,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Gucci Mane
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Harry Styles
@@ -1117,38 +1207,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Harry Styles
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Harry Styles
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Harry Styles
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Harry Styles
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Harry Styles
@@ -1171,11 +1234,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Harry Styles
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Harry Styles
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Harry Styles
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Harry Styles
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Harry Styles
@@ -1187,13 +1277,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Harry Styles
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Jake Paul
@@ -1216,38 +1315,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Jake Paul
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jake Paul
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Jake Paul
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Jake Paul
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Jake Paul
@@ -1270,11 +1342,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jake Paul
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jake Paul
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Jake Paul
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Jake Paul
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Jake Paul
@@ -1286,13 +1385,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Jake Paul
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Jameela Jamil
@@ -1315,38 +1423,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Jameela Jamil
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jameela Jamil
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Jameela Jamil
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Jameela Jamil
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Jameela Jamil
@@ -1369,11 +1450,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jameela Jamil
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jameela Jamil
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Jameela Jamil
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Jameela Jamil
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Jameela Jamil
@@ -1385,13 +1493,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Jameela Jamil
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Elon Musk
@@ -1414,38 +1531,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Elon Musk
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Elon Musk
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Elon Musk
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Elon Musk
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Elon Musk
@@ -1468,11 +1558,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Elon Musk
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Elon Musk
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Elon Musk
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Elon Musk
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Elon Musk
@@ -1484,13 +1601,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Elon Musk
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Gabrielle Union
@@ -1513,38 +1639,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Gabrielle Union
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Gabrielle Union
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Gabrielle Union
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Gabrielle Union
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Gabrielle Union
@@ -1567,11 +1666,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Gabrielle Union
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Gabrielle Union
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Gabrielle Union
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Gabrielle Union
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Gabrielle Union
@@ -1583,13 +1709,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Gabrielle Union
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Giancarlo Esposito
@@ -1612,38 +1747,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Giancarlo Esposito
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Giancarlo Esposito
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Giancarlo Esposito
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Giancarlo Esposito
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Giancarlo Esposito
@@ -1666,11 +1774,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Giancarlo Esposito
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Giancarlo Esposito
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Giancarlo Esposito
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Giancarlo Esposito
@@ -1682,13 +1817,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Giancarlo Esposito
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Gillian Jacobs
@@ -1711,38 +1855,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Gillian Jacobs
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Gillian Jacobs
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Gillian Jacobs
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Gillian Jacobs
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Gillian Jacobs
@@ -1765,11 +1882,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Gillian Jacobs
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Gillian Jacobs
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Gillian Jacobs
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Gillian Jacobs
@@ -1781,13 +1925,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Gillian Jacobs
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Jason Mantzoukas
@@ -1810,38 +1963,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Jason Mantzoukas
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jason Mantzoukas
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Jason Mantzoukas
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Jason Mantzoukas
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Jason Mantzoukas
@@ -1864,11 +1990,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jason Mantzoukas
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Jason Mantzoukas
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Jason Mantzoukas
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Jason Mantzoukas
@@ -1880,13 +2033,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Jason Mantzoukas
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## JB Smoove
@@ -1909,38 +2071,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## JB Smoove
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## JB Smoove
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## JB Smoove
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## JB Smoove
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## JB Smoove
@@ -1963,11 +2098,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## JB Smoove
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## JB Smoove
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## JB Smoove
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## JB Smoove
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## JB Smoove
@@ -1979,13 +2141,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## JB Smoove
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Madison Pettis
@@ -2008,38 +2179,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Madison Pettis
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Madison Pettis
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Madison Pettis
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Madison Pettis
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Madison Pettis
@@ -2062,11 +2206,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Madison Pettis
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Madison Pettis
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Madison Pettis
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Madison Pettis
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Madison Pettis
@@ -2078,13 +2249,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Madison Pettis
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Austin Butler
@@ -2107,38 +2287,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Austin Butler
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Austin Butler
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Austin Butler
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Austin Butler
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Austin Butler
@@ -2161,11 +2314,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Austin Butler
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Austin Butler
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Austin Butler
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Austin Butler
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Austin Butler
@@ -2177,13 +2357,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Austin Butler
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Mark Zuckerberg
@@ -2206,38 +2395,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Mark Zuckerberg
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Mark Zuckerberg
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Mark Zuckerberg
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Mark Zuckerberg
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Mark Zuckerberg
@@ -2260,11 +2422,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Mark Zuckerberg
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Mark Zuckerberg
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Mark Zuckerberg
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Mark Zuckerberg
@@ -2276,13 +2465,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Mark Zuckerberg
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Ariana Grande
@@ -2305,38 +2503,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Ariana Grande
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Ariana Grande
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Ariana Grande
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Ariana Grande
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Ariana Grande
@@ -2359,11 +2530,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Ariana Grande
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Ariana Grande
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Ariana Grande
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Ariana Grande
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Ariana Grande
@@ -2375,13 +2573,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Ariana Grande
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Livvy Dunne
@@ -2404,38 +2611,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Livvy Dunne
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Livvy Dunne
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Livvy Dunne
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Livvy Dunne
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Livvy Dunne
@@ -2458,11 +2638,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Livvy Dunne
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Livvy Dunne
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Livvy Dunne
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Livvy Dunne
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Livvy Dunne
@@ -2474,13 +2681,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Livvy Dunne
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Ali Wong
@@ -2503,38 +2719,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Ali Wong
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Ali Wong
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Ali Wong
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Ali Wong
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Ali Wong
@@ -2557,11 +2746,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Ali Wong
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Ali Wong
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Ali Wong
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Ali Wong
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Ali Wong
@@ -2573,13 +2789,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Lizzo
+## Ali Wong
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Ali Wong
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Lizzo
@@ -2602,38 +2827,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Lizzo
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Lizzo
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Lizzo
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Lizzo
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Lizzo
@@ -2656,11 +2854,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Lizzo
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Lizzo
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Lizzo
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Lizzo
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Lizzo
@@ -2672,13 +2897,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Alison Brie
+## Lizzo
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Lizzo
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Alison Brie
@@ -2701,38 +2935,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Alison Brie
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Alison Brie
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Alison Brie
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Alison Brie
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Alison Brie
@@ -2755,11 +2962,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Alison Brie
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Alison Brie
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Alison Brie
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Alison Brie
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Alison Brie
@@ -2771,13 +3005,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Alison Brie
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Lil Wayne
@@ -2800,38 +3043,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Lil Wayne
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Lil Wayne
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Lil Wayne
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Lil Wayne
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Lil Wayne
@@ -2854,11 +3070,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Lil Wayne
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Lil Wayne
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Lil Wayne
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Lil Wayne
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Lil Wayne
@@ -2870,13 +3113,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Adele
+## Lil Wayne
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Lil Wayne
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Adele
@@ -2899,38 +3151,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Adele
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Adele
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Adele
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Adele
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Adele
@@ -2953,11 +3178,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Adele
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Adele
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Adele
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Adele
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Adele
@@ -2969,13 +3221,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Adele
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Lindsay Lohan
@@ -2998,38 +3259,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Lindsay Lohan
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Lindsay Lohan
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Lindsay Lohan
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Lindsay Lohan
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Lindsay Lohan
@@ -3052,11 +3286,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Lindsay Lohan
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Lindsay Lohan
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Lindsay Lohan
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Lindsay Lohan
@@ -3068,13 +3329,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Lindsay Lohan
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Addison Rae
@@ -3097,38 +3367,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Addison Rae
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Addison Rae
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Addison Rae
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Addison Rae
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Addison Rae
@@ -3151,11 +3394,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Addison Rae
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Addison Rae
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Addison Rae
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Addison Rae
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Addison Rae
@@ -3167,13 +3437,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Latto
+## Addison Rae
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Addison Rae
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Latto
@@ -3196,38 +3475,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Latto
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Latto
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Latto
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Latto
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Latto
@@ -3250,11 +3502,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Latto
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Latto
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Latto
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Latto
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Latto
@@ -3266,13 +3545,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Aaron Paul
+## Latto
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Latto
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Aaron Paul
@@ -3295,38 +3583,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Aaron Paul
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Aaron Paul
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Aaron Paul
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Aaron Paul
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Aaron Paul
@@ -3349,11 +3610,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Aaron Paul
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Aaron Paul
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Aaron Paul
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Aaron Paul
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Aaron Paul
@@ -3365,13 +3653,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Aaron Paul
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## LeBron James
@@ -3394,38 +3691,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## LeBron James
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## LeBron James
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## LeBron James
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## LeBron James
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## LeBron James
@@ -3448,11 +3718,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## LeBron James
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## LeBron James
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## LeBron James
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## LeBron James
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## LeBron James
@@ -3464,13 +3761,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## 50 Cent
+## LeBron James
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## LeBron James
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## 50 Cent
@@ -3493,38 +3799,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## 50 Cent
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## 50 Cent
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## 50 Cent
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## 50 Cent
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## 50 Cent
@@ -3547,11 +3826,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## 50 Cent
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## 50 Cent
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## 50 Cent
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## 50 Cent
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## 50 Cent
@@ -3563,13 +3869,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Kesha
+## 50 Cent
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## 50 Cent
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Kesha
@@ -3592,38 +3907,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Kesha
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Kesha
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Kesha
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Kesha
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Kesha
@@ -3646,11 +3934,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Kesha
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Kesha
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Kesha
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Kesha
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Kesha
@@ -3662,13 +3977,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Kesha
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## 21 Savage
@@ -3691,38 +4015,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## 21 Savage
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## 21 Savage
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## 21 Savage
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## 21 Savage
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## 21 Savage
@@ -3745,11 +4042,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## 21 Savage
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## 21 Savage
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## 21 Savage
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## 21 Savage
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## 21 Savage
@@ -3761,13 +4085,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Larry David
+## 21 Savage
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## 21 Savage
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Larry David
@@ -3790,38 +4123,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Larry David
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Larry David
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Larry David
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Larry David
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Larry David
@@ -3844,11 +4150,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Larry David
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Larry David
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Larry David
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Larry David
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Larry David
@@ -3860,13 +4193,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Seth Rogan
+## Larry David
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Larry David
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Seth Rogan
@@ -3889,38 +4231,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Seth Rogan
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Seth Rogan
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Seth Rogan
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Seth Rogan
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Seth Rogan
@@ -3943,11 +4258,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Seth Rogan
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Seth Rogan
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Seth Rogan
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Seth Rogan
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Seth Rogan
@@ -3959,13 +4301,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Seth Rogan
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Simone Biles
@@ -3988,38 +4339,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Simone Biles
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Simone Biles
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Simone Biles
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Simone Biles
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Simone Biles
@@ -4042,11 +4366,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Simone Biles
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Simone Biles
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Simone Biles
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Simone Biles
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Simone Biles
@@ -4058,13 +4409,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Simone Biles
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Pete Davidson
@@ -4087,38 +4447,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Pete Davidson
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Pete Davidson
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Pete Davidson
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Pete Davidson
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Pete Davidson
@@ -4141,11 +4474,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Pete Davidson
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Pete Davidson
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Pete Davidson
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Pete Davidson
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Pete Davidson
@@ -4157,13 +4517,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Pete Davidson
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Prince Harry
@@ -4186,38 +4555,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Prince Harry
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Prince Harry
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Prince Harry
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Prince Harry
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Prince Harry
@@ -4240,11 +4582,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Prince Harry
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Prince Harry
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Prince Harry
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Prince Harry
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Prince Harry
@@ -4256,13 +4625,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Prince Harry
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Princess of Wales
@@ -4285,38 +4663,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Princess of Wales
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Princess of Wales
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Princess of Wales
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Princess of Wales
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Princess of Wales
@@ -4339,11 +4690,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Princess of Wales
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Princess of Wales
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Princess of Wales
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Princess of Wales
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Princess of Wales
@@ -4355,13 +4733,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Princess of Wales
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Rachel McAdams
@@ -4384,38 +4771,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Rachel McAdams
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Rachel McAdams
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Rachel McAdams
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Rachel McAdams
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Rachel McAdams
@@ -4438,11 +4798,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Rachel McAdams
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Rachel McAdams
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Rachel McAdams
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Rachel McAdams
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Rachel McAdams
@@ -4454,13 +4841,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Rachel McAdams
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Reneé Rapp
@@ -4483,38 +4879,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Reneé Rapp
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Reneé Rapp
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Reneé Rapp
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Reneé Rapp
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Reneé Rapp
@@ -4537,11 +4906,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Reneé Rapp
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Reneé Rapp
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Reneé Rapp
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Reneé Rapp
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Reneé Rapp
@@ -4553,13 +4949,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Reneé Rapp
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Rick Ross
@@ -4582,38 +4987,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Rick Ross
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Rick Ross
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Rick Ross
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Rick Ross
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Rick Ross
@@ -4636,11 +5014,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Rick Ross
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Rick Ross
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Rick Ross
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Rick Ross
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Rick Ross
@@ -4652,13 +5057,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Rick Ross
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Sam Ashgari
@@ -4681,38 +5095,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Sam Ashgari
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sam Ashgari
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Sam Ashgari
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Sam Ashgari
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Sam Ashgari
@@ -4735,11 +5122,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sam Ashgari
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sam Ashgari
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Sam Ashgari
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Sam Ashgari
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Sam Ashgari
@@ -4751,13 +5165,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Sam Ashgari
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Sandra Oh
@@ -4780,38 +5203,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Sandra Oh
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Sandra Oh
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Sandra Oh
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Sandra Oh
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Sandra Oh
@@ -4834,11 +5230,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Sandra Oh
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sandra Oh
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Sandra Oh
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Sandra Oh
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Sandra Oh
@@ -4850,13 +5273,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Sandra Oh
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Donald Trump
@@ -4879,38 +5311,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Donald Trump
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Donald Trump
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Donald Trump
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Donald Trump
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Donald Trump
@@ -4933,11 +5338,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Donald Trump
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Donald Trump
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Donald Trump
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Donald Trump
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Donald Trump
@@ -4949,13 +5381,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Diddy
+## Donald Trump
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Donald Trump
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Diddy
@@ -4978,38 +5419,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Diddy
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Diddy
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Diddy
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Diddy
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Diddy
@@ -5032,11 +5446,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Diddy
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Diddy
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Diddy
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Diddy
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Diddy
@@ -5048,13 +5489,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## City Girls
+## Diddy
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Diddy
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## City Girls
@@ -5077,38 +5527,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## City Girls
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## City Girls
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## City Girls
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## City Girls
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## City Girls
@@ -5131,11 +5554,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## City Girls
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## City Girls
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## City Girls
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## City Girls
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## City Girls
@@ -5147,13 +5597,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## City Girls
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Chloe Bailey
@@ -5176,38 +5635,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Chloe Bailey
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Chloe Bailey
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Chloe Bailey
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Chloe Bailey
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Chloe Bailey
@@ -5230,11 +5662,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Chloe Bailey
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Chloe Bailey
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Chloe Bailey
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Chloe Bailey
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Chloe Bailey
@@ -5246,13 +5705,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Chloe Bailey
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Charli D Amelio
@@ -5275,38 +5743,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Charli D Amelio
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Charli D Amelio
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Charli D Amelio
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Charli D Amelio
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Charli D Amelio
@@ -5329,11 +5770,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Charli D Amelio
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Charli D Amelio
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Charli D Amelio
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Charli D Amelio
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Charli D Amelio
@@ -5345,13 +5813,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Charli D Amelio
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Cardi B
@@ -5374,38 +5851,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Cardi B
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Cardi B
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Cardi B
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Cardi B
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Cardi B
@@ -5428,11 +5878,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Cardi B
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Cardi B
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Cardi B
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Cardi B
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Cardi B
@@ -5444,13 +5921,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Cardi B
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Bryan Cranston
@@ -5473,38 +5959,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Bryan Cranston
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bryan Cranston
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Bryan Cranston
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Bryan Cranston
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Bryan Cranston
@@ -5527,11 +5986,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bryan Cranston
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bryan Cranston
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Bryan Cranston
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Bryan Cranston
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Bryan Cranston
@@ -5543,13 +6029,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Bryan Cranston
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Brielle Biermann
@@ -5572,38 +6067,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Brielle Biermann
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Brielle Biermann
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Brielle Biermann
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Brielle Biermann
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Brielle Biermann
@@ -5626,11 +6094,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Brielle Biermann
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Brielle Biermann
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Brielle Biermann
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Brielle Biermann
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Brielle Biermann
@@ -5642,13 +6137,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Brielle Biermann
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Dua Lipa
@@ -5671,38 +6175,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Dua Lipa
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Dua Lipa
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Dua Lipa
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Dua Lipa
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Dua Lipa
@@ -5725,11 +6202,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Dua Lipa
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Dua Lipa
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Dua Lipa
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Dua Lipa
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Dua Lipa
@@ -5741,13 +6245,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Dua Lipa
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Drake
@@ -5770,38 +6283,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Drake
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Drake
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Drake
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Drake
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Drake
@@ -5824,11 +6310,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Drake
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Drake
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Drake
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Drake
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Drake
@@ -5840,13 +6353,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Jenner
+## Drake
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Drake
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Jenner
@@ -5869,38 +6391,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Jenner
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jenner
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Jenner
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Jenner
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Jenner
@@ -5923,11 +6418,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jenner
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jenner
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Jenner
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Jenner
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Jenner
@@ -5939,13 +6461,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## J. Cole
+## Jenner
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Jenner
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## J. Cole
@@ -5968,38 +6499,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## J. Cole
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## J. Cole
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## J. Cole
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## J. Cole
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## J. Cole
@@ -6022,11 +6526,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## J. Cole
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## J. Cole
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## J. Cole
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## J. Cole
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## J. Cole
@@ -6038,13 +6569,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## J. Cole
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Jerrod Carmichael
@@ -6067,38 +6607,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Jerrod Carmichael
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jerrod Carmichael
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Jerrod Carmichael
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Jerrod Carmichael
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Jerrod Carmichael
@@ -6121,11 +6634,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jerrod Carmichael
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Jerrod Carmichael
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Jerrod Carmichael
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Jerrod Carmichael
@@ -6137,13 +6677,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Jerrod Carmichael
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Jennifer Lawrence
@@ -6166,38 +6715,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Jennifer Lawrence
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Jennifer Lawrence
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Jennifer Lawrence
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Jennifer Lawrence
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Jennifer Lawrence
@@ -6220,11 +6742,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Jennifer Lawrence
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Jennifer Lawrence
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Jennifer Lawrence
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Jennifer Lawrence
@@ -6236,13 +6785,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Jennifer Lawrence
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Joe Biden
@@ -6265,38 +6823,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Joe Biden
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Joe Biden
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Joe Biden
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Joe Biden
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Joe Biden
@@ -6319,11 +6850,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Joe Biden
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Joe Biden
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Joe Biden
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Joe Biden
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Joe Biden
@@ -6335,13 +6893,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Joe Biden
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## J.K. Simmons
@@ -6364,38 +6931,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## J.K. Simmons
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## J.K. Simmons
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## J.K. Simmons
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## J.K. Simmons
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## J.K. Simmons
@@ -6418,11 +6958,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## J.K. Simmons
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## J.K. Simmons
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## J.K. Simmons
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## J.K. Simmons
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## J.K. Simmons
@@ -6434,13 +7001,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## J.K. Simmons
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Kamala Harris
@@ -6463,38 +7039,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Kamala Harris
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Kamala Harris
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Kamala Harris
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Kamala Harris
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Kamala Harris
@@ -6517,11 +7066,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Kamala Harris
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Kamala Harris
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Kamala Harris
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Kamala Harris
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Kamala Harris
@@ -6533,13 +7109,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Kamala Harris
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## John C Reilly
@@ -6562,38 +7147,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## John C Reilly
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## John C Reilly
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## John C Reilly
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## John C Reilly
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## John C Reilly
@@ -6616,11 +7174,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## John C Reilly
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## John C Reilly
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## John C Reilly
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## John C Reilly
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## John C Reilly
@@ -6632,13 +7217,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## John C Reilly
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Kardashian
@@ -6661,38 +7255,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Kardashian
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Kardashian
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Kardashian
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Kardashian
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Kardashian
@@ -6715,11 +7282,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Kardashian
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Kardashian
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Kardashian
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Kardashian
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Kardashian
@@ -6731,13 +7325,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Kanye
+## Kardashian
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Kardashian
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Kanye
@@ -6760,38 +7363,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Kanye
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Kanye
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Kanye
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Kanye
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Kanye
@@ -6814,11 +7390,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Kanye
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Kanye
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Kanye
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Kanye
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Kanye
@@ -6830,13 +7433,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Zendaya
+## Kanye
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Kanye
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Zendaya
@@ -6859,38 +7471,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Zendaya
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Zendaya
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Zendaya
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Zendaya
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Zendaya
@@ -6913,11 +7498,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Zendaya
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Zendaya
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Zendaya
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Zendaya
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Zendaya
@@ -6929,13 +7541,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Zendaya
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Will Ferrell
@@ -6958,38 +7579,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Will Ferrell
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Will Ferrell
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Will Ferrell
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Will Ferrell
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Will Ferrell
@@ -7012,11 +7606,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Will Ferrell
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Will Ferrell
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Will Ferrell
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Will Ferrell
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Will Ferrell
@@ -7028,13 +7649,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Will Ferrell
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Zazie Beetz
@@ -7057,38 +7687,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Zazie Beetz
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Zazie Beetz
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Zazie Beetz
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Zazie Beetz
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Zazie Beetz
@@ -7111,11 +7714,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Zazie Beetz
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Zazie Beetz
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Zazie Beetz
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Zazie Beetz
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Zazie Beetz
@@ -7127,13 +7757,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Zazie Beetz
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Bob Odenkirk
@@ -7156,38 +7795,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Bob Odenkirk
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bob Odenkirk
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Bob Odenkirk
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Bob Odenkirk
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Bob Odenkirk
@@ -7210,11 +7822,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bob Odenkirk
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Bob Odenkirk
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Bob Odenkirk
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Bob Odenkirk
@@ -7226,13 +7865,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Bob Odenkirk
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Brad Pitt
@@ -7255,38 +7903,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Brad Pitt
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Brad Pitt
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Brad Pitt
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Brad Pitt
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Brad Pitt
@@ -7309,11 +7930,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Brad Pitt
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Brad Pitt
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Brad Pitt
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Brad Pitt
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Brad Pitt
@@ -7325,13 +7973,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Brad Pitt
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Beyoncé
@@ -7354,38 +8011,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Beyoncé
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Beyoncé
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Beyoncé
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Beyoncé
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Beyoncé
@@ -7408,11 +8038,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Beyoncé
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Beyoncé
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Beyoncé
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Beyoncé
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Beyoncé
@@ -7424,13 +8081,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Bia
+## Beyoncé
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Beyoncé
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Bia
@@ -7453,38 +8119,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Bia
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bia
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Bia
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Bia
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Bia
@@ -7507,11 +8146,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bia
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bia
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Bia
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Bia
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Bia
@@ -7523,13 +8189,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Avantika
+## Bia
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Bia
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Avantika
@@ -7552,38 +8227,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Avantika
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Avantika
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Avantika
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Avantika
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Avantika
@@ -7606,11 +8254,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Avantika
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Avantika
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Avantika
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Avantika
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Avantika
@@ -7622,13 +8297,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Avantika
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Bernie Sanders
@@ -7651,38 +8335,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Bernie Sanders
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bernie Sanders
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Bernie Sanders
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Bernie Sanders
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Bernie Sanders
@@ -7705,11 +8362,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bernie Sanders
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bernie Sanders
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Bernie Sanders
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Bernie Sanders
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Bernie Sanders
@@ -7721,13 +8405,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Bernie Sanders
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Big Sean
@@ -7750,38 +8443,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Big Sean
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Big Sean
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Big Sean
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Big Sean
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Big Sean
@@ -7804,11 +8470,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Big Sean
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Big Sean
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Big Sean
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Big Sean
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Big Sean
@@ -7820,13 +8513,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Big Sean
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## BlockBoy JB
@@ -7849,38 +8551,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## BlockBoy JB
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## BlockBoy JB
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## BlockBoy JB
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## BlockBoy JB
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## BlockBoy JB
@@ -7903,11 +8578,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## BlockBoy JB
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## BlockBoy JB
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## BlockBoy JB
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## BlockBoy JB
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## BlockBoy JB
@@ -7919,13 +8621,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Biden
+## BlockBoy JB
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## BlockBoy JB
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Biden
@@ -7948,38 +8659,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Biden
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Biden
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Biden
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Biden
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Biden
@@ -8002,11 +8686,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Biden
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Biden
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Biden
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Biden
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Biden
@@ -8018,13 +8729,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Bieber
+## Biden
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Biden
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Bieber
@@ -8047,38 +8767,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Bieber
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Bieber
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Bieber
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Bieber
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Bieber
@@ -8101,11 +8794,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Bieber
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bieber
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Bieber
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Bieber
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Bieber
@@ -8117,13 +8837,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Bieber
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Paulina Porizkov
@@ -8146,38 +8875,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Paulina Porizkov
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Paulina Porizkov
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Paulina Porizkov
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Paulina Porizkov
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Paulina Porizkov
@@ -8200,11 +8902,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Paulina Porizkov
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Paulina Porizkov
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Paulina Porizkov
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Paulina Porizkov
@@ -8216,13 +8945,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Paulina Porizkov
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Paris Hilton
@@ -8245,38 +8983,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Paris Hilton
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Paris Hilton
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Paris Hilton
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Paris Hilton
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Paris Hilton
@@ -8299,11 +9010,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Paris Hilton
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Paris Hilton
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Paris Hilton
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Paris Hilton
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Paris Hilton
@@ -8315,13 +9053,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Paris Hilton
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Metro Boomin
@@ -8344,38 +9091,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Metro Boomin
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Metro Boomin
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Metro Boomin
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Metro Boomin
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Metro Boomin
@@ -8398,11 +9118,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Metro Boomin
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Metro Boomin
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Metro Boomin
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Metro Boomin
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Metro Boomin
@@ -8414,13 +9161,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Metro Boomin
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Meghan Markle
@@ -8443,38 +9199,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Meghan Markle
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Meghan Markle
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Meghan Markle
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Meghan Markle
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Meghan Markle
@@ -8497,11 +9226,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Meghan Markle
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Meghan Markle
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Meghan Markle
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Meghan Markle
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Meghan Markle
@@ -8513,13 +9269,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Meghan Markle
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Megan Thee Stallion
@@ -8542,38 +9307,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Megan Thee Stallion
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Megan Thee Stallion
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Megan Thee Stallion
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Megan Thee Stallion
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Megan Thee Stallion
@@ -8596,11 +9334,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Megan Thee Stallion
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Megan Thee Stallion
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Megan Thee Stallion
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Megan Thee Stallion
@@ -8612,13 +9377,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Megan Thee Stallion
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Maya Rudolph
@@ -8641,38 +9415,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Maya Rudolph
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Maya Rudolph
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Maya Rudolph
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Maya Rudolph
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Maya Rudolph
@@ -8695,11 +9442,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Maya Rudolph
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Maya Rudolph
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Maya Rudolph
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Maya Rudolph
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Maya Rudolph
@@ -8711,13 +9485,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Maya Rudolph
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Olivia Rodrigo
@@ -8740,38 +9523,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Olivia Rodrigo
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Olivia Rodrigo
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Olivia Rodrigo
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Olivia Rodrigo
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Olivia Rodrigo
@@ -8794,11 +9550,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Olivia Rodrigo
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Olivia Rodrigo
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Olivia Rodrigo
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Olivia Rodrigo
@@ -8810,13 +9593,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Olivia Rodrigo
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Obama
@@ -8839,38 +9631,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Obama
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Obama
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Obama
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Obama
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Obama
@@ -8893,11 +9658,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Obama
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Obama
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Obama
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Obama
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Obama
@@ -8909,13 +9701,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Obama
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## Nicki Minaj
@@ -8938,38 +9739,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## Nicki Minaj
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## Nicki Minaj
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## Nicki Minaj
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## Nicki Minaj
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## Nicki Minaj
@@ -8992,11 +9766,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## Nicki Minaj
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Nicki Minaj
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## Nicki Minaj
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## Nicki Minaj
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## Nicki Minaj
@@ -9008,13 +9809,22 @@ Dime has not only collaborated with adidas to create a limited-edition take on t
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
 
 Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
 
 *Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## Nicki Minaj
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
 ## MrBeast
@@ -9037,38 +9847,11 @@ ASICS' Gel-Nimbus 10.1 sneaker is yet to be released but Stefon Diggs has alread
 
 ## MrBeast
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Thu, 27 Jun 2024 11:13:24 GMT*
-
-
-## MrBeast
-
 ## [JAY-Z Suddenly Swapped Swoosh Sneakers for... Bad Bunny's Stripes?](https://www.highsnobiety.com/p/jay-z-adidas-bad-bunny-sneakers-outfit/)
 
 JAY-Z's ongoing sneaker chronicles are weirdly fascinating, not least because Mr. Beyoncé has been wearing Nike and YEEZY sneakers even before quietly terminat…
 
 *Published on: Thu, 27 Jun 2024 14:14:35 GMT*
-
-
-## MrBeast
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Thu, 27 Jun 2024 17:18:32 GMT*
-
-
-## MrBeast
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Thu, 27 Jun 2024 17:52:19 GMT*
 
 
 ## MrBeast
@@ -9091,11 +9874,38 @@ Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tu
 
 ## MrBeast
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
 
-*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## MrBeast
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Fri, 28 Jun 2024 07:00:24 GMT*
+
+
+## MrBeast
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Fri, 28 Jun 2024 07:30:32 GMT*
+
+
+## MrBeast
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Fri, 28 Jun 2024 08:52:19 GMT*
 
 
 ## MrBeast
@@ -9105,5 +9915,23 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 Dime has not only collaborated with adidas to create a limited-edition take on the Stan Smith sneaker, it has managed to get the actual Stan Smith to announce …
 
 *Published on: Thu, 27 Jun 2024 08:30:34 GMT*
+
+
+## MrBeast
+
+## [Satoshi Nakamoto Made a Classic Vans Skate Shoe Punk AF ](https://www.highsnobiety.com/p/satoshi-nakamoto-vans-old-skool-collab/)
+
+Vans OTW and Satoshi Nakamoto are taking a pair of Vans Old Skool sneakers back to "Rock 'n' Roll High School."Pause, isn't Satoshi Nakamoto the father of Bitc…
+
+*Published on: Thu, 27 Jun 2024 09:00:38 GMT*
+
+
+## MrBeast
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Thu, 27 Jun 2024 08:40:23 GMT*
 
 
