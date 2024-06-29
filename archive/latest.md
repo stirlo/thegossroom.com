@@ -116,6 +116,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Tim Cook
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Tim Cook
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Taylor Swift
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -231,6 +249,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Taylor Swift
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Taylor Swift
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Tom Brady
@@ -350,6 +386,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Tom Brady
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Tom Brady
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Tina Fey
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -465,6 +519,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Tina Fey
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Tina Fey
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Steven Yuen
@@ -584,6 +656,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Steven Yuen
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Steven Yuen
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Sommer Ray
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -699,6 +789,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Sommer Ray
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sommer Ray
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Sza
@@ -818,6 +926,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Sza
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sza
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -933,6 +1059,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Sydney Sweeney
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sydney Sweeney
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Walton Goggins
@@ -1052,6 +1196,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Walton Goggins
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Walton Goggins
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Tom Holland
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -1167,6 +1329,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Tom Holland
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Tom Holland
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Gucci Mane
@@ -1286,6 +1466,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Gucci Mane
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Gucci Mane
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Harry Styles
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -1401,6 +1599,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Harry Styles
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Harry Styles
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Jake Paul
@@ -1520,6 +1736,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Jake Paul
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jake Paul
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Jameela Jamil
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -1635,6 +1869,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Jameela Jamil
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jameela Jamil
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Elon Musk
@@ -1754,6 +2006,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Elon Musk
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Elon Musk
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Gabrielle Union
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -1869,6 +2139,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Gabrielle Union
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Gabrielle Union
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Giancarlo Esposito
@@ -1988,6 +2276,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Giancarlo Esposito
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Giancarlo Esposito
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -2103,6 +2409,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Gillian Jacobs
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Gillian Jacobs
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Jason Mantzoukas
@@ -2222,6 +2546,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Jason Mantzoukas
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jason Mantzoukas
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## JB Smoove
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -2337,6 +2679,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## JB Smoove
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## JB Smoove
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Madison Pettis
@@ -2456,6 +2816,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Madison Pettis
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Madison Pettis
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Austin Butler
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -2571,6 +2949,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Austin Butler
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Austin Butler
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Mark Zuckerberg
@@ -2690,6 +3086,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Mark Zuckerberg
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Mark Zuckerberg
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Ariana Grande
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -2805,6 +3219,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Ariana Grande
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Ariana Grande
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Livvy Dunne
@@ -2924,6 +3356,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Livvy Dunne
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Livvy Dunne
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Ali Wong
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -3039,6 +3489,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Ali Wong
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Ali Wong
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Lizzo
@@ -3158,6 +3626,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Lizzo
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Lizzo
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Alison Brie
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -3273,6 +3759,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Alison Brie
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Alison Brie
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Lil Wayne
@@ -3392,6 +3896,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Lil Wayne
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Lil Wayne
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Adele
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -3507,6 +4029,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Adele
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Adele
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Lindsay Lohan
@@ -3626,6 +4166,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Lindsay Lohan
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Lindsay Lohan
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Addison Rae
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -3741,6 +4299,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Addison Rae
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Addison Rae
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Latto
@@ -3860,6 +4436,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Latto
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Latto
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Aaron Paul
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -3975,6 +4569,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Aaron Paul
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Aaron Paul
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## LeBron James
@@ -4094,6 +4706,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## LeBron James
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## LeBron James
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## 50 Cent
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -4209,6 +4839,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## 50 Cent
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## 50 Cent
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Kesha
@@ -4328,6 +4976,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Kesha
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Kesha
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## 21 Savage
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -4443,6 +5109,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## 21 Savage
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## 21 Savage
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Larry David
@@ -4562,6 +5246,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Larry David
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Larry David
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Seth Rogan
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -4677,6 +5379,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Seth Rogan
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Seth Rogan
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Simone Biles
@@ -4796,6 +5516,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Simone Biles
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Simone Biles
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Pete Davidson
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -4911,6 +5649,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Pete Davidson
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Pete Davidson
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Prince Harry
@@ -5030,6 +5786,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Prince Harry
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Prince Harry
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Princess of Wales
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -5145,6 +5919,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Princess of Wales
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Princess of Wales
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Rachel McAdams
@@ -5264,6 +6056,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Rachel McAdams
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Rachel McAdams
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Reneé Rapp
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -5379,6 +6189,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Reneé Rapp
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Reneé Rapp
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Rick Ross
@@ -5498,6 +6326,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Rick Ross
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Rick Ross
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Sam Ashgari
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -5613,6 +6459,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Sam Ashgari
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sam Ashgari
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Sandra Oh
@@ -5732,6 +6596,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Sandra Oh
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Sandra Oh
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Donald Trump
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -5847,6 +6729,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Donald Trump
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Donald Trump
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Diddy
@@ -5966,6 +6866,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Diddy
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Diddy
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## City Girls
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -6081,6 +6999,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## City Girls
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## City Girls
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Chloe Bailey
@@ -6200,6 +7136,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Chloe Bailey
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Chloe Bailey
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Charli D Amelio
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -6315,6 +7269,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Charli D Amelio
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Charli D Amelio
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Cardi B
@@ -6434,6 +7406,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Cardi B
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Cardi B
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Bryan Cranston
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -6549,6 +7539,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Bryan Cranston
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bryan Cranston
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Brielle Biermann
@@ -6668,6 +7676,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Brielle Biermann
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Brielle Biermann
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Dua Lipa
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -6783,6 +7809,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Dua Lipa
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Dua Lipa
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Drake
@@ -6902,6 +7946,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Drake
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Drake
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Jenner
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -7017,6 +8079,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Jenner
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jenner
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## J. Cole
@@ -7136,6 +8216,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## J. Cole
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## J. Cole
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -7251,6 +8349,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Jerrod Carmichael
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jerrod Carmichael
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Jennifer Lawrence
@@ -7370,6 +8486,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Jennifer Lawrence
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Jennifer Lawrence
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Joe Biden
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -7485,6 +8619,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Joe Biden
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Joe Biden
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## J.K. Simmons
@@ -7604,6 +8756,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## J.K. Simmons
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## J.K. Simmons
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Kamala Harris
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -7719,6 +8889,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Kamala Harris
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Kamala Harris
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## John C Reilly
@@ -7838,6 +9026,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## John C Reilly
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## John C Reilly
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Kardashian
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -7953,6 +9159,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Kardashian
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Kardashian
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Kanye
@@ -8072,6 +9296,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Kanye
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Kanye
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Zendaya
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -8187,6 +9429,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Zendaya
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Zendaya
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Will Ferrell
@@ -8306,6 +9566,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Will Ferrell
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Will Ferrell
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Zazie Beetz
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -8421,6 +9699,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Zazie Beetz
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Zazie Beetz
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Bob Odenkirk
@@ -8540,6 +9836,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Bob Odenkirk
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bob Odenkirk
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Brad Pitt
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -8655,6 +9969,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Brad Pitt
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Brad Pitt
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Beyoncé
@@ -8774,6 +10106,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Beyoncé
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Beyoncé
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Bia
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -8889,6 +10239,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Bia
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bia
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Avantika
@@ -9008,6 +10376,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Avantika
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Avantika
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Bernie Sanders
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -9123,6 +10509,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## Bernie Sanders
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bernie Sanders
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Big Sean
@@ -9242,6 +10646,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Big Sean
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Big Sean
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## BlockBoy JB
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -9357,6 +10779,24 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## BlockBoy JB
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## BlockBoy JB
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
 ## Biden
@@ -9476,6 +10916,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Biden
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Biden
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Bieber
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -9593,6 +11051,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Bieber
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Bieber
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Paulina Porizkov
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -9710,6 +11186,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Paulina Porizkov
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Paulina Porizkov
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Paris Hilton
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -9827,6 +11321,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Paris Hilton
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Paris Hilton
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Metro Boomin
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -9944,6 +11456,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Metro Boomin
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Metro Boomin
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Meghan Markle
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -10061,6 +11591,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Meghan Markle
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Meghan Markle
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Megan Thee Stallion
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -10178,6 +11726,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Megan Thee Stallion
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Megan Thee Stallion
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Maya Rudolph
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -10295,6 +11861,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Maya Rudolph
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Maya Rudolph
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -10412,6 +11996,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Olivia Rodrigo
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Olivia Rodrigo
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Obama
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -10529,6 +12131,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Obama
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Obama
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## Nicki Minaj
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -10646,6 +12266,24 @@ Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-ser
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
 
 
+## Nicki Minaj
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## Nicki Minaj
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
+
+
 ## MrBeast
 
 ## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
@@ -10761,5 +12399,23 @@ Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty pr
 Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
 
 *Published on: Fri, 28 Jun 2024 12:46:23 GMT*
+
+
+## MrBeast
+
+## [Surprisingly Tough Dad Shoes From... Under Armour?](https://www.highsnobiety.com/p/under-armour-dad-shoes-2024/)
+
+The last time I ever gave Under Armour sneakers a real look was when ASAP Rocky released his one-off 2018 collaboration that was basically a goth version of Os…
+
+*Published on: Thu, 27 Jun 2024 21:17:03 GMT*
+
+
+## MrBeast
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Thu, 27 Jun 2024 19:36:59 GMT*
 
 
