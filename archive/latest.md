@@ -82,15 +82,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Tim Cook
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Tim Cook
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -190,15 +181,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Taylor Swift
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Taylor Swift
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -298,15 +280,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Tom Brady
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Tom Brady
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -406,15 +379,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Tina Fey
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Tina Fey
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -514,15 +478,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Steven Yuen
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Steven Yuen
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -622,15 +577,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Sommer Ray
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Sommer Ray
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -730,15 +676,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Sza
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Sza
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -838,15 +775,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Sydney Sweeney
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Sydney Sweeney
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -946,15 +874,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Walton Goggins
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Walton Goggins
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -1054,15 +973,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Tom Holland
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Tom Holland
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -1162,15 +1072,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Gucci Mane
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Gucci Mane
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -1270,15 +1171,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Harry Styles
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Harry Styles
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -1378,15 +1270,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Jake Paul
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Jake Paul
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -1486,15 +1369,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Jameela Jamil
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Jameela Jamil
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -1594,15 +1468,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Elon Musk
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Elon Musk
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -1702,15 +1567,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Gabrielle Union
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Gabrielle Union
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -1810,15 +1666,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Giancarlo Esposito
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -1918,15 +1765,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Gillian Jacobs
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Gillian Jacobs
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2026,15 +1864,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Jason Mantzoukas
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2134,15 +1963,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## JB Smoove
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## JB Smoove
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2242,15 +2062,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Madison Pettis
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Madison Pettis
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2350,15 +2161,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Austin Butler
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Austin Butler
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2458,15 +2260,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Mark Zuckerberg
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2566,15 +2359,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Ariana Grande
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Ariana Grande
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2674,15 +2458,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Livvy Dunne
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Livvy Dunne
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2782,15 +2557,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Ali Wong
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Ali Wong
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2890,15 +2656,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Lizzo
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Lizzo
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -2998,15 +2755,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Alison Brie
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Alison Brie
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -3106,15 +2854,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Lil Wayne
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Lil Wayne
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -3214,15 +2953,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Adele
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Adele
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -3322,15 +3052,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Lindsay Lohan
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Lindsay Lohan
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -3430,15 +3151,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Addison Rae
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Addison Rae
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -3538,15 +3250,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Latto
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Latto
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -3646,15 +3349,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Aaron Paul
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Aaron Paul
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -3754,15 +3448,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## LeBron James
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## LeBron James
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -3862,15 +3547,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## 50 Cent
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## 50 Cent
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -3970,15 +3646,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Kesha
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Kesha
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -4078,15 +3745,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## 21 Savage
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## 21 Savage
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -4186,15 +3844,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Larry David
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Larry David
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -4294,15 +3943,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Seth Rogan
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Seth Rogan
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -4402,15 +4042,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Simone Biles
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Simone Biles
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -4510,15 +4141,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Pete Davidson
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Pete Davidson
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -4618,15 +4240,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Prince Harry
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Prince Harry
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -4726,15 +4339,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Princess of Wales
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Princess of Wales
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -4834,15 +4438,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Rachel McAdams
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Rachel McAdams
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -4942,15 +4537,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Reneé Rapp
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Reneé Rapp
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -5050,15 +4636,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Rick Ross
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Rick Ross
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -5158,15 +4735,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Sam Ashgari
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Sam Ashgari
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -5266,15 +4834,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Sandra Oh
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Sandra Oh
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -5374,15 +4933,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Donald Trump
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Donald Trump
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -5482,15 +5032,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Diddy
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Diddy
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -5590,15 +5131,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## City Girls
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## City Girls
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -5698,15 +5230,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Chloe Bailey
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Chloe Bailey
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -5806,15 +5329,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Charli D Amelio
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Charli D Amelio
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -5914,15 +5428,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Cardi B
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Cardi B
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6022,15 +5527,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Bryan Cranston
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Bryan Cranston
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6130,15 +5626,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Brielle Biermann
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Brielle Biermann
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6238,15 +5725,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Dua Lipa
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Dua Lipa
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6346,15 +5824,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Drake
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Drake
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6454,15 +5923,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Jenner
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Jenner
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6562,15 +6022,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## J. Cole
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## J. Cole
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6670,15 +6121,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Jerrod Carmichael
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6778,15 +6220,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Jennifer Lawrence
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6886,15 +6319,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Joe Biden
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Joe Biden
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -6994,15 +6418,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## J.K. Simmons
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## J.K. Simmons
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -7102,15 +6517,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Kamala Harris
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Kamala Harris
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -7210,15 +6616,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## John C Reilly
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## John C Reilly
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -7318,15 +6715,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Kardashian
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Kardashian
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -7426,15 +6814,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Kanye
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Kanye
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -7534,15 +6913,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Zendaya
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Zendaya
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -7642,15 +7012,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Will Ferrell
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Will Ferrell
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -7750,15 +7111,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Zazie Beetz
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Zazie Beetz
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -7858,15 +7210,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Bob Odenkirk
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Bob Odenkirk
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -7966,15 +7309,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Brad Pitt
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Brad Pitt
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -8074,15 +7408,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Beyoncé
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Beyoncé
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -8182,15 +7507,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Bia
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Bia
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -8290,15 +7606,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Avantika
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Avantika
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -8398,15 +7705,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Bernie Sanders
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Bernie Sanders
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -8506,15 +7804,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Big Sean
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Big Sean
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -8614,15 +7903,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## BlockBoy JB
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## BlockBoy JB
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -8722,15 +8002,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Biden
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Biden
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -8830,15 +8101,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Bieber
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Bieber
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -8938,15 +8200,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Paulina Porizkov
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Paulina Porizkov
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -9046,15 +8299,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Paris Hilton
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Paris Hilton
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -9154,15 +8398,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Metro Boomin
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Metro Boomin
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -9262,15 +8497,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Meghan Markle
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Meghan Markle
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -9370,15 +8596,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Megan Thee Stallion
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -9478,15 +8695,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Maya Rudolph
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Maya Rudolph
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -9586,15 +8794,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Olivia Rodrigo
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -9694,15 +8893,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Obama
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Obama
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -9802,15 +8992,6 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 
 ## Nicki Minaj
 
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
-
-
-## Nicki Minaj
-
 ## [Face Value: The 5 Best Beauty Drops of June](https://www.highsnobiety.com/p/best-new-beauty-products-june/)
 
 Welcome to Face Value , Highsnobiety’s monthly guide to the best new beauty products and the brands behind them.It might be summer vacation season, but our fav…
@@ -9906,15 +9087,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and excellent spins from collabora…
 
 *Published on: Fri, 28 Jun 2024 21:35:20 GMT*
-
-
-## MrBeast
-
-## [Nike's Flawless Grandpa Steppers Are Back to the Future](https://www.highsnobiety.com/p/nike-ld-1000-sneaker-2024/)
-
-Who doesn't love fresh waffles more than Nike? As of 2024, Nike been toasting up a new iteration of its oldest running sneaker, the LD-1000, for some time. At …
-
-*Published on: Fri, 28 Jun 2024 09:08:31 GMT*
 
 
 ## MrBeast
