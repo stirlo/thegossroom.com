@@ -1,42 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Tim Cook
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Tim Cook
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Tim Cook
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
-
-
-## Tim Cook
-
 ## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
 
 It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
@@ -53,16 +17,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Tim Cook
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Tim Cook
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Tim Cook
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Tim Cook
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Tim Cook
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Tim Cook
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -71,22 +89,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Tim Cook
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Taylor Swift
@@ -105,6 +132,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Taylor Swift
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Taylor Swift
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Taylor Swift
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Taylor Swift
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Taylor Swift
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Taylor Swift
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Taylor Swift
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Taylor Swift
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Taylor Swift
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Taylor Swift
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Taylor Swift
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Tom Brady
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Tom Brady
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Tom Brady
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Tom Brady
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Tom Brady
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Tom Brady
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Tom Brady
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Tom Brady
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Tom Brady
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Tom Brady
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Tom Brady
@@ -118,24 +334,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Tom Brady
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Tom Brady
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Tom Brady
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -145,56 +343,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Tom Brady
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Tom Brady
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Tina Fey
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Tina Fey
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Tina Fey
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Tina Fey
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Tina Fey
@@ -215,16 +368,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Tina Fey
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Tina Fey
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Tina Fey
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Tina Fey
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Tina Fey
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Tina Fey
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -233,22 +440,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Tina Fey
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Steven Yuen
@@ -267,6 +483,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Steven Yuen
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Steven Yuen
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Steven Yuen
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Steven Yuen
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Steven Yuen
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Steven Yuen
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Steven Yuen
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Steven Yuen
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Steven Yuen
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Steven Yuen
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Steven Yuen
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Sommer Ray
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Sommer Ray
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Sommer Ray
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Sommer Ray
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Sommer Ray
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Sommer Ray
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Sommer Ray
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Sommer Ray
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Sommer Ray
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Sommer Ray
@@ -280,24 +685,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Sommer Ray
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Sommer Ray
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Sommer Ray
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -307,56 +694,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Sommer Ray
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Sza
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Sza
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Sza
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Sza
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Sza
@@ -377,16 +719,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Sza
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Sza
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Sza
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Sza
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Sza
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Sza
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -395,22 +791,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Sza
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Sydney Sweeney
@@ -429,6 +834,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Sydney Sweeney
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Sydney Sweeney
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Sydney Sweeney
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Sydney Sweeney
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Sydney Sweeney
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Walton Goggins
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Walton Goggins
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Walton Goggins
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Walton Goggins
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Walton Goggins
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Walton Goggins
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Walton Goggins
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Walton Goggins
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Walton Goggins
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Walton Goggins
@@ -442,24 +1036,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Walton Goggins
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Walton Goggins
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Walton Goggins
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -469,56 +1045,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Walton Goggins
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Tom Holland
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Tom Holland
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Tom Holland
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Tom Holland
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Tom Holland
@@ -539,16 +1070,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Tom Holland
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Tom Holland
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Tom Holland
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Tom Holland
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Tom Holland
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Tom Holland
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -557,22 +1142,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Tom Holland
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Gucci Mane
@@ -591,6 +1185,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Gucci Mane
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Gucci Mane
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Gucci Mane
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Gucci Mane
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Gucci Mane
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Gucci Mane
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Gucci Mane
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Gucci Mane
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Gucci Mane
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Gucci Mane
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Gucci Mane
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Harry Styles
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Harry Styles
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Harry Styles
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Harry Styles
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Harry Styles
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Harry Styles
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Harry Styles
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Harry Styles
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Harry Styles
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Harry Styles
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Harry Styles
@@ -604,24 +1387,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Harry Styles
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Harry Styles
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Harry Styles
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -631,56 +1396,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Harry Styles
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Harry Styles
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Jake Paul
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Jake Paul
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Jake Paul
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Jake Paul
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Jake Paul
@@ -701,16 +1421,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Jake Paul
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Jake Paul
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Jake Paul
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Jake Paul
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Jake Paul
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Jake Paul
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -719,22 +1493,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Jake Paul
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Jameela Jamil
@@ -753,6 +1536,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Jameela Jamil
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Jameela Jamil
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Jameela Jamil
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Jameela Jamil
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Jameela Jamil
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Jameela Jamil
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Jameela Jamil
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Jameela Jamil
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Jameela Jamil
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Jameela Jamil
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Jameela Jamil
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Elon Musk
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Elon Musk
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Elon Musk
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Elon Musk
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Elon Musk
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Elon Musk
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Elon Musk
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Elon Musk
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Elon Musk
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Elon Musk
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Elon Musk
@@ -766,24 +1738,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Elon Musk
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Elon Musk
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Elon Musk
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -793,56 +1747,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Elon Musk
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Elon Musk
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Gabrielle Union
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Gabrielle Union
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Gabrielle Union
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Gabrielle Union
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Gabrielle Union
@@ -863,16 +1772,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Gabrielle Union
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Gabrielle Union
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Gabrielle Union
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Gabrielle Union
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Gabrielle Union
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Gabrielle Union
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -881,22 +1844,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Gabrielle Union
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -915,6 +1887,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Giancarlo Esposito
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Giancarlo Esposito
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Giancarlo Esposito
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Gillian Jacobs
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Gillian Jacobs
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Gillian Jacobs
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Gillian Jacobs
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Gillian Jacobs
@@ -928,24 +2089,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Gillian Jacobs
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Gillian Jacobs
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -955,56 +2098,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Gillian Jacobs
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Jason Mantzoukas
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1025,16 +2123,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Jason Mantzoukas
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Jason Mantzoukas
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Jason Mantzoukas
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -1043,22 +2195,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## JB Smoove
@@ -1077,6 +2238,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## JB Smoove
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## JB Smoove
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## JB Smoove
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## JB Smoove
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## JB Smoove
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## JB Smoove
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## JB Smoove
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## JB Smoove
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## JB Smoove
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## JB Smoove
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## JB Smoove
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Madison Pettis
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Madison Pettis
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Madison Pettis
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Madison Pettis
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Madison Pettis
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Madison Pettis
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Madison Pettis
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Madison Pettis
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Madison Pettis
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Madison Pettis
@@ -1090,24 +2440,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Madison Pettis
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Madison Pettis
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Madison Pettis
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -1117,56 +2449,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Madison Pettis
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Austin Butler
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Austin Butler
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Austin Butler
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Austin Butler
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Austin Butler
@@ -1187,16 +2474,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Austin Butler
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Austin Butler
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Austin Butler
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Austin Butler
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Austin Butler
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Austin Butler
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -1205,22 +2546,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Austin Butler
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1239,6 +2589,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Mark Zuckerberg
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Mark Zuckerberg
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Mark Zuckerberg
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Ariana Grande
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Ariana Grande
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Ariana Grande
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Ariana Grande
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Ariana Grande
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Ariana Grande
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Ariana Grande
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Ariana Grande
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Ariana Grande
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Ariana Grande
@@ -1252,24 +2791,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Ariana Grande
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Ariana Grande
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Ariana Grande
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -1279,56 +2800,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Ariana Grande
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Livvy Dunne
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Livvy Dunne
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Livvy Dunne
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Livvy Dunne
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Livvy Dunne
@@ -1349,16 +2825,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Livvy Dunne
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Livvy Dunne
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Livvy Dunne
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Livvy Dunne
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Livvy Dunne
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Livvy Dunne
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -1367,22 +2897,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Livvy Dunne
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Ali Wong
@@ -1401,6 +2940,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Ali Wong
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Ali Wong
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Ali Wong
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Ali Wong
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Ali Wong
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Ali Wong
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Ali Wong
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Ali Wong
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Ali Wong
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Ali Wong
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Ali Wong
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Lizzo
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Lizzo
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Lizzo
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Lizzo
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Lizzo
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Lizzo
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Lizzo
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Lizzo
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Lizzo
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Lizzo
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Lizzo
@@ -1414,24 +3142,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Lizzo
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Lizzo
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Lizzo
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -1441,56 +3151,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Lizzo
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Lizzo
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Alison Brie
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Alison Brie
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Alison Brie
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Alison Brie
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Alison Brie
@@ -1511,16 +3176,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Alison Brie
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Alison Brie
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Alison Brie
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Alison Brie
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Alison Brie
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Alison Brie
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -1529,22 +3248,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Alison Brie
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Lil Wayne
@@ -1563,6 +3291,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Lil Wayne
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Lil Wayne
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Lil Wayne
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Lil Wayne
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Lil Wayne
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Lil Wayne
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Lil Wayne
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Lil Wayne
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Lil Wayne
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Lil Wayne
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Lil Wayne
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Adele
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Adele
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Adele
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Adele
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Adele
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Adele
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Adele
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Adele
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Adele
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Adele
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Adele
@@ -1576,24 +3493,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Adele
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Adele
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Adele
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -1603,56 +3502,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Adele
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Adele
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Lindsay Lohan
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Lindsay Lohan
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Lindsay Lohan
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Lindsay Lohan
@@ -1673,16 +3527,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Lindsay Lohan
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Lindsay Lohan
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Lindsay Lohan
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Lindsay Lohan
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -1691,22 +3599,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Addison Rae
@@ -1725,6 +3642,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Addison Rae
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Addison Rae
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Addison Rae
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Addison Rae
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Addison Rae
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Addison Rae
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Addison Rae
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Addison Rae
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Addison Rae
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Addison Rae
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Addison Rae
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Latto
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Latto
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Latto
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Latto
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Latto
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Latto
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Latto
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Latto
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Latto
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Latto
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Latto
@@ -1738,24 +3844,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Latto
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Latto
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Latto
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -1765,56 +3853,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Latto
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Latto
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Aaron Paul
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Aaron Paul
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Aaron Paul
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Aaron Paul
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Aaron Paul
@@ -1835,16 +3878,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Aaron Paul
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Aaron Paul
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Aaron Paul
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Aaron Paul
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Aaron Paul
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Aaron Paul
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -1853,22 +3950,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Aaron Paul
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## LeBron James
@@ -1887,6 +3993,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## LeBron James
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## LeBron James
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## LeBron James
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## LeBron James
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## LeBron James
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## LeBron James
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## LeBron James
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## LeBron James
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## LeBron James
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## LeBron James
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## LeBron James
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## 50 Cent
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## 50 Cent
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## 50 Cent
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## 50 Cent
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## 50 Cent
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## 50 Cent
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## 50 Cent
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## 50 Cent
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## 50 Cent
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## 50 Cent
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## 50 Cent
@@ -1900,24 +4195,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## 50 Cent
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## 50 Cent
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## 50 Cent
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -1927,56 +4204,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## 50 Cent
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## 50 Cent
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Kesha
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Kesha
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Kesha
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Kesha
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Kesha
@@ -1997,16 +4229,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## 21 Savage
+## Kesha
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Kesha
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Kesha
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Kesha
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Kesha
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Kesha
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Kesha
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -2015,22 +4301,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Kesha
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## 21 Savage
@@ -2049,6 +4344,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## 21 Savage
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## 21 Savage
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## 21 Savage
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## 21 Savage
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## 21 Savage
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## 21 Savage
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## 21 Savage
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## 21 Savage
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## 21 Savage
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## 21 Savage
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## 21 Savage
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Larry David
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Larry David
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Larry David
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Larry David
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Larry David
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Larry David
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Larry David
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Larry David
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Larry David
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Larry David
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Larry David
@@ -2062,24 +4546,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Larry David
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Larry David
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Larry David
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -2089,56 +4555,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Larry David
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Larry David
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Seth Rogan
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Seth Rogan
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Seth Rogan
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Seth Rogan
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Seth Rogan
@@ -2159,16 +4580,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Seth Rogan
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Seth Rogan
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Seth Rogan
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Seth Rogan
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Seth Rogan
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Seth Rogan
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -2177,22 +4652,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Seth Rogan
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Simone Biles
@@ -2211,6 +4695,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Simone Biles
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Simone Biles
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Simone Biles
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Simone Biles
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Simone Biles
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Simone Biles
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Simone Biles
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Simone Biles
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Simone Biles
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Simone Biles
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Simone Biles
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Pete Davidson
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Pete Davidson
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Pete Davidson
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Pete Davidson
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Pete Davidson
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Pete Davidson
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Pete Davidson
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Pete Davidson
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Pete Davidson
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Pete Davidson
@@ -2224,24 +4897,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Pete Davidson
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Pete Davidson
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Pete Davidson
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -2251,56 +4906,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Pete Davidson
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Prince Harry
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Prince Harry
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Prince Harry
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Prince Harry
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Prince Harry
@@ -2321,16 +4931,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Prince Harry
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Prince Harry
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Prince Harry
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Prince Harry
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Prince Harry
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Prince Harry
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -2339,22 +5003,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Prince Harry
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Princess of Wales
@@ -2373,6 +5046,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Princess of Wales
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Princess of Wales
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Princess of Wales
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Princess of Wales
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Princess of Wales
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Princess of Wales
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Princess of Wales
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Princess of Wales
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Princess of Wales
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Princess of Wales
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Princess of Wales
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Rachel McAdams
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Rachel McAdams
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Rachel McAdams
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Rachel McAdams
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Rachel McAdams
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Rachel McAdams
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Rachel McAdams
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Rachel McAdams
@@ -2386,24 +5248,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Rachel McAdams
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Rachel McAdams
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Rachel McAdams
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -2413,56 +5257,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Rachel McAdams
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Reneé Rapp
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Reneé Rapp
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Reneé Rapp
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Reneé Rapp
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Reneé Rapp
@@ -2483,16 +5282,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Reneé Rapp
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Reneé Rapp
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Reneé Rapp
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Reneé Rapp
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Reneé Rapp
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Reneé Rapp
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -2501,22 +5354,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Reneé Rapp
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Rick Ross
@@ -2535,6 +5397,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Rick Ross
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Rick Ross
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Rick Ross
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Rick Ross
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Rick Ross
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Rick Ross
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Rick Ross
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Rick Ross
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Rick Ross
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Rick Ross
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Rick Ross
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Sam Ashgari
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Sam Ashgari
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Sam Ashgari
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Sam Ashgari
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Sam Ashgari
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Sam Ashgari
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Sam Ashgari
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Sam Ashgari
@@ -2548,24 +5599,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Sam Ashgari
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Sam Ashgari
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Sam Ashgari
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -2575,56 +5608,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Sam Ashgari
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Sandra Oh
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Sandra Oh
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Sandra Oh
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Sandra Oh
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Sandra Oh
@@ -2645,16 +5633,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Sandra Oh
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Sandra Oh
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Sandra Oh
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Sandra Oh
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Sandra Oh
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Sandra Oh
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -2663,22 +5705,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Sandra Oh
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Donald Trump
@@ -2697,6 +5748,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Donald Trump
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Donald Trump
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Donald Trump
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Donald Trump
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Donald Trump
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Donald Trump
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Donald Trump
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Donald Trump
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Donald Trump
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Donald Trump
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Donald Trump
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Diddy
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Diddy
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Diddy
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Diddy
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Diddy
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Diddy
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Diddy
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Diddy
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Diddy
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Diddy
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Diddy
@@ -2710,24 +5950,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Diddy
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Diddy
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Diddy
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -2737,56 +5959,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Diddy
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Diddy
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## City Girls
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## City Girls
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## City Girls
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## City Girls
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## City Girls
@@ -2807,16 +5984,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## City Girls
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## City Girls
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## City Girls
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## City Girls
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## City Girls
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## City Girls
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -2825,22 +6056,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## City Girls
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Chloe Bailey
@@ -2859,6 +6099,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Chloe Bailey
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Chloe Bailey
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Chloe Bailey
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Chloe Bailey
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Chloe Bailey
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Chloe Bailey
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Chloe Bailey
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Chloe Bailey
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Chloe Bailey
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Chloe Bailey
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Chloe Bailey
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Charli D Amelio
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Charli D Amelio
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Charli D Amelio
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Charli D Amelio
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Charli D Amelio
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Charli D Amelio
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Charli D Amelio
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Charli D Amelio
@@ -2872,24 +6301,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Charli D Amelio
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Charli D Amelio
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Charli D Amelio
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -2899,56 +6310,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Charli D Amelio
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Cardi B
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Cardi B
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Cardi B
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Cardi B
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Cardi B
@@ -2969,16 +6335,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Cardi B
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Cardi B
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Cardi B
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Cardi B
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Cardi B
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Cardi B
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -2987,22 +6407,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Cardi B
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Bryan Cranston
@@ -3021,6 +6450,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Bryan Cranston
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Bryan Cranston
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Bryan Cranston
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Bryan Cranston
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Bryan Cranston
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Bryan Cranston
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Bryan Cranston
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Bryan Cranston
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Bryan Cranston
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Bryan Cranston
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Bryan Cranston
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Brielle Biermann
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Brielle Biermann
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Brielle Biermann
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Brielle Biermann
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Brielle Biermann
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Brielle Biermann
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Brielle Biermann
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Brielle Biermann
@@ -3034,24 +6652,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Brielle Biermann
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Brielle Biermann
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Brielle Biermann
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -3061,56 +6661,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Brielle Biermann
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Dua Lipa
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Dua Lipa
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Dua Lipa
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Dua Lipa
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Dua Lipa
@@ -3131,16 +6686,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Drake
+## Dua Lipa
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Dua Lipa
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Dua Lipa
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Dua Lipa
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Dua Lipa
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Dua Lipa
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Dua Lipa
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -3149,22 +6758,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Dua Lipa
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Drake
@@ -3183,6 +6801,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Drake
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Drake
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Drake
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Drake
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Drake
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Drake
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Drake
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Drake
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Drake
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Drake
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Drake
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Jenner
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Jenner
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Jenner
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Jenner
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Jenner
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Jenner
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Jenner
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Jenner
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Jenner
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Jenner
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Jenner
@@ -3196,24 +7003,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Jenner
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Jenner
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Jenner
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -3223,56 +7012,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Jenner
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Jenner
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## J. Cole
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## J. Cole
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## J. Cole
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## J. Cole
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## J. Cole
@@ -3293,16 +7037,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## J. Cole
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## J. Cole
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## J. Cole
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## J. Cole
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## J. Cole
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## J. Cole
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -3311,22 +7109,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## J. Cole
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -3345,6 +7152,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Jerrod Carmichael
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Jerrod Carmichael
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Jerrod Carmichael
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Jennifer Lawrence
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Jennifer Lawrence
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Jennifer Lawrence
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -3358,24 +7354,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Jennifer Lawrence
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Jennifer Lawrence
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -3385,56 +7363,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Jennifer Lawrence
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Joe Biden
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Joe Biden
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Joe Biden
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Joe Biden
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Joe Biden
@@ -3455,16 +7388,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Joe Biden
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Joe Biden
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Joe Biden
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Joe Biden
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Joe Biden
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Joe Biden
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -3473,22 +7460,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Joe Biden
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## J.K. Simmons
@@ -3507,6 +7503,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## J.K. Simmons
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## J.K. Simmons
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## J.K. Simmons
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## J.K. Simmons
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## J.K. Simmons
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## J.K. Simmons
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## J.K. Simmons
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## J.K. Simmons
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## J.K. Simmons
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## J.K. Simmons
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## J.K. Simmons
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Kamala Harris
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Kamala Harris
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Kamala Harris
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Kamala Harris
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Kamala Harris
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Kamala Harris
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Kamala Harris
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Kamala Harris
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Kamala Harris
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Kamala Harris
@@ -3520,24 +7705,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Kamala Harris
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Kamala Harris
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Kamala Harris
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -3547,56 +7714,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Kamala Harris
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## John C Reilly
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## John C Reilly
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## John C Reilly
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## John C Reilly
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## John C Reilly
@@ -3617,16 +7739,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Kardashian
+## John C Reilly
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## John C Reilly
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## John C Reilly
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## John C Reilly
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## John C Reilly
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## John C Reilly
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## John C Reilly
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -3635,22 +7811,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## John C Reilly
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Kardashian
@@ -3669,6 +7854,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Kardashian
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Kardashian
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Kardashian
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Kardashian
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Kardashian
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Kardashian
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Kardashian
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Kardashian
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Kardashian
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Kardashian
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Kardashian
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Kanye
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Kanye
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Kanye
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Kanye
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Kanye
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Kanye
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Kanye
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Kanye
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Kanye
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Kanye
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Kanye
@@ -3682,24 +8056,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Kanye
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Kanye
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Kanye
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -3709,56 +8065,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Kanye
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Kanye
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Zendaya
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Zendaya
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Zendaya
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Zendaya
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Zendaya
@@ -3779,16 +8090,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Zendaya
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Zendaya
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Zendaya
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Zendaya
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Zendaya
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Zendaya
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -3797,22 +8162,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Zendaya
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Will Ferrell
@@ -3831,6 +8205,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Will Ferrell
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Will Ferrell
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Will Ferrell
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Will Ferrell
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Will Ferrell
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Will Ferrell
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Will Ferrell
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Will Ferrell
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Will Ferrell
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Will Ferrell
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Will Ferrell
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Zazie Beetz
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Zazie Beetz
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Zazie Beetz
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Zazie Beetz
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Zazie Beetz
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Zazie Beetz
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Zazie Beetz
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Zazie Beetz
@@ -3844,24 +8407,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Zazie Beetz
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Zazie Beetz
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Zazie Beetz
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -3871,56 +8416,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Zazie Beetz
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Bob Odenkirk
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Bob Odenkirk
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Bob Odenkirk
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Bob Odenkirk
@@ -3941,16 +8441,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Bob Odenkirk
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Bob Odenkirk
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Bob Odenkirk
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Bob Odenkirk
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -3959,22 +8513,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Brad Pitt
@@ -3993,6 +8556,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Brad Pitt
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Brad Pitt
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Brad Pitt
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Brad Pitt
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Brad Pitt
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Brad Pitt
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Brad Pitt
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Brad Pitt
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Brad Pitt
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Brad Pitt
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Brad Pitt
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Beyoncé
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Beyoncé
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Beyoncé
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Beyoncé
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Beyoncé
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Beyoncé
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Beyoncé
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Beyoncé
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Beyoncé
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Beyoncé
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Beyoncé
@@ -4006,24 +8758,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Beyoncé
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Beyoncé
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Beyoncé
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -4033,56 +8767,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Beyoncé
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Beyoncé
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Bia
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Bia
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Bia
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Bia
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Bia
@@ -4103,16 +8792,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Avantika
+## Bia
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Avantika
+## Bia
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Bia
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Bia
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Bia
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Bia
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Bia
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Bia
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -4121,22 +8864,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Avantika
+## Bia
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Avantika
+## Bia
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Bia
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Avantika
@@ -4155,6 +8907,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Avantika
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Avantika
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Avantika
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Avantika
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Avantika
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Avantika
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Avantika
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Avantika
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Avantika
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Avantika
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Avantika
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Bernie Sanders
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Bernie Sanders
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Bernie Sanders
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Bernie Sanders
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Bernie Sanders
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Bernie Sanders
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Bernie Sanders
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Bernie Sanders
@@ -4168,24 +9109,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Bernie Sanders
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Bernie Sanders
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Bernie Sanders
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -4195,56 +9118,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Bernie Sanders
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Big Sean
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Big Sean
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Big Sean
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Big Sean
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Big Sean
@@ -4265,16 +9143,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Big Sean
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Big Sean
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Big Sean
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Big Sean
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Big Sean
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Big Sean
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -4283,22 +9215,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Big Sean
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## BlockBoy JB
@@ -4317,6 +9258,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## BlockBoy JB
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## BlockBoy JB
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## BlockBoy JB
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## BlockBoy JB
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## BlockBoy JB
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## BlockBoy JB
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## BlockBoy JB
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## BlockBoy JB
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## BlockBoy JB
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## BlockBoy JB
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## BlockBoy JB
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Biden
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Biden
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Biden
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Biden
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Biden
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Biden
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Biden
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Biden
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Biden
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Biden
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Biden
@@ -4330,24 +9460,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Biden
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Biden
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Biden
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -4357,56 +9469,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Biden
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Biden
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Bieber
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Bieber
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Bieber
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Bieber
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Bieber
@@ -4427,16 +9494,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Bieber
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Bieber
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Bieber
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Bieber
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Bieber
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Bieber
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -4445,22 +9566,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Bieber
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Paulina Porizkov
@@ -4479,6 +9609,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Paulina Porizkov
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Paulina Porizkov
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Paulina Porizkov
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Paulina Porizkov
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Paulina Porizkov
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Paris Hilton
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Paris Hilton
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Paris Hilton
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Paris Hilton
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Paris Hilton
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Paris Hilton
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Paris Hilton
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Paris Hilton
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Paris Hilton
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Paris Hilton
@@ -4492,24 +9811,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Paris Hilton
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Paris Hilton
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Paris Hilton
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -4519,56 +9820,11 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Paris Hilton
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## Paris Hilton
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
-
-
-## Metro Boomin
-
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
-
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
-
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
-
-
-## Metro Boomin
-
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Metro Boomin
-
 ## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
 Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
 *Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Metro Boomin
-
-## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
-
-Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
-
-*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
 
 
 ## Metro Boomin
@@ -4589,16 +9845,70 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Metro Boomin
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Metro Boomin
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Metro Boomin
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Metro Boomin
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Metro Boomin
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Metro Boomin
 
 ## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
 
@@ -4607,22 +9917,31 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 *Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
 
 *Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Metro Boomin
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
 ## Meghan Markle
@@ -4641,6 +9960,195 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
 
 *Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Meghan Markle
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Meghan Markle
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Meghan Markle
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Meghan Markle
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Meghan Markle
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Meghan Markle
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Meghan Markle
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Meghan Markle
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
+
+
+## Meghan Markle
+
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+
+
+## Meghan Markle
+
+## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
+
+Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
+
+*Published on: Sat, 29 Jun 2024 14:30:00 GMT*
+
+
+## Meghan Markle
+
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
+
+Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
+
+*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+
+
+## Megan Thee Stallion
+
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
+
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
+
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Megan Thee Stallion
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Megan Thee Stallion
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
+
+Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
+
+*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -4654,24 +10162,6 @@ Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks 
 
 ## Megan Thee Stallion
 
-## [Is Glossier Rebranding? Beauty Sleuths Say Yes](https://www.highsnobiety.com/p/glossier-rebrand-2024/)
-
-Glossier's summer capsule collection has beauty sleuths wondering if the Millennial Pink makeup giant is gearing up for a rebrand.Earlier this month, Glossier …
-
-*Published on: Sat, 29 Jun 2024 14:15:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
-
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
-
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
-
-
-## Megan Thee Stallion
-
 ## [ On Jeremy Allen White, Schlubby Shoes Are Suddenly Sexy](https://www.highsnobiety.com/p/jeremy-allen-white-slides-outfit/)
 
 Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Los Angeles wearing a pair of shower shoes, a wholly unsexy silhouette that on Th…
@@ -4681,6 +10171,15 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Megan Thee Stallion
 
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Maya Rudolph
+
 ## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
 
 It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
@@ -4688,7 +10187,7 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 *Published on: Sat, 29 Jun 2024 15:17:00 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
 
@@ -4699,11 +10198,65 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 
 ## Maya Rudolph
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Maya Rudolph
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Maya Rudolph
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Maya Rudolph
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Maya Rudolph
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Maya Rudolph
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Maya Rudolph
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
 
 
 ## Maya Rudolph
@@ -4717,11 +10270,11 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 
 ## Maya Rudolph
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
 ## Maya Rudolph
@@ -4735,6 +10288,15 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Maya Rudolph
 
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Olivia Rodrigo
+
 ## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
 
 It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
@@ -4742,7 +10304,7 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 *Published on: Sat, 29 Jun 2024 15:17:00 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
 
@@ -4753,11 +10315,65 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 
 ## Olivia Rodrigo
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Olivia Rodrigo
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Olivia Rodrigo
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -4771,11 +10387,11 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 
 ## Olivia Rodrigo
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -4789,6 +10405,15 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Olivia Rodrigo
 
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Obama
+
 ## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
 
 It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
@@ -4796,7 +10421,7 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 *Published on: Sat, 29 Jun 2024 15:17:00 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
 
@@ -4807,11 +10432,65 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 
 ## Obama
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Obama
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Obama
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Obama
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Obama
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Obama
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Obama
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
 
 
 ## Obama
@@ -4825,11 +10504,11 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 
 ## Obama
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
 ## Obama
@@ -4843,6 +10522,15 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Obama
 
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## Nicki Minaj
+
 ## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
 
 It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
@@ -4850,7 +10538,7 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 *Published on: Sat, 29 Jun 2024 15:17:00 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
 
@@ -4861,11 +10549,65 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 
 ## Nicki Minaj
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## Nicki Minaj
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## Nicki Minaj
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## Nicki Minaj
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## Nicki Minaj
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## Nicki Minaj
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## Nicki Minaj
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
 
 
 ## Nicki Minaj
@@ -4879,11 +10621,11 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 
 ## Nicki Minaj
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
 ## Nicki Minaj
@@ -4897,6 +10639,15 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## Nicki Minaj
 
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+
+
+## MrBeast
+
 ## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
 
 It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
@@ -4904,7 +10655,7 @@ It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid
 *Published on: Sat, 29 Jun 2024 15:17:00 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
 
@@ -4915,11 +10666,65 @@ Nike is really pushing the denim agenda with its shoes this summer, adding anoth
 
 ## MrBeast
 
-## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
+## [Sunscreen From Scratch? Not So Fast](https://www.highsnobiety.com/p/nara-smith-sunscreen-tiktok/)
 
-Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
+Nara Smith may be a chef extraordinaire, but a cosmetic chemist she is not.On Tuesday, the model — known for her elaborate, "from scratch" recipes, which she d…
 
-*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
+*Published on: Sat, 29 Jun 2024 17:48:00 GMT*
+
+
+## MrBeast
+
+## [Converse Adds a Fantastically Beefy Sneaker-Loafer to the Mix ](https://www.highsnobiety.com/p/converse-loafer-2024/)
+
+In case you missed it, Converse is the king of big shoes. In recent years, the brand has honed its knack for making chunky shoes, like the platformed Run Star …
+
+*Published on: Sat, 29 Jun 2024 18:57:28 GMT*
+
+
+## MrBeast
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
+
+
+## MrBeast
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Sun, 30 Jun 2024 13:55:00 GMT*
+
+
+## MrBeast
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Sun, 30 Jun 2024 14:00:00 GMT*
+
+
+## MrBeast
+
+## [Heavy Light Layering With The North Face Purple Label FW24](https://www.highsnobiety.com/p/the-north-face-purple-label-fw24/)
+
+The North Face Purple Label remains one of the single best fashion-y outdoor brands in the biz. It's all about how creative director and nanamica founder Eiich…
+
+*Published on: Sun, 30 Jun 2024 14:11:00 GMT*
+
+
+## MrBeast
+
+## [AURALEE Is Poised to Explode](https://www.highsnobiety.com/p/auralee-brand-hype-2024/)
+
+AURALEE is finally poised to explode. The humble Japanese clothing brand has quietly and organically grown its base of admirers so large that it has simply bec…
+
+*Published on: Sun, 30 Jun 2024 14:12:00 GMT*
 
 
 ## MrBeast
@@ -4933,11 +10738,11 @@ Glossier's summer capsule collection has beauty sleuths wondering if the Millenn
 
 ## MrBeast
 
-## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
+## [Will Brain Dead Make Brooks Brothers Cool? ](https://www.highsnobiety.com/p/brain-dead-brooks-brothers-collaboration/)
 
-Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
+Brooks Brothers California? No, that's not the name of a Hollister-coded Brooks Brothers apparel line. Instead, it's the title of a surprising collaboration be…
 
-*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
+*Published on: Sat, 29 Jun 2024 14:01:00 GMT*
 
 
 ## MrBeast
@@ -4951,19 +10756,10 @@ Sun's out, toes out? On Thursday, Jeremy Allen White took a summery stroll in Lo
 
 ## MrBeast
 
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+## [Nike’s Elderly Running Sneaker Has Bold New Energy](https://www.highsnobiety.com/p/nike-zoom-vomero-5-racer-blue/)
 
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+Nike’s Zoom Vomero 5 model was only just taken from the realm of technical-looking running shoes and put onto the shelves of fashionable boutiques a few years …
 
-*Published on: Sat, 29 Jun 2024 15:17:00 GMT*
-
-
-## MrBeast
-
-## [Nike's Footscape Sneakers Wears Its Jeans Incredibly Well ](https://www.highsnobiety.com/p/nike-air-footscape-sneakers-denim-2024/)
-
-Nike is really pushing the denim agenda with its shoes this summer, adding another fashionable addition to the bunch: a delightful jean Air Footscape Woven.The…
-
-*Published on: Sat, 29 Jun 2024 16:32:28 GMT*
+*Published on: Sat, 29 Jun 2024 14:17:00 GMT*
 
 
