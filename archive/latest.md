@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Tim Cook
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -64,15 +55,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Taylor Swift
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Taylor Swift
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -127,15 +109,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Tom Brady
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Tom Brady
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -190,15 +163,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Tina Fey
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Tina Fey
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -253,15 +217,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Steven Yuen
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Steven Yuen
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -316,15 +271,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Sommer Ray
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Sommer Ray
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -379,15 +325,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Sza
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Sza
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -442,15 +379,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Sydney Sweeney
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Sydney Sweeney
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -505,15 +433,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Walton Goggins
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Walton Goggins
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -568,15 +487,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Tom Holland
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Tom Holland
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -631,15 +541,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Gucci Mane
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Gucci Mane
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -694,15 +595,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Harry Styles
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Harry Styles
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -757,15 +649,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Jake Paul
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Jake Paul
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -820,15 +703,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Jameela Jamil
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Jameela Jamil
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -883,15 +757,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Elon Musk
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Elon Musk
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -946,15 +811,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Gabrielle Union
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Gabrielle Union
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1009,15 +865,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Giancarlo Esposito
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Giancarlo Esposito
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1072,15 +919,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Gillian Jacobs
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Gillian Jacobs
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1135,15 +973,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Jason Mantzoukas
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Jason Mantzoukas
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1198,15 +1027,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## JB Smoove
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## JB Smoove
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1261,15 +1081,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Madison Pettis
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Madison Pettis
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1324,15 +1135,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Austin Butler
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Austin Butler
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1387,15 +1189,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Mark Zuckerberg
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Mark Zuckerberg
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1450,15 +1243,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Ariana Grande
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Ariana Grande
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1513,15 +1297,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Livvy Dunne
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Livvy Dunne
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1576,15 +1351,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Ali Wong
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Ali Wong
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1639,15 +1405,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Lizzo
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Lizzo
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1702,15 +1459,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Alison Brie
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Alison Brie
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1765,15 +1513,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Lil Wayne
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Lil Wayne
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1828,15 +1567,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Adele
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Adele
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1891,15 +1621,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Lindsay Lohan
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Lindsay Lohan
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -1954,15 +1675,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Addison Rae
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Addison Rae
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2017,15 +1729,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Latto
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Latto
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2080,15 +1783,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Aaron Paul
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Aaron Paul
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2143,15 +1837,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## LeBron James
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## LeBron James
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2206,15 +1891,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## 50 Cent
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## 50 Cent
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2269,15 +1945,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Kesha
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Kesha
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2332,15 +1999,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## 21 Savage
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## 21 Savage
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2395,15 +2053,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Larry David
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Larry David
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2458,15 +2107,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Seth Rogan
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Seth Rogan
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2521,15 +2161,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Simone Biles
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Simone Biles
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2584,15 +2215,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Pete Davidson
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Pete Davidson
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2647,15 +2269,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Prince Harry
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Prince Harry
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2710,15 +2323,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Princess of Wales
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Princess of Wales
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2773,15 +2377,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Rachel McAdams
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Rachel McAdams
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2836,15 +2431,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Reneé Rapp
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Reneé Rapp
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2899,15 +2485,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Rick Ross
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Rick Ross
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -2962,15 +2539,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Sam Ashgari
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Sam Ashgari
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3025,15 +2593,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Sandra Oh
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Sandra Oh
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3088,15 +2647,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Donald Trump
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Donald Trump
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3151,15 +2701,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Diddy
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Diddy
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3214,15 +2755,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## City Girls
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## City Girls
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3277,15 +2809,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Chloe Bailey
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Chloe Bailey
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3340,15 +2863,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Charli D Amelio
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Charli D Amelio
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3403,15 +2917,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Cardi B
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Cardi B
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3466,15 +2971,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Bryan Cranston
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Bryan Cranston
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3529,15 +3025,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Brielle Biermann
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Brielle Biermann
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3592,15 +3079,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Dua Lipa
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Dua Lipa
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3655,15 +3133,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Drake
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Drake
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3718,15 +3187,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Jenner
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Jenner
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3781,15 +3241,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## J. Cole
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## J. Cole
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3844,15 +3295,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Jerrod Carmichael
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Jerrod Carmichael
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3907,15 +3349,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Jennifer Lawrence
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Jennifer Lawrence
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -3970,15 +3403,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Joe Biden
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Joe Biden
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4033,15 +3457,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## J.K. Simmons
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## J.K. Simmons
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4096,15 +3511,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Kamala Harris
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Kamala Harris
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4159,15 +3565,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## John C Reilly
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## John C Reilly
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4222,15 +3619,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Kardashian
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Kardashian
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4285,15 +3673,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Kanye
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Kanye
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4348,15 +3727,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Zendaya
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Zendaya
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4411,15 +3781,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Will Ferrell
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Will Ferrell
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4474,15 +3835,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Zazie Beetz
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Zazie Beetz
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4537,15 +3889,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Bob Odenkirk
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Bob Odenkirk
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4600,15 +3943,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Brad Pitt
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Brad Pitt
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4663,15 +3997,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Beyoncé
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Beyoncé
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4726,15 +4051,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Bia
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Bia
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4789,15 +4105,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Avantika
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Avantika
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4852,15 +4159,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Bernie Sanders
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Bernie Sanders
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4915,15 +4213,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Big Sean
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Big Sean
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -4978,15 +4267,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## BlockBoy JB
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## BlockBoy JB
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5041,15 +4321,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Biden
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Biden
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5104,15 +4375,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Bieber
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Bieber
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5167,15 +4429,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Paulina Porizkov
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Paulina Porizkov
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5230,15 +4483,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Paris Hilton
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Paris Hilton
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5293,15 +4537,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Metro Boomin
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Metro Boomin
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5356,15 +4591,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Meghan Markle
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Meghan Markle
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5415,15 +4641,6 @@ Fresh off seriously nice adidas sneakers, JJJJound seems to be back cooking up s
 It's that time again: the Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metallic"…
 
 *Published on: Sun, 30 Jun 2024 16:35:21 GMT*
-
-
-## Megan Thee Stallion
-
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
 
 
 ## Megan Thee Stallion
@@ -5482,15 +4699,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Maya Rudolph
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Maya Rudolph
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5541,15 +4749,6 @@ Fresh off seriously nice adidas sneakers, JJJJound seems to be back cooking up s
 It's that time again: the Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metallic"…
 
 *Published on: Sun, 30 Jun 2024 16:35:21 GMT*
-
-
-## Olivia Rodrigo
-
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
 
 
 ## Olivia Rodrigo
@@ -5608,15 +4807,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Obama
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Obama
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5671,15 +4861,6 @@ It's that time again: the Jordan Brand returns with another "Reimagined" classic
 
 ## Nicki Minaj
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
-
-
-## Nicki Minaj
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -5730,15 +4911,6 @@ Fresh off seriously nice adidas sneakers, JJJJound seems to be back cooking up s
 It's that time again: the Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metallic"…
 
 *Published on: Sun, 30 Jun 2024 16:35:21 GMT*
-
-
-## MrBeast
-
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Sat, 29 Jun 2024 20:12:12 GMT*
 
 
 ## MrBeast
