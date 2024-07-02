@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
-
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
-
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
-
-
-## Tim Cook
-
 ## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
 
 New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
@@ -82,6 +73,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Tim Cook
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Tim Cook
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -100,65 +100,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Tim Cook
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Tim Cook
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Tim Cook
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Tim Cook
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Tim Cook
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Tim Cook
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Tim Cook
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Tim Cook
@@ -172,11 +118,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Tim Cook
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Tim Cook
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Tim Cook
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Tim Cook
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Tim Cook
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Tim Cook
@@ -188,13 +170,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Tim Cook
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Tim Cook
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Taylor Swift
@@ -271,6 +271,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Taylor Swift
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Taylor Swift
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -289,65 +298,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Taylor Swift
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Taylor Swift
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Taylor Swift
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Taylor Swift
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Taylor Swift
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Taylor Swift
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Taylor Swift
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Taylor Swift
@@ -361,11 +316,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Taylor Swift
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Taylor Swift
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Taylor Swift
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Taylor Swift
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Taylor Swift
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Taylor Swift
@@ -377,13 +368,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Taylor Swift
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Taylor Swift
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Tom Brady
@@ -460,6 +469,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Tom Brady
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Tom Brady
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -478,65 +496,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Tom Brady
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Tom Brady
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Tom Brady
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Tom Brady
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Tom Brady
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Tom Brady
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Tom Brady
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Tom Brady
@@ -550,11 +514,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Tom Brady
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Tom Brady
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Tom Brady
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Tom Brady
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Tom Brady
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Tom Brady
@@ -566,13 +566,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Tom Brady
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Tom Brady
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Tina Fey
@@ -649,6 +667,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Tina Fey
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Tina Fey
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -667,65 +694,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Tina Fey
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Tina Fey
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Tina Fey
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Tina Fey
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Tina Fey
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Tina Fey
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Tina Fey
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Tina Fey
@@ -739,11 +712,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Tina Fey
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Tina Fey
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Tina Fey
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Tina Fey
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Tina Fey
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Tina Fey
@@ -755,13 +764,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Tina Fey
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Tina Fey
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Steven Yuen
@@ -838,6 +865,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Steven Yuen
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Steven Yuen
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -856,65 +892,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Steven Yuen
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Steven Yuen
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Steven Yuen
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Steven Yuen
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Steven Yuen
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Steven Yuen
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Steven Yuen
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Steven Yuen
@@ -928,11 +910,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Steven Yuen
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Steven Yuen
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Steven Yuen
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Steven Yuen
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Steven Yuen
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Steven Yuen
@@ -944,13 +962,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Steven Yuen
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Steven Yuen
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Sommer Ray
@@ -1027,6 +1063,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Sommer Ray
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Sommer Ray
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1045,65 +1090,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Sommer Ray
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Sommer Ray
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sommer Ray
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Sommer Ray
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Sommer Ray
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Sommer Ray
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Sommer Ray
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Sommer Ray
@@ -1117,11 +1108,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Sommer Ray
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Sommer Ray
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sommer Ray
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sommer Ray
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Sommer Ray
@@ -1133,13 +1160,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Sommer Ray
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sommer Ray
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Sza
@@ -1216,6 +1261,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Sza
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Sza
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1234,65 +1288,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Sza
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Sza
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sza
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Sza
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Sza
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Sza
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Sza
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Sza
@@ -1306,11 +1306,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Sza
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Sza
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sza
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sza
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sza
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Sza
@@ -1322,13 +1358,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Sza
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sza
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Sydney Sweeney
@@ -1405,6 +1459,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Sydney Sweeney
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Sydney Sweeney
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1423,65 +1486,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Sydney Sweeney
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Sydney Sweeney
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Sydney Sweeney
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Sydney Sweeney
@@ -1495,11 +1504,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Sydney Sweeney
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Sydney Sweeney
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sydney Sweeney
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sydney Sweeney
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Sydney Sweeney
@@ -1511,13 +1556,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Sydney Sweeney
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sydney Sweeney
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Walton Goggins
@@ -1594,6 +1657,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Walton Goggins
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Walton Goggins
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1612,65 +1684,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Walton Goggins
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Walton Goggins
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Walton Goggins
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Walton Goggins
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Walton Goggins
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Walton Goggins
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Walton Goggins
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Walton Goggins
@@ -1684,11 +1702,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Walton Goggins
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Walton Goggins
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Walton Goggins
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Walton Goggins
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Walton Goggins
@@ -1700,13 +1754,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Walton Goggins
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Walton Goggins
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Tom Holland
@@ -1783,6 +1855,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Tom Holland
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Tom Holland
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1801,65 +1882,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Tom Holland
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Tom Holland
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Tom Holland
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Tom Holland
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Tom Holland
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Tom Holland
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Tom Holland
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Tom Holland
@@ -1873,11 +1900,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Tom Holland
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Tom Holland
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Tom Holland
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Tom Holland
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Tom Holland
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Tom Holland
@@ -1889,13 +1952,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Tom Holland
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Tom Holland
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Gucci Mane
@@ -1972,6 +2053,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Gucci Mane
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Gucci Mane
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1990,65 +2080,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Gucci Mane
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Gucci Mane
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Gucci Mane
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Gucci Mane
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Gucci Mane
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Gucci Mane
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Gucci Mane
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Gucci Mane
@@ -2062,11 +2098,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Gucci Mane
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Gucci Mane
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Gucci Mane
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Gucci Mane
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Gucci Mane
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Gucci Mane
@@ -2078,13 +2150,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Gucci Mane
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Gucci Mane
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Harry Styles
@@ -2161,6 +2251,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Harry Styles
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Harry Styles
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2179,65 +2278,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Harry Styles
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Harry Styles
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Harry Styles
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Harry Styles
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Harry Styles
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Harry Styles
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Harry Styles
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Harry Styles
@@ -2251,11 +2296,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Harry Styles
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Harry Styles
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Harry Styles
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Harry Styles
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Harry Styles
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Harry Styles
@@ -2267,13 +2348,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Harry Styles
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Harry Styles
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Jake Paul
@@ -2350,6 +2449,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Jake Paul
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Jake Paul
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2368,65 +2476,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Jake Paul
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Jake Paul
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jake Paul
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Jake Paul
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Jake Paul
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Jake Paul
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Jake Paul
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Jake Paul
@@ -2440,11 +2494,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Jake Paul
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Jake Paul
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jake Paul
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jake Paul
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jake Paul
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Jake Paul
@@ -2456,13 +2546,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Jake Paul
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jake Paul
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Jameela Jamil
@@ -2539,6 +2647,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Jameela Jamil
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Jameela Jamil
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2557,65 +2674,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Jameela Jamil
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Jameela Jamil
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jameela Jamil
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Jameela Jamil
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Jameela Jamil
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Jameela Jamil
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Jameela Jamil
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Jameela Jamil
@@ -2629,11 +2692,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Jameela Jamil
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Jameela Jamil
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jameela Jamil
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jameela Jamil
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jameela Jamil
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Jameela Jamil
@@ -2645,13 +2744,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Jameela Jamil
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jameela Jamil
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Elon Musk
@@ -2728,6 +2845,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Elon Musk
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Elon Musk
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2746,65 +2872,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Elon Musk
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Elon Musk
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Elon Musk
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Elon Musk
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Elon Musk
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Elon Musk
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Elon Musk
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Elon Musk
@@ -2818,11 +2890,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Elon Musk
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Elon Musk
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Elon Musk
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Elon Musk
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Elon Musk
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Elon Musk
@@ -2834,13 +2942,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Elon Musk
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Elon Musk
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Gabrielle Union
@@ -2917,6 +3043,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Gabrielle Union
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Gabrielle Union
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2935,65 +3070,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Gabrielle Union
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Gabrielle Union
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Gabrielle Union
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Gabrielle Union
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Gabrielle Union
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Gabrielle Union
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Gabrielle Union
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Gabrielle Union
@@ -3007,11 +3088,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Gabrielle Union
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Gabrielle Union
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Gabrielle Union
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Gabrielle Union
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Gabrielle Union
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Gabrielle Union
@@ -3023,13 +3140,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Gabrielle Union
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Gabrielle Union
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Giancarlo Esposito
@@ -3106,6 +3241,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Giancarlo Esposito
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Giancarlo Esposito
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3124,65 +3268,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Giancarlo Esposito
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Giancarlo Esposito
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Giancarlo Esposito
@@ -3196,11 +3286,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Giancarlo Esposito
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Giancarlo Esposito
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Giancarlo Esposito
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Giancarlo Esposito
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -3212,13 +3338,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Gillian Jacobs
@@ -3295,6 +3439,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Gillian Jacobs
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Gillian Jacobs
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3313,65 +3466,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Gillian Jacobs
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Gillian Jacobs
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Gillian Jacobs
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Gillian Jacobs
@@ -3385,11 +3484,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Gillian Jacobs
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Gillian Jacobs
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Gillian Jacobs
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Gillian Jacobs
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Gillian Jacobs
@@ -3401,13 +3536,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Gillian Jacobs
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Jason Mantzoukas
@@ -3484,6 +3637,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Jason Mantzoukas
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Jason Mantzoukas
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3502,65 +3664,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Jason Mantzoukas
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Jason Mantzoukas
@@ -3574,11 +3682,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Jason Mantzoukas
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Jason Mantzoukas
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jason Mantzoukas
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jason Mantzoukas
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -3590,13 +3734,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## JB Smoove
@@ -3673,6 +3835,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## JB Smoove
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## JB Smoove
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3691,65 +3862,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## JB Smoove
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## JB Smoove
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## JB Smoove
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## JB Smoove
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## JB Smoove
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## JB Smoove
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## JB Smoove
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## JB Smoove
@@ -3763,11 +3880,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## JB Smoove
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## JB Smoove
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## JB Smoove
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## JB Smoove
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## JB Smoove
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## JB Smoove
@@ -3779,13 +3932,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## JB Smoove
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## JB Smoove
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Madison Pettis
@@ -3862,6 +4033,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Madison Pettis
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Madison Pettis
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3880,65 +4060,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Madison Pettis
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Madison Pettis
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Madison Pettis
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Madison Pettis
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Madison Pettis
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Madison Pettis
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Madison Pettis
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Madison Pettis
@@ -3952,11 +4078,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Madison Pettis
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Madison Pettis
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Madison Pettis
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Madison Pettis
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Madison Pettis
@@ -3968,13 +4130,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Madison Pettis
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Madison Pettis
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Austin Butler
@@ -4051,6 +4231,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Austin Butler
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Austin Butler
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4069,65 +4258,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Austin Butler
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Austin Butler
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Austin Butler
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Austin Butler
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Austin Butler
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Austin Butler
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Austin Butler
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Austin Butler
@@ -4141,11 +4276,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Austin Butler
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Austin Butler
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Austin Butler
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Austin Butler
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Austin Butler
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Austin Butler
@@ -4157,13 +4328,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Austin Butler
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Austin Butler
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Mark Zuckerberg
@@ -4240,6 +4429,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Mark Zuckerberg
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Mark Zuckerberg
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4258,65 +4456,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Mark Zuckerberg
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Mark Zuckerberg
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Mark Zuckerberg
@@ -4330,11 +4474,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Mark Zuckerberg
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Mark Zuckerberg
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Mark Zuckerberg
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Mark Zuckerberg
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -4346,13 +4526,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Ariana Grande
@@ -4429,6 +4627,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Ariana Grande
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Ariana Grande
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4447,65 +4654,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Ariana Grande
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Ariana Grande
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Ariana Grande
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Ariana Grande
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Ariana Grande
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Ariana Grande
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Ariana Grande
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Ariana Grande
@@ -4519,11 +4672,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Ariana Grande
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Ariana Grande
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Ariana Grande
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Ariana Grande
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Ariana Grande
@@ -4535,13 +4724,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Ariana Grande
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Ariana Grande
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Livvy Dunne
@@ -4618,6 +4825,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Livvy Dunne
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Livvy Dunne
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4636,65 +4852,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Livvy Dunne
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Livvy Dunne
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Livvy Dunne
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Livvy Dunne
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Livvy Dunne
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Livvy Dunne
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Livvy Dunne
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Livvy Dunne
@@ -4708,11 +4870,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Livvy Dunne
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Livvy Dunne
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Livvy Dunne
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Livvy Dunne
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Livvy Dunne
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Livvy Dunne
@@ -4724,13 +4922,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Livvy Dunne
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Livvy Dunne
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Ali Wong
@@ -4807,6 +5023,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Ali Wong
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Ali Wong
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4825,65 +5050,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Ali Wong
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Ali Wong
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Ali Wong
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Ali Wong
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Ali Wong
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Ali Wong
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Ali Wong
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Ali Wong
@@ -4897,11 +5068,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Ali Wong
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Ali Wong
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Ali Wong
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Ali Wong
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Ali Wong
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Ali Wong
@@ -4913,13 +5120,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Ali Wong
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Ali Wong
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Lizzo
@@ -4996,6 +5221,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Lizzo
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Lizzo
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5014,65 +5248,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Lizzo
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Lizzo
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Lizzo
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Lizzo
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Lizzo
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Lizzo
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Lizzo
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Lizzo
@@ -5086,11 +5266,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Lizzo
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Lizzo
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Lizzo
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Lizzo
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Lizzo
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Lizzo
@@ -5102,13 +5318,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Lizzo
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Lizzo
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Alison Brie
@@ -5185,6 +5419,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Alison Brie
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Alison Brie
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5203,65 +5446,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Alison Brie
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Alison Brie
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Alison Brie
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Alison Brie
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Alison Brie
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Alison Brie
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Alison Brie
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Alison Brie
@@ -5275,11 +5464,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Alison Brie
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Alison Brie
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Alison Brie
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Alison Brie
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Alison Brie
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Alison Brie
@@ -5291,13 +5516,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Alison Brie
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Alison Brie
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Lil Wayne
@@ -5374,6 +5617,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Lil Wayne
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Lil Wayne
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5392,65 +5644,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Lil Wayne
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Lil Wayne
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Lil Wayne
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Lil Wayne
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Lil Wayne
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Lil Wayne
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Lil Wayne
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Lil Wayne
@@ -5464,11 +5662,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Lil Wayne
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Lil Wayne
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Lil Wayne
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Lil Wayne
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Lil Wayne
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Lil Wayne
@@ -5480,13 +5714,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Lil Wayne
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Lil Wayne
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Adele
@@ -5563,6 +5815,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Adele
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Adele
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5581,65 +5842,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Adele
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Adele
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Adele
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Adele
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Adele
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Adele
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Adele
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Adele
@@ -5653,11 +5860,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Adele
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Adele
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Adele
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Adele
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Adele
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Adele
@@ -5669,13 +5912,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Adele
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Adele
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Lindsay Lohan
@@ -5752,6 +6013,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Lindsay Lohan
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Lindsay Lohan
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5770,65 +6040,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Lindsay Lohan
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Lindsay Lohan
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Lindsay Lohan
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Lindsay Lohan
@@ -5842,11 +6058,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Lindsay Lohan
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Lindsay Lohan
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Lindsay Lohan
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Lindsay Lohan
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Lindsay Lohan
@@ -5858,13 +6110,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Lindsay Lohan
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Lindsay Lohan
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Addison Rae
@@ -5941,6 +6211,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Addison Rae
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Addison Rae
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5959,65 +6238,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Addison Rae
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Addison Rae
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Addison Rae
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Addison Rae
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Addison Rae
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Addison Rae
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Addison Rae
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Addison Rae
@@ -6031,11 +6256,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Addison Rae
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Addison Rae
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Addison Rae
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Addison Rae
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Addison Rae
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Addison Rae
@@ -6047,13 +6308,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Addison Rae
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Addison Rae
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Latto
@@ -6130,6 +6409,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Latto
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Latto
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6148,65 +6436,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Latto
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Latto
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Latto
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Latto
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Latto
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Latto
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Latto
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Latto
@@ -6220,11 +6454,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Latto
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Latto
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Latto
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Latto
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Latto
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Latto
@@ -6236,13 +6506,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Latto
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Latto
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Aaron Paul
@@ -6319,6 +6607,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Aaron Paul
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Aaron Paul
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6337,65 +6634,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Aaron Paul
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Aaron Paul
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Aaron Paul
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Aaron Paul
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Aaron Paul
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Aaron Paul
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Aaron Paul
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Aaron Paul
@@ -6409,11 +6652,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Aaron Paul
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Aaron Paul
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Aaron Paul
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Aaron Paul
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Aaron Paul
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Aaron Paul
@@ -6425,13 +6704,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Aaron Paul
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Aaron Paul
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## LeBron James
@@ -6508,6 +6805,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## LeBron James
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## LeBron James
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6526,65 +6832,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## LeBron James
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## LeBron James
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## LeBron James
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## LeBron James
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## LeBron James
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## LeBron James
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## LeBron James
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## LeBron James
@@ -6598,11 +6850,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## LeBron James
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## LeBron James
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## LeBron James
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## LeBron James
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## LeBron James
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## LeBron James
@@ -6614,13 +6902,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## LeBron James
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## LeBron James
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## 50 Cent
@@ -6697,6 +7003,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## 50 Cent
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## 50 Cent
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6715,65 +7030,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## 50 Cent
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## 50 Cent
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## 50 Cent
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## 50 Cent
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## 50 Cent
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## 50 Cent
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## 50 Cent
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## 50 Cent
@@ -6787,11 +7048,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## 50 Cent
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## 50 Cent
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## 50 Cent
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## 50 Cent
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## 50 Cent
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## 50 Cent
@@ -6803,13 +7100,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## 50 Cent
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## 50 Cent
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Kesha
@@ -6886,6 +7201,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Kesha
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Kesha
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6904,65 +7228,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Kesha
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Kesha
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Kesha
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Kesha
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Kesha
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Kesha
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Kesha
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Kesha
@@ -6976,11 +7246,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Kesha
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Kesha
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Kesha
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Kesha
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Kesha
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Kesha
@@ -6992,13 +7298,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Kesha
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Kesha
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## 21 Savage
@@ -7075,6 +7399,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## 21 Savage
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## 21 Savage
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7093,65 +7426,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## 21 Savage
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## 21 Savage
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## 21 Savage
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## 21 Savage
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## 21 Savage
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## 21 Savage
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## 21 Savage
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## 21 Savage
@@ -7165,11 +7444,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## 21 Savage
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## 21 Savage
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## 21 Savage
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## 21 Savage
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## 21 Savage
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## 21 Savage
@@ -7181,13 +7496,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## 21 Savage
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## 21 Savage
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Larry David
@@ -7264,6 +7597,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Larry David
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Larry David
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7282,65 +7624,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Larry David
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Larry David
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Larry David
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Larry David
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Larry David
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Larry David
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Larry David
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Larry David
@@ -7354,11 +7642,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Larry David
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Larry David
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Larry David
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Larry David
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Larry David
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Larry David
@@ -7370,13 +7694,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Larry David
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Larry David
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Seth Rogan
@@ -7453,6 +7795,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Seth Rogan
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Seth Rogan
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7471,65 +7822,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Seth Rogan
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Seth Rogan
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Seth Rogan
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Seth Rogan
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Seth Rogan
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Seth Rogan
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Seth Rogan
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Seth Rogan
@@ -7543,11 +7840,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Seth Rogan
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Seth Rogan
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Seth Rogan
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Seth Rogan
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Seth Rogan
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Seth Rogan
@@ -7559,13 +7892,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Seth Rogan
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Seth Rogan
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Simone Biles
@@ -7642,6 +7993,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Simone Biles
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Simone Biles
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7660,65 +8020,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Simone Biles
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Simone Biles
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Simone Biles
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Simone Biles
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Simone Biles
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Simone Biles
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Simone Biles
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Simone Biles
@@ -7732,11 +8038,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Simone Biles
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Simone Biles
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Simone Biles
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Simone Biles
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Simone Biles
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Simone Biles
@@ -7748,13 +8090,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Simone Biles
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Simone Biles
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Pete Davidson
@@ -7831,6 +8191,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Pete Davidson
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Pete Davidson
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7849,65 +8218,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Pete Davidson
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Pete Davidson
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Pete Davidson
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Pete Davidson
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Pete Davidson
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Pete Davidson
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Pete Davidson
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Pete Davidson
@@ -7921,11 +8236,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Pete Davidson
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Pete Davidson
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Pete Davidson
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Pete Davidson
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Pete Davidson
@@ -7937,13 +8288,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Pete Davidson
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Pete Davidson
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Prince Harry
@@ -8020,6 +8389,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Prince Harry
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Prince Harry
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8038,65 +8416,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Prince Harry
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Prince Harry
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Prince Harry
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Prince Harry
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Prince Harry
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Prince Harry
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Prince Harry
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Prince Harry
@@ -8110,11 +8434,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Prince Harry
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Prince Harry
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Prince Harry
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Prince Harry
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Prince Harry
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Prince Harry
@@ -8126,13 +8486,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Prince Harry
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Prince Harry
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Princess of Wales
@@ -8209,6 +8587,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Princess of Wales
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Princess of Wales
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8227,65 +8614,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Princess of Wales
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Princess of Wales
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Princess of Wales
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Princess of Wales
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Princess of Wales
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Princess of Wales
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Princess of Wales
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Princess of Wales
@@ -8299,11 +8632,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Princess of Wales
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Princess of Wales
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Princess of Wales
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Princess of Wales
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Princess of Wales
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Princess of Wales
@@ -8315,13 +8684,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Princess of Wales
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Princess of Wales
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Rachel McAdams
@@ -8398,6 +8785,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Rachel McAdams
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Rachel McAdams
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8416,65 +8812,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Rachel McAdams
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Rachel McAdams
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Rachel McAdams
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Rachel McAdams
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Rachel McAdams
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Rachel McAdams
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Rachel McAdams
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Rachel McAdams
@@ -8488,11 +8830,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Rachel McAdams
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Rachel McAdams
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Rachel McAdams
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Rachel McAdams
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Rachel McAdams
@@ -8504,13 +8882,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Rachel McAdams
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Reneé Rapp
@@ -8587,6 +8983,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Reneé Rapp
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Reneé Rapp
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8605,65 +9010,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Reneé Rapp
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Reneé Rapp
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Reneé Rapp
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Reneé Rapp
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Reneé Rapp
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Reneé Rapp
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Reneé Rapp
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Reneé Rapp
@@ -8677,11 +9028,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Reneé Rapp
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Reneé Rapp
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Reneé Rapp
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Reneé Rapp
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Reneé Rapp
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Reneé Rapp
@@ -8693,13 +9080,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Reneé Rapp
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Reneé Rapp
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Rick Ross
@@ -8776,6 +9181,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Rick Ross
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Rick Ross
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8794,65 +9208,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Rick Ross
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Rick Ross
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Rick Ross
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Rick Ross
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Rick Ross
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Rick Ross
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Rick Ross
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Rick Ross
@@ -8866,11 +9226,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Rick Ross
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Rick Ross
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Rick Ross
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Rick Ross
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Rick Ross
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Rick Ross
@@ -8882,13 +9278,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Rick Ross
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Rick Ross
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Sam Ashgari
@@ -8965,6 +9379,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Sam Ashgari
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Sam Ashgari
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8983,65 +9406,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Sam Ashgari
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Sam Ashgari
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Sam Ashgari
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Sam Ashgari
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Sam Ashgari
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Sam Ashgari
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Sam Ashgari
@@ -9055,11 +9424,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Sam Ashgari
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Sam Ashgari
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sam Ashgari
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sam Ashgari
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Sam Ashgari
@@ -9071,13 +9476,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Sam Ashgari
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Sandra Oh
@@ -9154,6 +9577,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Sandra Oh
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Sandra Oh
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9172,65 +9604,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Sandra Oh
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Sandra Oh
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sandra Oh
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Sandra Oh
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Sandra Oh
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Sandra Oh
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Sandra Oh
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Sandra Oh
@@ -9244,11 +9622,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Sandra Oh
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Sandra Oh
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sandra Oh
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sandra Oh
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sandra Oh
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Sandra Oh
@@ -9260,13 +9674,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Sandra Oh
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sandra Oh
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Donald Trump
@@ -9343,6 +9775,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Donald Trump
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Donald Trump
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9361,65 +9802,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Donald Trump
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Donald Trump
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Donald Trump
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Donald Trump
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Donald Trump
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Donald Trump
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Donald Trump
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Donald Trump
@@ -9433,11 +9820,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Donald Trump
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Donald Trump
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Donald Trump
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Donald Trump
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Donald Trump
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Donald Trump
@@ -9449,13 +9872,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Donald Trump
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Donald Trump
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Diddy
@@ -9532,6 +9973,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Diddy
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Diddy
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9550,65 +10000,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Diddy
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Diddy
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Diddy
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Diddy
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Diddy
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Diddy
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Diddy
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Diddy
@@ -9622,11 +10018,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Diddy
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Diddy
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Diddy
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Diddy
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Diddy
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Diddy
@@ -9638,13 +10070,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## City Girls
+## Diddy
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Diddy
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Diddy
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## City Girls
@@ -9721,6 +10171,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## City Girls
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## City Girls
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9739,65 +10198,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## City Girls
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## City Girls
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## City Girls
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## City Girls
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## City Girls
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## City Girls
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## City Girls
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## City Girls
@@ -9811,11 +10216,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## City Girls
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## City Girls
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## City Girls
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## City Girls
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## City Girls
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## City Girls
@@ -9827,13 +10268,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## City Girls
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## City Girls
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Chloe Bailey
@@ -9910,6 +10369,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Chloe Bailey
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Chloe Bailey
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9928,65 +10396,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Chloe Bailey
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Chloe Bailey
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Chloe Bailey
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Chloe Bailey
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Chloe Bailey
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Chloe Bailey
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Chloe Bailey
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Chloe Bailey
@@ -10000,11 +10414,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Chloe Bailey
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Chloe Bailey
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Chloe Bailey
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Chloe Bailey
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Chloe Bailey
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Chloe Bailey
@@ -10016,13 +10466,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Chloe Bailey
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Chloe Bailey
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Charli D Amelio
@@ -10099,6 +10567,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Charli D Amelio
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Charli D Amelio
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -10117,65 +10594,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Charli D Amelio
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Charli D Amelio
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Charli D Amelio
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Charli D Amelio
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Charli D Amelio
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Charli D Amelio
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Charli D Amelio
@@ -10189,11 +10612,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Charli D Amelio
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Charli D Amelio
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Charli D Amelio
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Charli D Amelio
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Charli D Amelio
@@ -10205,13 +10664,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Charli D Amelio
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Cardi B
@@ -10288,6 +10765,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Cardi B
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Cardi B
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -10306,65 +10792,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Cardi B
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Cardi B
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Cardi B
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Cardi B
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Cardi B
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Cardi B
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Cardi B
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Cardi B
@@ -10378,11 +10810,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Cardi B
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Cardi B
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Cardi B
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Cardi B
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Cardi B
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Cardi B
@@ -10394,13 +10862,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Cardi B
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Cardi B
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Bryan Cranston
@@ -10477,6 +10963,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Bryan Cranston
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Bryan Cranston
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -10495,65 +10990,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Bryan Cranston
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Bryan Cranston
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bryan Cranston
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Bryan Cranston
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Bryan Cranston
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Bryan Cranston
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Bryan Cranston
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Bryan Cranston
@@ -10567,11 +11008,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Bryan Cranston
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Bryan Cranston
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bryan Cranston
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bryan Cranston
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bryan Cranston
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Bryan Cranston
@@ -10583,13 +11060,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Bryan Cranston
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bryan Cranston
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Brielle Biermann
@@ -10666,6 +11161,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Brielle Biermann
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Brielle Biermann
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -10684,65 +11188,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Brielle Biermann
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Brielle Biermann
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Brielle Biermann
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Brielle Biermann
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Brielle Biermann
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Brielle Biermann
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Brielle Biermann
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Brielle Biermann
@@ -10756,11 +11206,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Brielle Biermann
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Brielle Biermann
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Brielle Biermann
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Brielle Biermann
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Brielle Biermann
@@ -10772,13 +11258,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Brielle Biermann
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Dua Lipa
@@ -10855,6 +11359,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Dua Lipa
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Dua Lipa
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -10873,65 +11386,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Dua Lipa
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Dua Lipa
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Dua Lipa
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Dua Lipa
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Dua Lipa
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Dua Lipa
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Dua Lipa
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Dua Lipa
@@ -10945,11 +11404,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Dua Lipa
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Dua Lipa
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Dua Lipa
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Dua Lipa
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Dua Lipa
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Dua Lipa
@@ -10961,13 +11456,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Dua Lipa
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Dua Lipa
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Drake
@@ -11044,6 +11557,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Drake
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Drake
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -11062,65 +11584,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Drake
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Drake
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Drake
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Drake
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Drake
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Drake
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Drake
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Drake
@@ -11134,11 +11602,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Drake
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Drake
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Drake
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Drake
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Drake
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Drake
@@ -11150,13 +11654,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Jenner
+## Drake
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Drake
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Drake
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Jenner
@@ -11233,6 +11755,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Jenner
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Jenner
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -11251,65 +11782,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Jenner
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Jenner
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jenner
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Jenner
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Jenner
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Jenner
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Jenner
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Jenner
@@ -11323,11 +11800,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Jenner
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Jenner
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jenner
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jenner
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jenner
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Jenner
@@ -11339,13 +11852,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Jenner
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jenner
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## J. Cole
@@ -11422,6 +11953,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## J. Cole
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## J. Cole
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -11440,65 +11980,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## J. Cole
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## J. Cole
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## J. Cole
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## J. Cole
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## J. Cole
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## J. Cole
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## J. Cole
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## J. Cole
@@ -11512,11 +11998,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## J. Cole
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## J. Cole
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## J. Cole
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## J. Cole
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## J. Cole
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## J. Cole
@@ -11528,13 +12050,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## J. Cole
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## J. Cole
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Jerrod Carmichael
@@ -11611,6 +12151,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Jerrod Carmichael
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Jerrod Carmichael
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -11629,65 +12178,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Jerrod Carmichael
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Jerrod Carmichael
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Jerrod Carmichael
@@ -11701,11 +12196,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Jerrod Carmichael
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Jerrod Carmichael
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jerrod Carmichael
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jerrod Carmichael
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -11717,13 +12248,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Jennifer Lawrence
@@ -11800,6 +12349,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Jennifer Lawrence
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Jennifer Lawrence
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -11818,65 +12376,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Jennifer Lawrence
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Jennifer Lawrence
@@ -11890,11 +12394,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Jennifer Lawrence
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Jennifer Lawrence
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jennifer Lawrence
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jennifer Lawrence
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -11906,13 +12446,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Joe Biden
@@ -11989,6 +12547,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Joe Biden
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Joe Biden
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -12007,65 +12574,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Joe Biden
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Joe Biden
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Joe Biden
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Joe Biden
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Joe Biden
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Joe Biden
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Joe Biden
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Joe Biden
@@ -12079,11 +12592,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Joe Biden
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Joe Biden
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Joe Biden
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Joe Biden
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Joe Biden
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Joe Biden
@@ -12095,13 +12644,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Joe Biden
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Joe Biden
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## J.K. Simmons
@@ -12178,6 +12745,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## J.K. Simmons
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## J.K. Simmons
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -12196,65 +12772,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## J.K. Simmons
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## J.K. Simmons
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## J.K. Simmons
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## J.K. Simmons
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## J.K. Simmons
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## J.K. Simmons
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## J.K. Simmons
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## J.K. Simmons
@@ -12268,11 +12790,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## J.K. Simmons
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## J.K. Simmons
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## J.K. Simmons
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## J.K. Simmons
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## J.K. Simmons
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## J.K. Simmons
@@ -12284,13 +12842,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## J.K. Simmons
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## J.K. Simmons
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Kamala Harris
@@ -12367,6 +12943,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Kamala Harris
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Kamala Harris
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -12385,65 +12970,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Kamala Harris
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Kamala Harris
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Kamala Harris
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Kamala Harris
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Kamala Harris
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Kamala Harris
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Kamala Harris
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Kamala Harris
@@ -12457,11 +12988,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Kamala Harris
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Kamala Harris
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Kamala Harris
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Kamala Harris
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Kamala Harris
@@ -12473,13 +13040,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Kamala Harris
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Kamala Harris
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## John C Reilly
@@ -12556,6 +13141,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## John C Reilly
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## John C Reilly
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -12574,65 +13168,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## John C Reilly
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## John C Reilly
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## John C Reilly
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## John C Reilly
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## John C Reilly
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## John C Reilly
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## John C Reilly
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## John C Reilly
@@ -12646,11 +13186,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## John C Reilly
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## John C Reilly
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## John C Reilly
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## John C Reilly
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## John C Reilly
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## John C Reilly
@@ -12662,13 +13238,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## John C Reilly
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## John C Reilly
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Kardashian
@@ -12745,6 +13339,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Kardashian
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Kardashian
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -12763,65 +13366,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Kardashian
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Kardashian
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Kardashian
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Kardashian
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Kardashian
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Kardashian
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Kardashian
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Kardashian
@@ -12835,11 +13384,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Kardashian
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Kardashian
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Kardashian
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Kardashian
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Kardashian
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Kardashian
@@ -12851,13 +13436,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Kardashian
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Kardashian
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Kanye
@@ -12934,6 +13537,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Kanye
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Kanye
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -12952,65 +13564,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Kanye
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Kanye
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Kanye
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Kanye
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Kanye
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Kanye
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Kanye
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Kanye
@@ -13024,11 +13582,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Kanye
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Kanye
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Kanye
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Kanye
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Kanye
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Kanye
@@ -13040,13 +13634,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Kanye
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Kanye
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Zendaya
@@ -13123,6 +13735,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Zendaya
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Zendaya
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -13141,65 +13762,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Zendaya
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Zendaya
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Zendaya
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Zendaya
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Zendaya
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Zendaya
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Zendaya
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Zendaya
@@ -13213,11 +13780,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Zendaya
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Zendaya
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Zendaya
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Zendaya
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Zendaya
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Zendaya
@@ -13229,13 +13832,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Zendaya
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Zendaya
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Will Ferrell
@@ -13312,6 +13933,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Will Ferrell
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Will Ferrell
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -13330,65 +13960,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Will Ferrell
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Will Ferrell
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Will Ferrell
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Will Ferrell
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Will Ferrell
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Will Ferrell
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Will Ferrell
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Will Ferrell
@@ -13402,11 +13978,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Will Ferrell
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Will Ferrell
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Will Ferrell
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Will Ferrell
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Will Ferrell
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Will Ferrell
@@ -13418,13 +14030,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Will Ferrell
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Will Ferrell
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Zazie Beetz
@@ -13501,6 +14131,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Zazie Beetz
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Zazie Beetz
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -13519,65 +14158,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Zazie Beetz
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Zazie Beetz
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Zazie Beetz
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Zazie Beetz
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Zazie Beetz
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Zazie Beetz
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Zazie Beetz
@@ -13591,11 +14176,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Zazie Beetz
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Zazie Beetz
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Zazie Beetz
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Zazie Beetz
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Zazie Beetz
@@ -13607,13 +14228,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Zazie Beetz
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Bob Odenkirk
@@ -13690,6 +14329,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Bob Odenkirk
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Bob Odenkirk
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -13708,65 +14356,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Bob Odenkirk
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Bob Odenkirk
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Bob Odenkirk
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Bob Odenkirk
@@ -13780,11 +14374,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Bob Odenkirk
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Bob Odenkirk
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bob Odenkirk
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bob Odenkirk
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Bob Odenkirk
@@ -13796,13 +14426,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Bob Odenkirk
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bob Odenkirk
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Brad Pitt
@@ -13879,6 +14527,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Brad Pitt
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Brad Pitt
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -13897,65 +14554,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Brad Pitt
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Brad Pitt
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Brad Pitt
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Brad Pitt
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Brad Pitt
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Brad Pitt
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Brad Pitt
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Brad Pitt
@@ -13969,11 +14572,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Brad Pitt
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Brad Pitt
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Brad Pitt
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Brad Pitt
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Brad Pitt
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Brad Pitt
@@ -13985,13 +14624,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Brad Pitt
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Brad Pitt
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Beyoncé
@@ -14068,6 +14725,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Beyoncé
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Beyoncé
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -14086,65 +14752,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Beyoncé
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Beyoncé
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Beyoncé
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Beyoncé
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Beyoncé
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Beyoncé
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Beyoncé
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Beyoncé
@@ -14158,11 +14770,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Beyoncé
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Beyoncé
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Beyoncé
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Beyoncé
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Beyoncé
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Beyoncé
@@ -14174,13 +14822,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Beyoncé
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Beyoncé
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Bia
@@ -14257,6 +14923,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Bia
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Bia
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -14275,65 +14950,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Bia
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Bia
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bia
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Bia
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Bia
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Bia
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Bia
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Bia
@@ -14347,11 +14968,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Bia
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Bia
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bia
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bia
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bia
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Bia
@@ -14363,13 +15020,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Avantika
+## Bia
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Bia
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bia
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Avantika
@@ -14446,6 +15121,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Avantika
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Avantika
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -14464,65 +15148,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Avantika
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Avantika
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Avantika
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Avantika
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Avantika
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Avantika
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Avantika
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Avantika
@@ -14536,11 +15166,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Avantika
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Avantika
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Avantika
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Avantika
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Avantika
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Avantika
@@ -14552,13 +15218,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Avantika
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Avantika
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Bernie Sanders
@@ -14635,6 +15319,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Bernie Sanders
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Bernie Sanders
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -14653,65 +15346,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Bernie Sanders
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Bernie Sanders
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Bernie Sanders
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Bernie Sanders
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Bernie Sanders
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Bernie Sanders
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Bernie Sanders
@@ -14725,11 +15364,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Bernie Sanders
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Bernie Sanders
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bernie Sanders
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bernie Sanders
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Bernie Sanders
@@ -14741,13 +15416,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Bernie Sanders
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Big Sean
@@ -14824,6 +15517,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Big Sean
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Big Sean
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -14842,65 +15544,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Big Sean
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Big Sean
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Big Sean
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Big Sean
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Big Sean
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Big Sean
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Big Sean
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Big Sean
@@ -14914,11 +15562,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Big Sean
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Big Sean
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Big Sean
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Big Sean
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Big Sean
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Big Sean
@@ -14930,13 +15614,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Big Sean
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Big Sean
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## BlockBoy JB
@@ -15013,6 +15715,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## BlockBoy JB
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## BlockBoy JB
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -15031,65 +15742,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## BlockBoy JB
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## BlockBoy JB
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## BlockBoy JB
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## BlockBoy JB
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## BlockBoy JB
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## BlockBoy JB
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## BlockBoy JB
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## BlockBoy JB
@@ -15103,11 +15760,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## BlockBoy JB
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## BlockBoy JB
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## BlockBoy JB
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## BlockBoy JB
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## BlockBoy JB
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## BlockBoy JB
@@ -15119,13 +15812,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## BlockBoy JB
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## BlockBoy JB
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Biden
@@ -15202,6 +15913,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Biden
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Biden
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -15220,65 +15940,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Biden
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Biden
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Biden
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Biden
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Biden
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Biden
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Biden
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Biden
@@ -15292,11 +15958,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Biden
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Biden
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Biden
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Biden
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Biden
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Biden
@@ -15308,13 +16010,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Bieber
+## Biden
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Biden
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Biden
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Bieber
@@ -15391,6 +16111,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Bieber
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Bieber
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -15409,65 +16138,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Bieber
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Bieber
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bieber
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Bieber
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Bieber
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Bieber
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Bieber
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Bieber
@@ -15481,11 +16156,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Bieber
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Bieber
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bieber
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bieber
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bieber
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Bieber
@@ -15497,13 +16208,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Bieber
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bieber
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Paulina Porizkov
@@ -15580,6 +16309,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Paulina Porizkov
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Paulina Porizkov
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -15598,65 +16336,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Paulina Porizkov
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Paulina Porizkov
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Paulina Porizkov
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Paulina Porizkov
@@ -15670,11 +16354,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Paulina Porizkov
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Paulina Porizkov
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Paulina Porizkov
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Paulina Porizkov
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Paulina Porizkov
@@ -15686,13 +16406,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Paulina Porizkov
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Paulina Porizkov
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Paris Hilton
@@ -15769,6 +16507,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Paris Hilton
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Paris Hilton
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -15787,65 +16534,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Paris Hilton
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Paris Hilton
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Paris Hilton
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Paris Hilton
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Paris Hilton
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Paris Hilton
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Paris Hilton
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Paris Hilton
@@ -15859,11 +16552,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Paris Hilton
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Paris Hilton
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Paris Hilton
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Paris Hilton
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Paris Hilton
@@ -15875,13 +16604,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Paris Hilton
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Paris Hilton
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Metro Boomin
@@ -15958,6 +16705,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Metro Boomin
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Metro Boomin
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -15976,65 +16732,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Metro Boomin
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Metro Boomin
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Metro Boomin
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Metro Boomin
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Metro Boomin
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Metro Boomin
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Metro Boomin
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Metro Boomin
@@ -16048,11 +16750,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Metro Boomin
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Metro Boomin
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Metro Boomin
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Metro Boomin
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Metro Boomin
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Metro Boomin
@@ -16064,13 +16802,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Metro Boomin
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Metro Boomin
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Meghan Markle
@@ -16147,6 +16903,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Meghan Markle
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Meghan Markle
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -16165,65 +16930,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Meghan Markle
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Meghan Markle
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Meghan Markle
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Meghan Markle
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Meghan Markle
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Meghan Markle
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Meghan Markle
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Meghan Markle
@@ -16237,11 +16948,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Meghan Markle
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Meghan Markle
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Meghan Markle
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Meghan Markle
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Meghan Markle
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Meghan Markle
@@ -16253,13 +17000,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Meghan Markle
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Meghan Markle
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Megan Thee Stallion
@@ -16336,6 +17101,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Megan Thee Stallion
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Megan Thee Stallion
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -16354,65 +17128,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Megan Thee Stallion
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Megan Thee Stallion
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Megan Thee Stallion
@@ -16426,11 +17146,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Megan Thee Stallion
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Megan Thee Stallion
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Megan Thee Stallion
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Megan Thee Stallion
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -16442,13 +17198,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Maya Rudolph
@@ -16525,6 +17299,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Maya Rudolph
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Maya Rudolph
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -16543,65 +17326,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Maya Rudolph
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Maya Rudolph
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Maya Rudolph
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Maya Rudolph
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Maya Rudolph
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Maya Rudolph
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Maya Rudolph
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Maya Rudolph
@@ -16615,11 +17344,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Maya Rudolph
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Maya Rudolph
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Maya Rudolph
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Maya Rudolph
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Maya Rudolph
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Maya Rudolph
@@ -16631,13 +17396,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Maya Rudolph
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Maya Rudolph
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Olivia Rodrigo
@@ -16714,6 +17497,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Olivia Rodrigo
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Olivia Rodrigo
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -16732,65 +17524,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Olivia Rodrigo
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Olivia Rodrigo
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Olivia Rodrigo
@@ -16804,11 +17542,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Olivia Rodrigo
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Olivia Rodrigo
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Olivia Rodrigo
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Olivia Rodrigo
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -16820,13 +17594,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Obama
@@ -16903,6 +17695,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Obama
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Obama
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -16921,65 +17722,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Obama
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Obama
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Obama
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Obama
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Obama
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Obama
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Obama
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Obama
@@ -16993,11 +17740,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Obama
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Obama
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Obama
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Obama
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Obama
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Obama
@@ -17009,13 +17792,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Obama
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Obama
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## Nicki Minaj
@@ -17092,6 +17893,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## Nicki Minaj
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## Nicki Minaj
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -17110,65 +17920,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Nicki Minaj
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## Nicki Minaj
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Nicki Minaj
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## Nicki Minaj
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## Nicki Minaj
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## Nicki Minaj
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## Nicki Minaj
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## Nicki Minaj
@@ -17182,11 +17938,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## Nicki Minaj
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## Nicki Minaj
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Nicki Minaj
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Nicki Minaj
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Nicki Minaj
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## Nicki Minaj
@@ -17198,13 +17990,31 @@ The formal shoe game gets more interesting by the day. As sneaker-loafers prepar
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
-Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
 
-*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Nicki Minaj
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Nicki Minaj
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
 ## MrBeast
@@ -17281,6 +18091,15 @@ Listen up, beauty founders, creators, and artists: Estée Lauder wants to bring 
 
 ## MrBeast
 
+## [adidas' Stan Smith Just Got a Extremely Proper Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Tue, 02 Jul 2024 16:16:44 GMT*
+
+
+## MrBeast
+
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -17299,65 +18118,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## MrBeast
 
-## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
-
-Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
-
-*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
-
-
-## MrBeast
-
 ## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
 Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
 *Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## MrBeast
-
-## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
-
-Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
-
-*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
-
-
-## MrBeast
-
-## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
-
-With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
-
-*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
-
-
-## MrBeast
-
-## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
-
-It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
-
-*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
-
-
-## MrBeast
-
-## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
-
-It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
-
-*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
-
-
-## MrBeast
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
 ## MrBeast
@@ -17371,11 +18136,47 @@ Of all the designers working in fashion today, Grace Wales Bonner is truly a des
 
 ## MrBeast
 
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
 
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+*Published on: Mon, 01 Jul 2024 15:51:40 GMT*
+
+
+## MrBeast
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## MrBeast
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## MrBeast
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## MrBeast
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
 
 
 ## MrBeast
@@ -17385,5 +18186,32 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
 *Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## MrBeast
+
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
+
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
+
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## MrBeast
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## MrBeast
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
