@@ -1,11 +1,119 @@
 # Latest Stories
 ## Tim Cook
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Tim Cook
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Tim Cook
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Tim Cook
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Tim Cook
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Tim Cook
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Tim Cook
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Tim Cook
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Tim Cook
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Tim Cook
+
+## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
+
+Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
+
+*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
+
+
+## Tim Cook
+
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+
+
+## Tim Cook
+
+## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
+
+Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
+
+*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
+
+
+## Tim Cook
+
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## Tim Cook
@@ -19,11 +127,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Tim Cook
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## Tim Cook
@@ -37,14 +145,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Tim Cook
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Tim Cook
+## Taylor Swift
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Taylor Swift
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Taylor Swift
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Taylor Swift
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Taylor Swift
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Taylor Swift
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Taylor Swift
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Taylor Swift
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Taylor Swift
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Taylor Swift
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -53,16 +242,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Tim Cook
+## Taylor Swift
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Tim Cook
+## Taylor Swift
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -71,13 +260,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Tim Cook
+## Taylor Swift
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Taylor Swift
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Taylor Swift
@@ -91,24 +289,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Taylor Swift
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Taylor Swift
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Taylor Swift
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -118,14 +298,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Taylor Swift
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Taylor Swift
+## Tom Brady
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Tom Brady
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Tom Brady
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Tom Brady
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Tom Brady
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Tom Brady
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Tom Brady
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Tom Brady
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Tom Brady
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Tom Brady
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -134,16 +395,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Taylor Swift
+## Tom Brady
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Taylor Swift
+## Tom Brady
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -152,13 +413,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Taylor Swift
+## Tom Brady
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Tom Brady
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Tom Brady
@@ -172,24 +442,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Tom Brady
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Tom Brady
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Tom Brady
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -199,14 +451,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Tom Brady
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Tom Brady
+## Tina Fey
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Tina Fey
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Tina Fey
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Tina Fey
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Tina Fey
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Tina Fey
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Tina Fey
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Tina Fey
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Tina Fey
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Tina Fey
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -215,16 +548,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Tom Brady
+## Tina Fey
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Tom Brady
+## Tina Fey
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -233,13 +566,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Tom Brady
+## Tina Fey
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Tina Fey
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Tina Fey
@@ -253,24 +595,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Tina Fey
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Tina Fey
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Tina Fey
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -280,14 +604,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Tina Fey
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Tina Fey
+## Steven Yuen
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Steven Yuen
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Steven Yuen
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Steven Yuen
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Steven Yuen
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Steven Yuen
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Steven Yuen
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Steven Yuen
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Steven Yuen
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Steven Yuen
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -296,16 +701,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Tina Fey
+## Steven Yuen
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Tina Fey
+## Steven Yuen
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -314,13 +719,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Tina Fey
+## Steven Yuen
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Steven Yuen
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Steven Yuen
@@ -334,24 +748,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Steven Yuen
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Steven Yuen
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Steven Yuen
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -361,14 +757,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Steven Yuen
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sommer Ray
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sommer Ray
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sommer Ray
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Sommer Ray
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sommer Ray
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Sommer Ray
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Sommer Ray
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Sommer Ray
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Sommer Ray
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -377,16 +854,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -395,13 +872,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Sommer Ray
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Sommer Ray
@@ -415,24 +901,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Sommer Ray
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Sommer Ray
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sommer Ray
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -442,14 +910,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Sommer Ray
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Sommer Ray
+## Sza
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sza
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sza
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sza
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Sza
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sza
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Sza
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Sza
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Sza
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Sza
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -458,16 +1007,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Sommer Ray
+## Sza
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Sommer Ray
+## Sza
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -476,13 +1025,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Sommer Ray
+## Sza
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Sza
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Sza
@@ -496,24 +1054,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Sza
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Sza
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sza
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -523,14 +1063,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Sza
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Sza
+## Sydney Sweeney
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sydney Sweeney
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Sydney Sweeney
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sydney Sweeney
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Sydney Sweeney
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Sydney Sweeney
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Sydney Sweeney
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -539,16 +1160,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Sza
+## Sydney Sweeney
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Sza
+## Sydney Sweeney
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -557,13 +1178,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Sza
+## Sydney Sweeney
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Sydney Sweeney
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Sydney Sweeney
@@ -577,24 +1207,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Sydney Sweeney
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Sydney Sweeney
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sydney Sweeney
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -604,14 +1216,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Sydney Sweeney
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Walton Goggins
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Walton Goggins
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Walton Goggins
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Walton Goggins
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Walton Goggins
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Walton Goggins
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Walton Goggins
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Walton Goggins
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Walton Goggins
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -620,16 +1313,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -638,13 +1331,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Walton Goggins
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Walton Goggins
@@ -658,24 +1360,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Walton Goggins
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Walton Goggins
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Walton Goggins
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -685,14 +1369,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Walton Goggins
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Walton Goggins
+## Tom Holland
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Tom Holland
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Tom Holland
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Tom Holland
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Tom Holland
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Tom Holland
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Tom Holland
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Tom Holland
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Tom Holland
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Tom Holland
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -701,16 +1466,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Walton Goggins
+## Tom Holland
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Walton Goggins
+## Tom Holland
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -719,13 +1484,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Walton Goggins
+## Tom Holland
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Tom Holland
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Tom Holland
@@ -739,24 +1513,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Tom Holland
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Tom Holland
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Tom Holland
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -766,14 +1522,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Tom Holland
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Tom Holland
+## Gucci Mane
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Gucci Mane
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Gucci Mane
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Gucci Mane
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Gucci Mane
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Gucci Mane
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Gucci Mane
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Gucci Mane
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Gucci Mane
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Gucci Mane
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -782,16 +1619,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Tom Holland
+## Gucci Mane
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Tom Holland
+## Gucci Mane
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -800,13 +1637,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Tom Holland
+## Gucci Mane
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Gucci Mane
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Gucci Mane
@@ -820,24 +1666,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Gucci Mane
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Gucci Mane
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Gucci Mane
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -847,14 +1675,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Gucci Mane
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Gucci Mane
+## Harry Styles
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Harry Styles
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Harry Styles
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Harry Styles
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Harry Styles
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Harry Styles
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Harry Styles
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Harry Styles
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Harry Styles
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Harry Styles
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -863,16 +1772,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Gucci Mane
+## Harry Styles
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Gucci Mane
+## Harry Styles
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -881,13 +1790,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Gucci Mane
+## Harry Styles
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Harry Styles
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Harry Styles
@@ -901,24 +1819,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Harry Styles
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Harry Styles
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Harry Styles
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -928,14 +1828,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Harry Styles
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Harry Styles
+## Jake Paul
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jake Paul
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jake Paul
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jake Paul
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Jake Paul
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jake Paul
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Jake Paul
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Jake Paul
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Jake Paul
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Jake Paul
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -944,16 +1925,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Harry Styles
+## Jake Paul
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Harry Styles
+## Jake Paul
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -962,13 +1943,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Harry Styles
+## Jake Paul
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Jake Paul
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Jake Paul
@@ -982,24 +1972,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Jake Paul
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Jake Paul
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jake Paul
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1009,14 +1981,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Jake Paul
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Jake Paul
+## Jameela Jamil
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jameela Jamil
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jameela Jamil
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jameela Jamil
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Jameela Jamil
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jameela Jamil
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Jameela Jamil
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Jameela Jamil
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Jameela Jamil
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Jameela Jamil
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1025,16 +2078,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Jake Paul
+## Jameela Jamil
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Jake Paul
+## Jameela Jamil
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1043,13 +2096,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Jake Paul
+## Jameela Jamil
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Jameela Jamil
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Jameela Jamil
@@ -1063,24 +2125,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Jameela Jamil
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Jameela Jamil
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jameela Jamil
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1090,14 +2134,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Jameela Jamil
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Elon Musk
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Elon Musk
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Elon Musk
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Elon Musk
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Elon Musk
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Elon Musk
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Elon Musk
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Elon Musk
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Elon Musk
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1106,16 +2231,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1124,13 +2249,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Elon Musk
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Elon Musk
@@ -1144,24 +2278,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Elon Musk
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Elon Musk
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Elon Musk
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1171,14 +2287,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Elon Musk
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Elon Musk
+## Gabrielle Union
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Gabrielle Union
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Gabrielle Union
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Gabrielle Union
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Gabrielle Union
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Gabrielle Union
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Gabrielle Union
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Gabrielle Union
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Gabrielle Union
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Gabrielle Union
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1187,16 +2384,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Elon Musk
+## Gabrielle Union
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Elon Musk
+## Gabrielle Union
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1205,13 +2402,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Elon Musk
+## Gabrielle Union
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Gabrielle Union
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Gabrielle Union
@@ -1225,24 +2431,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Gabrielle Union
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Gabrielle Union
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Gabrielle Union
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1252,14 +2440,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Gabrielle Union
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Gabrielle Union
+## Giancarlo Esposito
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Giancarlo Esposito
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Giancarlo Esposito
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Giancarlo Esposito
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Giancarlo Esposito
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1268,16 +2537,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Gabrielle Union
+## Giancarlo Esposito
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Gabrielle Union
+## Giancarlo Esposito
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1286,13 +2555,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Gabrielle Union
+## Giancarlo Esposito
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Giancarlo Esposito
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Giancarlo Esposito
@@ -1306,24 +2584,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Giancarlo Esposito
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Giancarlo Esposito
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1333,14 +2593,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Giancarlo Esposito
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Gillian Jacobs
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Gillian Jacobs
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Gillian Jacobs
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Gillian Jacobs
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Gillian Jacobs
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Gillian Jacobs
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1349,16 +2690,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1367,13 +2708,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Gillian Jacobs
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Gillian Jacobs
@@ -1387,24 +2737,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Gillian Jacobs
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Gillian Jacobs
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Gillian Jacobs
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1414,14 +2746,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Gillian Jacobs
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Gillian Jacobs
+## Jason Mantzoukas
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jason Mantzoukas
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jason Mantzoukas
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Jason Mantzoukas
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Jason Mantzoukas
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1430,16 +2843,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Gillian Jacobs
+## Jason Mantzoukas
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Gillian Jacobs
+## Jason Mantzoukas
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1448,13 +2861,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Gillian Jacobs
+## Jason Mantzoukas
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Jason Mantzoukas
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Jason Mantzoukas
@@ -1468,24 +2890,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Jason Mantzoukas
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Jason Mantzoukas
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1495,14 +2899,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Jason Mantzoukas
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Jason Mantzoukas
+## JB Smoove
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## JB Smoove
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## JB Smoove
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## JB Smoove
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## JB Smoove
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## JB Smoove
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## JB Smoove
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## JB Smoove
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## JB Smoove
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## JB Smoove
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1511,16 +2996,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Jason Mantzoukas
+## JB Smoove
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Jason Mantzoukas
+## JB Smoove
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1529,13 +3014,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Jason Mantzoukas
+## JB Smoove
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## JB Smoove
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## JB Smoove
@@ -1549,24 +3043,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## JB Smoove
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## JB Smoove
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## JB Smoove
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1576,14 +3052,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## JB Smoove
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## JB Smoove
+## Madison Pettis
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Madison Pettis
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Madison Pettis
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Madison Pettis
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Madison Pettis
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Madison Pettis
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Madison Pettis
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Madison Pettis
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Madison Pettis
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Madison Pettis
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1592,16 +3149,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## JB Smoove
+## Madison Pettis
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## JB Smoove
+## Madison Pettis
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1610,13 +3167,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## JB Smoove
+## Madison Pettis
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Madison Pettis
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Madison Pettis
@@ -1630,24 +3196,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Madison Pettis
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Madison Pettis
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Madison Pettis
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1657,14 +3205,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Madison Pettis
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Madison Pettis
+## Austin Butler
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Austin Butler
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Austin Butler
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Austin Butler
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Austin Butler
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Austin Butler
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Austin Butler
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Austin Butler
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Austin Butler
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Austin Butler
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1673,16 +3302,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Madison Pettis
+## Austin Butler
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Madison Pettis
+## Austin Butler
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1691,13 +3320,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Madison Pettis
+## Austin Butler
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Austin Butler
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Austin Butler
@@ -1711,24 +3349,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Austin Butler
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Austin Butler
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Austin Butler
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1738,14 +3358,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Austin Butler
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Austin Butler
+## Mark Zuckerberg
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Mark Zuckerberg
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Mark Zuckerberg
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Mark Zuckerberg
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Mark Zuckerberg
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1754,16 +3455,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Austin Butler
+## Mark Zuckerberg
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Austin Butler
+## Mark Zuckerberg
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1772,13 +3473,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Austin Butler
+## Mark Zuckerberg
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Mark Zuckerberg
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Mark Zuckerberg
@@ -1792,24 +3502,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Mark Zuckerberg
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Mark Zuckerberg
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1819,14 +3511,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Mark Zuckerberg
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Ariana Grande
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Ariana Grande
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Ariana Grande
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Ariana Grande
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Ariana Grande
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Ariana Grande
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Ariana Grande
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Ariana Grande
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Ariana Grande
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1835,16 +3608,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1853,13 +3626,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Ariana Grande
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Ariana Grande
@@ -1873,24 +3655,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Ariana Grande
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Ariana Grande
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Ariana Grande
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1900,14 +3664,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Ariana Grande
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Ariana Grande
+## Livvy Dunne
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Livvy Dunne
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Livvy Dunne
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Livvy Dunne
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Livvy Dunne
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Livvy Dunne
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Livvy Dunne
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Livvy Dunne
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Livvy Dunne
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Livvy Dunne
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1916,16 +3761,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Ariana Grande
+## Livvy Dunne
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Ariana Grande
+## Livvy Dunne
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -1934,13 +3779,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Ariana Grande
+## Livvy Dunne
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Livvy Dunne
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Livvy Dunne
@@ -1954,24 +3808,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Livvy Dunne
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Livvy Dunne
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Livvy Dunne
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -1981,14 +3817,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Livvy Dunne
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Livvy Dunne
+## Ali Wong
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Ali Wong
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Ali Wong
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Ali Wong
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Ali Wong
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Ali Wong
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Ali Wong
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Ali Wong
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Ali Wong
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Ali Wong
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -1997,16 +3914,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Livvy Dunne
+## Ali Wong
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Livvy Dunne
+## Ali Wong
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2015,13 +3932,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Livvy Dunne
+## Ali Wong
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Ali Wong
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Ali Wong
@@ -2035,24 +3961,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Ali Wong
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Ali Wong
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Ali Wong
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2062,14 +3970,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Ali Wong
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Ali Wong
+## Lizzo
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Lizzo
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Lizzo
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Lizzo
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Lizzo
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Lizzo
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Lizzo
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Lizzo
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Lizzo
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Lizzo
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2078,16 +4067,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Ali Wong
+## Lizzo
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Ali Wong
+## Lizzo
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2096,13 +4085,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Ali Wong
+## Lizzo
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Lizzo
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Lizzo
@@ -2116,24 +4114,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Lizzo
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Lizzo
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Lizzo
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2143,14 +4123,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Lizzo
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Lizzo
+## Alison Brie
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Alison Brie
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Alison Brie
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Alison Brie
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Alison Brie
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Alison Brie
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Alison Brie
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Alison Brie
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Alison Brie
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Alison Brie
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2159,16 +4220,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Lizzo
+## Alison Brie
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Lizzo
+## Alison Brie
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2177,13 +4238,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Lizzo
+## Alison Brie
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Alison Brie
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Alison Brie
@@ -2197,24 +4267,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Alison Brie
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Alison Brie
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Alison Brie
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2224,14 +4276,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Alison Brie
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Alison Brie
+## Lil Wayne
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Lil Wayne
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Lil Wayne
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Lil Wayne
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Lil Wayne
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Lil Wayne
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Lil Wayne
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Lil Wayne
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Lil Wayne
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Lil Wayne
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2240,16 +4373,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Alison Brie
+## Lil Wayne
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Alison Brie
+## Lil Wayne
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2258,13 +4391,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Alison Brie
+## Lil Wayne
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Lil Wayne
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Lil Wayne
@@ -2278,24 +4420,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Lil Wayne
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Lil Wayne
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Lil Wayne
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2305,14 +4429,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Lil Wayne
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Lil Wayne
+## Adele
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Adele
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Adele
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Adele
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Adele
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Adele
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Adele
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Adele
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Adele
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Adele
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2321,16 +4526,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Lil Wayne
+## Adele
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Lil Wayne
+## Adele
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2339,13 +4544,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Lil Wayne
+## Adele
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Adele
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Adele
@@ -2359,24 +4573,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Adele
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Adele
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Adele
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2386,14 +4582,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Adele
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Adele
+## Lindsay Lohan
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Lindsay Lohan
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Lindsay Lohan
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Lindsay Lohan
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Lindsay Lohan
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Lindsay Lohan
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Lindsay Lohan
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2402,16 +4679,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Adele
+## Lindsay Lohan
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Adele
+## Lindsay Lohan
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2420,13 +4697,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Adele
+## Lindsay Lohan
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Lindsay Lohan
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Lindsay Lohan
@@ -2440,24 +4726,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Lindsay Lohan
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Lindsay Lohan
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Lindsay Lohan
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2467,14 +4735,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Lindsay Lohan
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Lindsay Lohan
+## Addison Rae
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Addison Rae
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Addison Rae
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Addison Rae
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Addison Rae
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Addison Rae
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Addison Rae
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Addison Rae
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Addison Rae
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Addison Rae
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2483,16 +4832,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Lindsay Lohan
+## Addison Rae
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Lindsay Lohan
+## Addison Rae
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2501,13 +4850,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Lindsay Lohan
+## Addison Rae
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Addison Rae
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Addison Rae
@@ -2521,24 +4879,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Addison Rae
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Addison Rae
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Addison Rae
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2548,14 +4888,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Addison Rae
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Addison Rae
+## Latto
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Latto
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Latto
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Latto
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Latto
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Latto
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Latto
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Latto
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Latto
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Latto
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2564,16 +4985,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Addison Rae
+## Latto
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Addison Rae
+## Latto
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2582,13 +5003,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Addison Rae
+## Latto
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Latto
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Latto
@@ -2602,24 +5032,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Latto
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Latto
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Latto
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2629,14 +5041,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Latto
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Latto
+## Aaron Paul
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Aaron Paul
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Aaron Paul
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Aaron Paul
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Aaron Paul
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Aaron Paul
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Aaron Paul
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Aaron Paul
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Aaron Paul
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Aaron Paul
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2645,16 +5138,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Latto
+## Aaron Paul
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Latto
+## Aaron Paul
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2663,13 +5156,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Latto
+## Aaron Paul
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Aaron Paul
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Aaron Paul
@@ -2683,24 +5185,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Aaron Paul
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Aaron Paul
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Aaron Paul
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2710,14 +5194,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Aaron Paul
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Aaron Paul
+## LeBron James
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## LeBron James
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## LeBron James
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## LeBron James
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## LeBron James
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## LeBron James
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## LeBron James
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## LeBron James
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## LeBron James
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## LeBron James
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2726,16 +5291,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Aaron Paul
+## LeBron James
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Aaron Paul
+## LeBron James
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2744,13 +5309,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Aaron Paul
+## LeBron James
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## LeBron James
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## LeBron James
@@ -2764,24 +5338,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## LeBron James
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## LeBron James
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## LeBron James
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2791,14 +5347,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## LeBron James
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## LeBron James
+## 50 Cent
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## 50 Cent
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## 50 Cent
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## 50 Cent
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## 50 Cent
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## 50 Cent
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## 50 Cent
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## 50 Cent
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## 50 Cent
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## 50 Cent
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2807,16 +5444,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## LeBron James
+## 50 Cent
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## LeBron James
+## 50 Cent
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2825,13 +5462,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## LeBron James
+## 50 Cent
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## 50 Cent
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## 50 Cent
@@ -2845,24 +5491,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## 50 Cent
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## 50 Cent
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## 50 Cent
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2872,14 +5500,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## 50 Cent
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## 50 Cent
+## Kesha
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Kesha
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Kesha
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Kesha
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Kesha
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Kesha
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Kesha
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Kesha
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Kesha
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Kesha
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2888,16 +5597,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## 50 Cent
+## Kesha
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## 50 Cent
+## Kesha
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2906,13 +5615,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## 50 Cent
+## Kesha
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Kesha
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Kesha
@@ -2926,24 +5644,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Kesha
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Kesha
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Kesha
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -2953,14 +5653,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Kesha
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Kesha
+## 21 Savage
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## 21 Savage
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## 21 Savage
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## 21 Savage
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## 21 Savage
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## 21 Savage
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## 21 Savage
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## 21 Savage
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## 21 Savage
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## 21 Savage
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -2969,16 +5750,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Kesha
+## 21 Savage
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Kesha
+## 21 Savage
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -2987,13 +5768,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Kesha
+## 21 Savage
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## 21 Savage
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## 21 Savage
@@ -3007,24 +5797,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## 21 Savage
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## 21 Savage
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## 21 Savage
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3034,14 +5806,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## 21 Savage
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## 21 Savage
+## Larry David
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Larry David
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Larry David
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Larry David
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Larry David
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Larry David
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Larry David
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Larry David
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Larry David
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Larry David
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3050,16 +5903,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## 21 Savage
+## Larry David
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## 21 Savage
+## Larry David
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3068,13 +5921,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## 21 Savage
+## Larry David
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Larry David
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Larry David
@@ -3088,24 +5950,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Larry David
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Larry David
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Larry David
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3115,14 +5959,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Larry David
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Larry David
+## Seth Rogan
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Seth Rogan
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Seth Rogan
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Seth Rogan
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Seth Rogan
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Seth Rogan
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Seth Rogan
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Seth Rogan
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Seth Rogan
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Seth Rogan
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3131,16 +6056,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Larry David
+## Seth Rogan
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Larry David
+## Seth Rogan
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3149,13 +6074,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Larry David
+## Seth Rogan
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Seth Rogan
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Seth Rogan
@@ -3169,24 +6103,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Seth Rogan
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Seth Rogan
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Seth Rogan
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3196,14 +6112,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Seth Rogan
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Seth Rogan
+## Simone Biles
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Simone Biles
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Simone Biles
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Simone Biles
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Simone Biles
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Simone Biles
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Simone Biles
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Simone Biles
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Simone Biles
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Simone Biles
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3212,16 +6209,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Seth Rogan
+## Simone Biles
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Seth Rogan
+## Simone Biles
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3230,13 +6227,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Seth Rogan
+## Simone Biles
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Simone Biles
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Simone Biles
@@ -3250,24 +6256,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Simone Biles
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Simone Biles
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Simone Biles
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3277,14 +6265,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Simone Biles
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Simone Biles
+## Pete Davidson
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Pete Davidson
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Pete Davidson
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Pete Davidson
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Pete Davidson
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Pete Davidson
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Pete Davidson
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Pete Davidson
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Pete Davidson
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Pete Davidson
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3293,16 +6362,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Simone Biles
+## Pete Davidson
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Simone Biles
+## Pete Davidson
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3311,13 +6380,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Simone Biles
+## Pete Davidson
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Pete Davidson
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Pete Davidson
@@ -3331,24 +6409,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Pete Davidson
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Pete Davidson
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Pete Davidson
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3358,14 +6418,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Pete Davidson
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Pete Davidson
+## Prince Harry
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Prince Harry
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Prince Harry
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Prince Harry
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Prince Harry
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Prince Harry
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Prince Harry
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Prince Harry
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Prince Harry
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Prince Harry
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3374,16 +6515,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Pete Davidson
+## Prince Harry
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Pete Davidson
+## Prince Harry
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3392,13 +6533,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Pete Davidson
+## Prince Harry
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Prince Harry
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Prince Harry
@@ -3412,24 +6562,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Prince Harry
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Prince Harry
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Prince Harry
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3439,14 +6571,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Prince Harry
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Prince Harry
+## Princess of Wales
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Princess of Wales
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Princess of Wales
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Princess of Wales
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Princess of Wales
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Princess of Wales
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Princess of Wales
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Princess of Wales
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Princess of Wales
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Princess of Wales
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3455,16 +6668,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Prince Harry
+## Princess of Wales
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Prince Harry
+## Princess of Wales
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3473,13 +6686,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Prince Harry
+## Princess of Wales
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Princess of Wales
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Princess of Wales
@@ -3493,24 +6715,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Princess of Wales
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Princess of Wales
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Princess of Wales
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3520,14 +6724,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Princess of Wales
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Rachel McAdams
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Rachel McAdams
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Rachel McAdams
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Rachel McAdams
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Rachel McAdams
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Rachel McAdams
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Rachel McAdams
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3536,16 +6821,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3554,13 +6839,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Rachel McAdams
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Rachel McAdams
@@ -3574,24 +6868,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Rachel McAdams
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Rachel McAdams
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Rachel McAdams
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3601,14 +6877,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Rachel McAdams
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Rachel McAdams
+## Reneé Rapp
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Reneé Rapp
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Reneé Rapp
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Reneé Rapp
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Reneé Rapp
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Reneé Rapp
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Reneé Rapp
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Reneé Rapp
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Reneé Rapp
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Reneé Rapp
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3617,16 +6974,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Rachel McAdams
+## Reneé Rapp
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Rachel McAdams
+## Reneé Rapp
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3635,13 +6992,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Rachel McAdams
+## Reneé Rapp
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Reneé Rapp
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Reneé Rapp
@@ -3655,24 +7021,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Reneé Rapp
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Reneé Rapp
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Reneé Rapp
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3682,14 +7030,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Reneé Rapp
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Reneé Rapp
+## Rick Ross
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Rick Ross
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Rick Ross
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Rick Ross
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Rick Ross
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Rick Ross
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Rick Ross
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Rick Ross
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Rick Ross
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Rick Ross
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3698,16 +7127,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Reneé Rapp
+## Rick Ross
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Reneé Rapp
+## Rick Ross
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3716,13 +7145,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Reneé Rapp
+## Rick Ross
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Rick Ross
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Rick Ross
@@ -3736,24 +7174,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Rick Ross
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Rick Ross
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Rick Ross
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3763,14 +7183,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Rick Ross
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sam Ashgari
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sam Ashgari
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Sam Ashgari
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sam Ashgari
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Sam Ashgari
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Sam Ashgari
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Sam Ashgari
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3779,16 +7280,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3797,13 +7298,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Sam Ashgari
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Sam Ashgari
@@ -3817,24 +7327,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Sam Ashgari
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Sam Ashgari
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sam Ashgari
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3844,14 +7336,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Sam Ashgari
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Sam Ashgari
+## Sandra Oh
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Sandra Oh
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Sandra Oh
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Sandra Oh
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Sandra Oh
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Sandra Oh
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Sandra Oh
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Sandra Oh
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Sandra Oh
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Sandra Oh
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3860,16 +7433,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Sam Ashgari
+## Sandra Oh
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Sam Ashgari
+## Sandra Oh
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3878,13 +7451,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Sam Ashgari
+## Sandra Oh
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Sandra Oh
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Sandra Oh
@@ -3898,24 +7480,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Sandra Oh
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Sandra Oh
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Sandra Oh
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -3925,14 +7489,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Sandra Oh
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Sandra Oh
+## Donald Trump
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Donald Trump
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Donald Trump
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Donald Trump
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Donald Trump
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Donald Trump
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Donald Trump
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Donald Trump
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Donald Trump
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Donald Trump
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -3941,16 +7586,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Sandra Oh
+## Donald Trump
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Sandra Oh
+## Donald Trump
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -3959,13 +7604,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Sandra Oh
+## Donald Trump
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Donald Trump
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Donald Trump
@@ -3979,24 +7633,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Donald Trump
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Donald Trump
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Donald Trump
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4006,14 +7642,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Donald Trump
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Donald Trump
+## Diddy
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Diddy
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Diddy
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Diddy
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Diddy
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Diddy
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Diddy
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Diddy
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Diddy
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Diddy
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4022,16 +7739,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Donald Trump
+## Diddy
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Donald Trump
+## Diddy
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4040,13 +7757,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Donald Trump
+## Diddy
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Diddy
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Diddy
@@ -4060,24 +7786,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Diddy
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Diddy
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Diddy
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4087,14 +7795,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Diddy
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Diddy
+## City Girls
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## City Girls
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## City Girls
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## City Girls
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## City Girls
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## City Girls
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## City Girls
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## City Girls
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## City Girls
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## City Girls
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4103,16 +7892,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Diddy
+## City Girls
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Diddy
+## City Girls
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4121,13 +7910,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Diddy
+## City Girls
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## City Girls
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## City Girls
@@ -4141,24 +7939,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## City Girls
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## City Girls
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## City Girls
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4168,14 +7948,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## City Girls
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## City Girls
+## Chloe Bailey
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Chloe Bailey
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Chloe Bailey
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Chloe Bailey
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Chloe Bailey
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Chloe Bailey
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Chloe Bailey
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Chloe Bailey
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Chloe Bailey
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Chloe Bailey
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4184,16 +8045,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## City Girls
+## Chloe Bailey
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## City Girls
+## Chloe Bailey
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4202,13 +8063,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## City Girls
+## Chloe Bailey
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Chloe Bailey
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Chloe Bailey
@@ -4222,24 +8092,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Chloe Bailey
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Chloe Bailey
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Chloe Bailey
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4249,14 +8101,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Chloe Bailey
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Charli D Amelio
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Charli D Amelio
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Charli D Amelio
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Charli D Amelio
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Charli D Amelio
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Charli D Amelio
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Charli D Amelio
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4265,16 +8198,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4283,13 +8216,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Charli D Amelio
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Charli D Amelio
@@ -4303,24 +8245,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Charli D Amelio
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Charli D Amelio
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Charli D Amelio
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4330,14 +8254,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Charli D Amelio
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Charli D Amelio
+## Cardi B
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Cardi B
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Cardi B
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Cardi B
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Cardi B
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Cardi B
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Cardi B
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Cardi B
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Cardi B
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Cardi B
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4346,16 +8351,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Charli D Amelio
+## Cardi B
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Charli D Amelio
+## Cardi B
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4364,13 +8369,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Charli D Amelio
+## Cardi B
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Cardi B
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Cardi B
@@ -4384,24 +8398,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Cardi B
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Cardi B
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Cardi B
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4411,14 +8407,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Cardi B
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Cardi B
+## Bryan Cranston
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bryan Cranston
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bryan Cranston
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bryan Cranston
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Bryan Cranston
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bryan Cranston
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Bryan Cranston
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Bryan Cranston
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Bryan Cranston
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Bryan Cranston
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4427,16 +8504,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Cardi B
+## Bryan Cranston
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Cardi B
+## Bryan Cranston
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4445,13 +8522,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Cardi B
+## Bryan Cranston
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Bryan Cranston
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Bryan Cranston
@@ -4465,24 +8551,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Bryan Cranston
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Bryan Cranston
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bryan Cranston
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4492,14 +8560,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Bryan Cranston
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Brielle Biermann
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Brielle Biermann
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Brielle Biermann
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Brielle Biermann
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Brielle Biermann
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Brielle Biermann
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Brielle Biermann
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4508,16 +8657,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4526,13 +8675,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Brielle Biermann
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Brielle Biermann
@@ -4546,24 +8704,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Brielle Biermann
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Brielle Biermann
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Brielle Biermann
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4573,14 +8713,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Brielle Biermann
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Brielle Biermann
+## Dua Lipa
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Dua Lipa
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Dua Lipa
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Dua Lipa
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Dua Lipa
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Dua Lipa
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Dua Lipa
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Dua Lipa
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Dua Lipa
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Dua Lipa
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4589,16 +8810,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Brielle Biermann
+## Dua Lipa
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Brielle Biermann
+## Dua Lipa
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4607,13 +8828,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Brielle Biermann
+## Dua Lipa
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Dua Lipa
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Dua Lipa
@@ -4627,24 +8857,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Dua Lipa
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Dua Lipa
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Dua Lipa
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4654,14 +8866,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Dua Lipa
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Dua Lipa
+## Drake
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Drake
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Drake
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Drake
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Drake
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Drake
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Drake
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Drake
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Drake
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Drake
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4670,16 +8963,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Dua Lipa
+## Drake
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Dua Lipa
+## Drake
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4688,13 +8981,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Dua Lipa
+## Drake
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Drake
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Drake
@@ -4708,24 +9010,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Drake
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Drake
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Drake
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4735,14 +9019,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Drake
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Drake
+## Jenner
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jenner
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jenner
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jenner
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Jenner
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jenner
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Jenner
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Jenner
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Jenner
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Jenner
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4751,16 +9116,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Drake
+## Jenner
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Drake
+## Jenner
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4769,13 +9134,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Drake
+## Jenner
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Jenner
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Jenner
@@ -4789,24 +9163,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Jenner
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Jenner
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jenner
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4816,14 +9172,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Jenner
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Jenner
+## J. Cole
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## J. Cole
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## J. Cole
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## J. Cole
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## J. Cole
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## J. Cole
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## J. Cole
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## J. Cole
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## J. Cole
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## J. Cole
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4832,16 +9269,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Jenner
+## J. Cole
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Jenner
+## J. Cole
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4850,13 +9287,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Jenner
+## J. Cole
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## J. Cole
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## J. Cole
@@ -4870,24 +9316,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## J. Cole
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## J. Cole
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## J. Cole
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4897,14 +9325,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## J. Cole
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## J. Cole
+## Jerrod Carmichael
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jerrod Carmichael
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jerrod Carmichael
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Jerrod Carmichael
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Jerrod Carmichael
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4913,16 +9422,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## J. Cole
+## Jerrod Carmichael
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## J. Cole
+## Jerrod Carmichael
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -4931,13 +9440,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## J. Cole
+## Jerrod Carmichael
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Jerrod Carmichael
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Jerrod Carmichael
@@ -4951,24 +9469,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Jerrod Carmichael
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Jerrod Carmichael
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -4978,14 +9478,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Jerrod Carmichael
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Jennifer Lawrence
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Jennifer Lawrence
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Jennifer Lawrence
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -4994,16 +9575,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5012,13 +9593,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Jennifer Lawrence
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Jennifer Lawrence
@@ -5032,24 +9622,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Jennifer Lawrence
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Jennifer Lawrence
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5059,14 +9631,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Jennifer Lawrence
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Jennifer Lawrence
+## Joe Biden
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Joe Biden
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Joe Biden
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Joe Biden
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Joe Biden
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Joe Biden
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Joe Biden
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Joe Biden
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Joe Biden
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Joe Biden
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5075,16 +9728,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Jennifer Lawrence
+## Joe Biden
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Jennifer Lawrence
+## Joe Biden
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5093,13 +9746,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Jennifer Lawrence
+## Joe Biden
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Joe Biden
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Joe Biden
@@ -5113,24 +9775,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Joe Biden
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Joe Biden
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Joe Biden
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5140,14 +9784,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Joe Biden
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Joe Biden
+## J.K. Simmons
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## J.K. Simmons
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## J.K. Simmons
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## J.K. Simmons
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## J.K. Simmons
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## J.K. Simmons
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## J.K. Simmons
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## J.K. Simmons
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## J.K. Simmons
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## J.K. Simmons
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5156,16 +9881,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Joe Biden
+## J.K. Simmons
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Joe Biden
+## J.K. Simmons
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5174,13 +9899,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Joe Biden
+## J.K. Simmons
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## J.K. Simmons
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## J.K. Simmons
@@ -5194,24 +9928,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## J.K. Simmons
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## J.K. Simmons
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## J.K. Simmons
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5221,14 +9937,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## J.K. Simmons
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Kamala Harris
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Kamala Harris
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Kamala Harris
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Kamala Harris
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Kamala Harris
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Kamala Harris
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Kamala Harris
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Kamala Harris
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Kamala Harris
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5237,16 +10034,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5255,13 +10052,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Kamala Harris
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Kamala Harris
@@ -5275,24 +10081,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Kamala Harris
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Kamala Harris
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Kamala Harris
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5302,14 +10090,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Kamala Harris
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Kamala Harris
+## John C Reilly
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## John C Reilly
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## John C Reilly
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## John C Reilly
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## John C Reilly
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## John C Reilly
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## John C Reilly
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## John C Reilly
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## John C Reilly
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## John C Reilly
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5318,16 +10187,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Kamala Harris
+## John C Reilly
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Kamala Harris
+## John C Reilly
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5336,13 +10205,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Kamala Harris
+## John C Reilly
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## John C Reilly
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## John C Reilly
@@ -5356,24 +10234,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## John C Reilly
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## John C Reilly
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## John C Reilly
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5383,14 +10243,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## John C Reilly
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## John C Reilly
+## Kardashian
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Kardashian
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Kardashian
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Kardashian
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Kardashian
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Kardashian
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Kardashian
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Kardashian
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Kardashian
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Kardashian
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5399,16 +10340,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## John C Reilly
+## Kardashian
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## John C Reilly
+## Kardashian
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5417,13 +10358,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## John C Reilly
+## Kardashian
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Kardashian
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Kardashian
@@ -5437,24 +10387,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Kardashian
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Kardashian
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Kardashian
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5464,14 +10396,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Kardashian
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Kardashian
+## Kanye
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Kanye
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Kanye
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Kanye
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Kanye
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Kanye
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Kanye
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Kanye
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Kanye
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Kanye
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5480,16 +10493,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Kardashian
+## Kanye
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Kardashian
+## Kanye
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5498,13 +10511,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Kardashian
+## Kanye
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Kanye
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Kanye
@@ -5518,24 +10540,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Kanye
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Kanye
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Kanye
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5545,14 +10549,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Kanye
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Kanye
+## Zendaya
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Zendaya
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Zendaya
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Zendaya
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Zendaya
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Zendaya
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Zendaya
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Zendaya
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Zendaya
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Zendaya
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5561,16 +10646,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Kanye
+## Zendaya
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Kanye
+## Zendaya
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5579,13 +10664,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Kanye
+## Zendaya
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Zendaya
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Zendaya
@@ -5599,24 +10693,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Zendaya
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Zendaya
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Zendaya
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5626,14 +10702,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Zendaya
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Zendaya
+## Will Ferrell
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Will Ferrell
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Will Ferrell
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Will Ferrell
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Will Ferrell
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Will Ferrell
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Will Ferrell
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Will Ferrell
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Will Ferrell
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Will Ferrell
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5642,16 +10799,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Zendaya
+## Will Ferrell
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Zendaya
+## Will Ferrell
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5660,13 +10817,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Zendaya
+## Will Ferrell
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Will Ferrell
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Will Ferrell
@@ -5680,24 +10846,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Will Ferrell
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Will Ferrell
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Will Ferrell
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5707,14 +10855,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Will Ferrell
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Zazie Beetz
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Zazie Beetz
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Zazie Beetz
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Zazie Beetz
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Zazie Beetz
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Zazie Beetz
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Zazie Beetz
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5723,16 +10952,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5741,13 +10970,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Zazie Beetz
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Zazie Beetz
@@ -5761,24 +10999,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Zazie Beetz
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Zazie Beetz
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Zazie Beetz
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5788,14 +11008,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Zazie Beetz
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Zazie Beetz
+## Bob Odenkirk
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bob Odenkirk
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Bob Odenkirk
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bob Odenkirk
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Bob Odenkirk
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Bob Odenkirk
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Bob Odenkirk
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5804,16 +11105,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Zazie Beetz
+## Bob Odenkirk
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Zazie Beetz
+## Bob Odenkirk
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5822,13 +11123,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Zazie Beetz
+## Bob Odenkirk
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Bob Odenkirk
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Bob Odenkirk
@@ -5842,24 +11152,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Bob Odenkirk
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Bob Odenkirk
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bob Odenkirk
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5869,14 +11161,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Bob Odenkirk
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Bob Odenkirk
+## Brad Pitt
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Brad Pitt
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Brad Pitt
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Brad Pitt
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Brad Pitt
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Brad Pitt
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Brad Pitt
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Brad Pitt
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Brad Pitt
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Brad Pitt
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5885,16 +11258,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Bob Odenkirk
+## Brad Pitt
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Bob Odenkirk
+## Brad Pitt
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5903,13 +11276,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Bob Odenkirk
+## Brad Pitt
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Brad Pitt
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Brad Pitt
@@ -5923,24 +11305,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Brad Pitt
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Brad Pitt
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Brad Pitt
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -5950,14 +11314,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Brad Pitt
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Brad Pitt
+## Beyoncé
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Beyoncé
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Beyoncé
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Beyoncé
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Beyoncé
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Beyoncé
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Beyoncé
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Beyoncé
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Beyoncé
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Beyoncé
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -5966,16 +11411,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Brad Pitt
+## Beyoncé
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Brad Pitt
+## Beyoncé
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -5984,13 +11429,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Brad Pitt
+## Beyoncé
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Beyoncé
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Beyoncé
@@ -6004,24 +11458,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Beyoncé
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Beyoncé
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Beyoncé
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -6031,14 +11467,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Beyoncé
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Beyoncé
+## Bia
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bia
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bia
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bia
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Bia
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bia
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Bia
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Bia
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Bia
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Bia
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6047,16 +11564,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Beyoncé
+## Bia
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Beyoncé
+## Bia
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6065,13 +11582,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Beyoncé
+## Bia
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Bia
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Bia
@@ -6085,24 +11611,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Bia
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Bia
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bia
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -6112,14 +11620,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Bia
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Bia
+## Avantika
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Avantika
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Avantika
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Avantika
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Avantika
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Avantika
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Avantika
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Avantika
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Avantika
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Avantika
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6128,16 +11717,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Bia
+## Avantika
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Bia
+## Avantika
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6146,13 +11735,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Bia
+## Avantika
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Avantika
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Avantika
@@ -6166,24 +11764,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Avantika
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Avantika
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Avantika
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -6193,14 +11773,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Avantika
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Avantika
+## Bernie Sanders
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bernie Sanders
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bernie Sanders
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Bernie Sanders
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bernie Sanders
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Bernie Sanders
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Bernie Sanders
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Bernie Sanders
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6209,16 +11870,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Avantika
+## Bernie Sanders
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Avantika
+## Bernie Sanders
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6227,13 +11888,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Avantika
+## Bernie Sanders
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Bernie Sanders
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Bernie Sanders
@@ -6247,24 +11917,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Bernie Sanders
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Bernie Sanders
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bernie Sanders
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -6274,14 +11926,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Bernie Sanders
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Bernie Sanders
+## Big Sean
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Big Sean
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Big Sean
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Big Sean
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Big Sean
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Big Sean
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Big Sean
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Big Sean
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Big Sean
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Big Sean
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6290,16 +12023,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Bernie Sanders
+## Big Sean
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Bernie Sanders
+## Big Sean
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6308,13 +12041,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Bernie Sanders
+## Big Sean
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Big Sean
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Big Sean
@@ -6328,24 +12070,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Big Sean
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Big Sean
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Big Sean
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -6355,14 +12079,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Big Sean
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Big Sean
+## BlockBoy JB
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## BlockBoy JB
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## BlockBoy JB
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## BlockBoy JB
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## BlockBoy JB
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## BlockBoy JB
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## BlockBoy JB
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## BlockBoy JB
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## BlockBoy JB
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## BlockBoy JB
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6371,16 +12176,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Big Sean
+## BlockBoy JB
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Big Sean
+## BlockBoy JB
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6389,13 +12194,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Big Sean
+## BlockBoy JB
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## BlockBoy JB
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## BlockBoy JB
@@ -6409,24 +12223,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## BlockBoy JB
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## BlockBoy JB
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## BlockBoy JB
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -6436,14 +12232,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## BlockBoy JB
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## BlockBoy JB
+## Biden
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Biden
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Biden
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Biden
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Biden
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Biden
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Biden
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Biden
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Biden
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Biden
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6452,16 +12329,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## BlockBoy JB
+## Biden
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## BlockBoy JB
+## Biden
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6470,13 +12347,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## BlockBoy JB
+## Biden
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Biden
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Biden
@@ -6490,24 +12376,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Biden
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Biden
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Biden
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -6517,14 +12385,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Biden
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Biden
+## Bieber
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Bieber
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Bieber
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Bieber
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Bieber
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Bieber
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Bieber
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Bieber
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Bieber
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Bieber
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6533,16 +12482,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Biden
+## Bieber
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Biden
+## Bieber
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6551,13 +12500,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Biden
+## Bieber
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Bieber
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Bieber
@@ -6571,24 +12529,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Bieber
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Bieber
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Bieber
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -6598,14 +12538,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Bieber
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Bieber
+## Paulina Porizkov
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Paulina Porizkov
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Paulina Porizkov
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Paulina Porizkov
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Paulina Porizkov
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Paulina Porizkov
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Paulina Porizkov
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6614,16 +12635,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6632,13 +12653,22 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+
+
+## Paulina Porizkov
+
+## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
+
+A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
+
+*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
 
 
 ## Paulina Porizkov
@@ -6652,24 +12682,6 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 
 ## Paulina Porizkov
 
-## [A$AP Rocky Has Perfected Dadcore Uniform Dressing](https://www.highsnobiety.com/p/asap-rocky-tie-jeans-nyc-outfit/)
-
-A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like it. On Sunday, he was spotted in New York City looking ready for a PTA meeting at …
-
-*Published on: Mon, 01 Jul 2024 15:37:53 GMT*
-
-
-## Paulina Porizkov
-
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
-
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
-
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
-
-
-## Paulina Porizkov
-
 ## [Paul Mescal's Thighs Against the World](https://www.highsnobiety.com/p/paul-mescal-shorts-thighs-outfits/)
 
 Paul Mescal is about to enter his own cultural golden era but his thighs already beat him to the punch. Or squat, as it were, because Mescal's gams are finally…
@@ -6679,14 +12691,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Paulina Porizkov
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Paris Hilton
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Paris Hilton
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Paris Hilton
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Paris Hilton
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Paris Hilton
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Paris Hilton
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Paris Hilton
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Paris Hilton
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Paris Hilton
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6695,16 +12788,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6713,22 +12806,13 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Paulina Porizkov
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
-
-
 ## Paris Hilton
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## Paris Hilton
@@ -6742,11 +12826,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Paris Hilton
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## Paris Hilton
@@ -6760,14 +12844,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Paris Hilton
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Metro Boomin
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Metro Boomin
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Metro Boomin
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Metro Boomin
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Metro Boomin
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Metro Boomin
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Metro Boomin
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Metro Boomin
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Metro Boomin
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6776,16 +12941,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6794,22 +12959,13 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Paris Hilton
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
-
-
 ## Metro Boomin
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## Metro Boomin
@@ -6823,11 +12979,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Metro Boomin
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## Metro Boomin
@@ -6841,14 +12997,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Metro Boomin
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Meghan Markle
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Meghan Markle
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Meghan Markle
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Meghan Markle
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Meghan Markle
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Meghan Markle
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Meghan Markle
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Meghan Markle
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Meghan Markle
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6857,16 +13094,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6875,22 +13112,13 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Metro Boomin
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
-
-
 ## Meghan Markle
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## Meghan Markle
@@ -6904,11 +13132,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Meghan Markle
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## Meghan Markle
@@ -6922,14 +13150,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Meghan Markle
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Megan Thee Stallion
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Megan Thee Stallion
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Megan Thee Stallion
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Megan Thee Stallion
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -6938,16 +13247,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -6956,22 +13265,13 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Meghan Markle
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
-
-
 ## Megan Thee Stallion
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## Megan Thee Stallion
@@ -6985,11 +13285,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Megan Thee Stallion
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## Megan Thee Stallion
@@ -7003,14 +13303,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Megan Thee Stallion
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Maya Rudolph
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Maya Rudolph
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Maya Rudolph
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Maya Rudolph
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Maya Rudolph
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Maya Rudolph
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Maya Rudolph
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Maya Rudolph
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Maya Rudolph
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -7019,16 +13400,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -7037,22 +13418,13 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Megan Thee Stallion
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
-
-
 ## Maya Rudolph
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## Maya Rudolph
@@ -7066,11 +13438,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Maya Rudolph
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## Maya Rudolph
@@ -7084,14 +13456,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Maya Rudolph
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Olivia Rodrigo
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Olivia Rodrigo
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Olivia Rodrigo
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Olivia Rodrigo
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -7100,16 +13553,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -7118,22 +13571,13 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Maya Rudolph
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
-
-
 ## Olivia Rodrigo
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## Olivia Rodrigo
@@ -7147,11 +13591,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Olivia Rodrigo
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## Olivia Rodrigo
@@ -7165,14 +13609,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Olivia Rodrigo
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Olivia Rodrigo
+## Obama
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Obama
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Obama
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Obama
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Obama
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Obama
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Obama
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Obama
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Obama
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Obama
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -7181,16 +13706,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -7199,22 +13724,13 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Olivia Rodrigo
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
-
-
 ## Obama
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## Obama
@@ -7228,11 +13744,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Obama
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## Obama
@@ -7246,14 +13762,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Obama
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Obama
+## Nicki Minaj
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## Nicki Minaj
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## Nicki Minaj
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## Nicki Minaj
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## Nicki Minaj
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## Nicki Minaj
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## Nicki Minaj
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## Nicki Minaj
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## Nicki Minaj
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## Nicki Minaj
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -7262,16 +13859,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Obama
+## Nicki Minaj
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Obama
+## Nicki Minaj
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -7280,22 +13877,13 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Obama
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
-
-
 ## Nicki Minaj
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## Nicki Minaj
@@ -7309,11 +13897,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## Nicki Minaj
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## Nicki Minaj
@@ -7327,14 +13915,95 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## Nicki Minaj
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
-## Nicki Minaj
+## MrBeast
+
+## [Nigel Sylvester's "Bike Air" Jordans Tell an Equally Beautiful Story](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneakers-where-to-buy/)
+
+With Nigel Sylvester's long-awaited Jordan 4 RM sneaker on the horizon, the BMX athlete unpacks the story behind the impressive design . As a result, Sylvester…
+
+*Published on: Tue, 02 Jul 2024 06:00:00 GMT*
+
+
+## MrBeast
+
+## [Nike's Rarest Dunks Might Not Be Rare Much Longer ](https://www.highsnobiety.com/p/wu-tang-nike-dunk-sneakers-2024/)
+
+Nike managed to bring the buzz on June 30, sharing a cryptic post of a Nike sneaker swarmed with bees. The stinging bugs left just enough of the shoe untouched…
+
+*Published on: Tue, 02 Jul 2024 07:08:26 GMT*
+
+
+## MrBeast
+
+## [Crocs' Stylish Hiking Sneaker-Clog Is Made to Satisfy](https://www.highsnobiety.com/p/satisfy-crocs-clog-collab-2024/)
+
+It's hard not to enjoy the Crocs Quick Trail's return when the trail shoe hybrid keeps receiving such good-looking colorways and nice spins from collaborators.…
+
+*Published on: Tue, 02 Jul 2024 07:17:00 GMT*
+
+
+## MrBeast
+
+## [Chefcore: The Best Fashion Moments From The Bear (so far)](https://www.highsnobiety.com/p/the-bear-fashion-moments-style/)
+
+It's time to talk about The Bear—the show that sneaked into our lives, made us care about kitchen drama and dysfunctional families, and unexpectedly took our s…
+
+*Published on: Tue, 02 Jul 2024 08:58:00 GMT*
+
+
+## MrBeast
+
+## [The Bear And The Case For An Expensive White T-Shirt](https://www.highsnobiety.com/p/the-bear-expensive-white-t-shirt/)
+
+Amid claustrophobic and anxiety-inducing kitchen scenes and existential post-service cigarettes in the back alley of the restaurant, one particular piece of cl…
+
+*Published on: Tue, 02 Jul 2024 10:28:23 GMT*
+
+
+## MrBeast
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Tue, 02 Jul 2024 10:55:00 GMT*
+
+
+## MrBeast
+
+## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+
+All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+
+*Published on: Tue, 02 Jul 2024 10:59:34 GMT*
+
+
+## MrBeast
+
+## [Andrew Dahling Is the ‘Makeup Extremist’ Behind Chappell Roan’s Drag-Inspired Glam](https://www.highsnobiety.com/p/chappell-roan-makeup-artist-andrew-dahling-interview/)
+
+Chappell Roan isn’t just your favorite artist’s favorite artist — she’s also your favorite makeup artist’s favorite artist.Despite Roan’s debut studio album Th…
+
+*Published on: Tue, 02 Jul 2024 12:00:00 GMT*
+
+
+## MrBeast
+
+## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
+
+Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
+
+*Published on: Tue, 02 Jul 2024 13:18:00 GMT*
+
+
+## MrBeast
 
 ## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
 
@@ -7343,16 +14012,16 @@ Post Archive Faction (PAF) and On Running had runners and drip masters alike scr
 *Published on: Mon, 01 Jul 2024 17:44:29 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
+## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
 
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
+Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
 
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
+*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
 ## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
 
@@ -7361,22 +14030,13 @@ Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brand
 *Published on: Mon, 01 Jul 2024 19:58:12 GMT*
 
 
-## Nicki Minaj
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
-
-
 ## MrBeast
 
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
 
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
 
-*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
+*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
 
 
 ## MrBeast
@@ -7390,11 +14050,11 @@ A$AP Rocky is the world's coolest celebrity dad — and he keeps dressing like i
 
 ## MrBeast
 
-## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
-Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
 
-*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
+*Published on: Mon, 01 Jul 2024 14:18:44 GMT*
 
 
 ## MrBeast
@@ -7408,46 +14068,10 @@ Paul Mescal is about to enter his own cultural golden era but his thighs already
 
 ## MrBeast
 
-## [Give Grace Wales Bonner Everything](https://www.highsnobiety.com/p/grace-wales-bonner-creative-director/)
+## [Deadass: Louis Vuitton's $3,000 Timberland Boots Are Here](https://www.highsnobiety.com/p/louis-vuitton-timberland-40-belows/)
 
-Of all the designers working in fashion today, Grace Wales Bonner is truly a designer's designer. Little wonder she's added to the running — even if only in ru…
+Ever since Louis Vuitton unveiled its Fall/Winter 2024 collaboration with Timberland at Paris Fashion Week in January 2024, I've been penning fan fiction in my…
 
-*Published on: Mon, 01 Jul 2024 16:14:14 GMT*
-
-
-## MrBeast
-
-## [Post Archive Faction  On Can't Stop Making Attractive Running Shoes ](https://www.highsnobiety.com/p/post-archive-faction-on-sneakers-2024/)
-
-Post Archive Faction (PAF) and On Running had runners and drip masters alike scrambling to cop its effortlessly cool Cloudmonster sneakers earlier this year. L…
-
-*Published on: Mon, 01 Jul 2024 17:44:29 GMT*
-
-
-## MrBeast
-
-## [Crocs Brought a Beefed-Up Loafer Clog to the Yard  ](https://www.highsnobiety.com/p/crocs-stomp-loafer-shoes-2024/)
-
-The formal shoe game gets more interesting by the day. As sneaker-loafers prepare to take over, Crocs steps into the scene with its own extremely chunky hybrid…
-
-*Published on: Mon, 01 Jul 2024 18:46:24 GMT*
-
-
-## MrBeast
-
-## [NOCTA's Next Nike Tech Fleece Suits Might Finally Make Sense ](https://www.highsnobiety.com/p/nocta-nike-tech-fleece-2024/)
-
-Missed out on NOCTA x Nike's viral Tech Fleece suits ? Don't sweat it. The brands have more where that came from, apparently.Following the swift sellout of the…
-
-*Published on: Mon, 01 Jul 2024 19:58:12 GMT*
-
-
-## MrBeast
-
-## [Brain Dead's Second adidas Shoe Is Beautifully Boneless ](https://www.highsnobiety.com/p/brain-dead-adidas-sneakers-2024/)
-
-Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
-
-*Published on: Mon, 01 Jul 2024 20:01:14 GMT*
+*Published on: Mon, 01 Jul 2024 15:42:00 GMT*
 
 
