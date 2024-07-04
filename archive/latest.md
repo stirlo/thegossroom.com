@@ -1,42 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Tim Cook
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Tim Cook
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Tim Cook
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Tim Cook
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -82,23 +46,41 @@ All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers ar
 
 ## Tim Cook
 
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
 
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Taylor Swift
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Tim Cook
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Tim Cook
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Tim Cook
 
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
@@ -107,7 +89,25 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 *Published on: Wed, 03 Jul 2024 13:00:00 GMT*
 
 
-## Taylor Swift
+## Tim Cook
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Tim Cook
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Tim Cook
 
 ## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
 
@@ -116,13 +116,13 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 *Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
 
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
 
 
 ## Taylor Swift
@@ -172,23 +172,41 @@ All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers ar
 
 ## Taylor Swift
 
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
 
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Tom Brady
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Taylor Swift
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Taylor Swift
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Taylor Swift
 
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
@@ -197,7 +215,25 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 *Published on: Wed, 03 Jul 2024 13:00:00 GMT*
 
 
-## Tom Brady
+## Taylor Swift
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Taylor Swift
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Taylor Swift
 
 ## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
 
@@ -206,13 +242,13 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 *Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
 
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
 
 
 ## Tom Brady
@@ -262,23 +298,41 @@ All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers ar
 
 ## Tom Brady
 
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
 
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Tina Fey
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Tom Brady
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Tom Brady
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Tom Brady
 
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
@@ -287,7 +341,25 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 *Published on: Wed, 03 Jul 2024 13:00:00 GMT*
 
 
-## Tina Fey
+## Tom Brady
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Tom Brady
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Tom Brady
 
 ## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
 
@@ -296,13 +368,13 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 *Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
 
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
 
 
 ## Tina Fey
@@ -352,23 +424,41 @@ All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers ar
 
 ## Tina Fey
 
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
 
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Steven Yuen
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Tina Fey
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Tina Fey
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Tina Fey
 
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
@@ -377,7 +467,25 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 *Published on: Wed, 03 Jul 2024 13:00:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Tina Fey
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Tina Fey
 
 ## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
 
@@ -386,13 +494,13 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 *Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
 
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
 
 
 ## Steven Yuen
@@ -442,23 +550,41 @@ All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers ar
 
 ## Steven Yuen
 
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
 
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Sommer Ray
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Steven Yuen
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Steven Yuen
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Steven Yuen
 
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
@@ -467,7 +593,25 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 *Published on: Wed, 03 Jul 2024 13:00:00 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Steven Yuen
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Steven Yuen
 
 ## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
 
@@ -476,13 +620,13 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 *Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
 
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
 
 
 ## Sommer Ray
@@ -532,23 +676,41 @@ All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers ar
 
 ## Sommer Ray
 
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
 
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Sza
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Sommer Ray
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Sommer Ray
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Sommer Ray
 
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
@@ -557,7 +719,25 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 *Published on: Wed, 03 Jul 2024 13:00:00 GMT*
 
 
-## Sza
+## Sommer Ray
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Sommer Ray
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Sommer Ray
 
 ## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
 
@@ -566,13 +746,13 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 *Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
 
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
 
 
 ## Sza
@@ -622,23 +802,41 @@ All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers ar
 
 ## Sza
 
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
 
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Sydney Sweeney
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Sza
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Sza
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Sza
 
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
@@ -647,7 +845,25 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 *Published on: Wed, 03 Jul 2024 13:00:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Sza
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Sza
 
 ## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
 
@@ -656,13 +872,13 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 *Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
 
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
 
 
 ## Sydney Sweeney
@@ -712,23 +928,41 @@ All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers ar
 
 ## Sydney Sweeney
 
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
 
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Walton Goggins
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Sydney Sweeney
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Sydney Sweeney
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Sydney Sweeney
 
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
@@ -737,7 +971,25 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 *Published on: Wed, 03 Jul 2024 13:00:00 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Sydney Sweeney
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Sydney Sweeney
 
 ## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
 
@@ -746,13 +998,13 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 *Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
 
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
 
 
 ## Walton Goggins
@@ -802,23 +1054,41 @@ All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers ar
 
 ## Walton Goggins
 
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
 
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Tom Holland
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Walton Goggins
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Walton Goggins
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Walton Goggins
 
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
@@ -827,7 +1097,25 @@ Running is having an unprecedented moment in culture – or so it seems. Not lon
 *Published on: Wed, 03 Jul 2024 13:00:00 GMT*
 
 
-## Tom Holland
+## Walton Goggins
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Walton Goggins
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Walton Goggins
 
 ## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
 
@@ -836,13 +1124,13 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 *Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
 
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
 
 
 ## Tom Holland
@@ -888,6 +1176,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Tom Holland
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Tom Holland
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Tom Holland
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Tom Holland
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Tom Holland
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Tom Holland
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Tom Holland
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Tom Holland
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Tom Holland
@@ -901,42 +1261,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Gucci Mane
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Gucci Mane
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Gucci Mane
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Gucci Mane
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Gucci Mane
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -978,6 +1302,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Gucci Mane
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Gucci Mane
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Gucci Mane
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Gucci Mane
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Gucci Mane
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Gucci Mane
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Gucci Mane
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Gucci Mane
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Gucci Mane
@@ -991,42 +1387,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Harry Styles
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Harry Styles
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Harry Styles
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Harry Styles
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Harry Styles
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1068,6 +1428,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Harry Styles
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Harry Styles
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Harry Styles
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Harry Styles
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Harry Styles
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Harry Styles
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Harry Styles
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Harry Styles
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Harry Styles
@@ -1081,42 +1513,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Jake Paul
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Jake Paul
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Jake Paul
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Jake Paul
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Jake Paul
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1158,6 +1554,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Jake Paul
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Jake Paul
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Jake Paul
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Jake Paul
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Jake Paul
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Jake Paul
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Jake Paul
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Jake Paul
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Jake Paul
@@ -1171,42 +1639,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Jameela Jamil
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Jameela Jamil
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Jameela Jamil
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Jameela Jamil
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Jameela Jamil
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1248,6 +1680,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Jameela Jamil
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Jameela Jamil
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Jameela Jamil
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Jameela Jamil
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Jameela Jamil
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Jameela Jamil
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Jameela Jamil
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Jameela Jamil
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Jameela Jamil
@@ -1261,42 +1765,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Elon Musk
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Elon Musk
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Elon Musk
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Elon Musk
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Elon Musk
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1338,6 +1806,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Elon Musk
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Elon Musk
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Elon Musk
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Elon Musk
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Elon Musk
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Elon Musk
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Elon Musk
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Elon Musk
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Elon Musk
@@ -1351,42 +1891,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Gabrielle Union
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Gabrielle Union
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Gabrielle Union
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Gabrielle Union
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Gabrielle Union
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1428,6 +1932,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Gabrielle Union
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Gabrielle Union
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Gabrielle Union
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Gabrielle Union
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Gabrielle Union
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Gabrielle Union
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Gabrielle Union
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Gabrielle Union
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Gabrielle Union
@@ -1441,42 +2017,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Giancarlo Esposito
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Giancarlo Esposito
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Giancarlo Esposito
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1518,6 +2058,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Giancarlo Esposito
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Giancarlo Esposito
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Giancarlo Esposito
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Giancarlo Esposito
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Giancarlo Esposito
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Giancarlo Esposito
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Giancarlo Esposito
@@ -1531,42 +2143,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Gillian Jacobs
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Gillian Jacobs
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Gillian Jacobs
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Gillian Jacobs
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1608,6 +2184,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Gillian Jacobs
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Gillian Jacobs
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Gillian Jacobs
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Gillian Jacobs
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Gillian Jacobs
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Gillian Jacobs
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Gillian Jacobs
@@ -1621,42 +2269,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Jason Mantzoukas
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Jason Mantzoukas
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Jason Mantzoukas
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1698,6 +2310,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Jason Mantzoukas
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Jason Mantzoukas
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Jason Mantzoukas
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Jason Mantzoukas
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Jason Mantzoukas
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Jason Mantzoukas
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Jason Mantzoukas
@@ -1711,42 +2395,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## JB Smoove
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## JB Smoove
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## JB Smoove
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## JB Smoove
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## JB Smoove
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1788,6 +2436,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## JB Smoove
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## JB Smoove
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## JB Smoove
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## JB Smoove
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## JB Smoove
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## JB Smoove
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## JB Smoove
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## JB Smoove
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## JB Smoove
@@ -1801,42 +2521,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Madison Pettis
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Madison Pettis
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Madison Pettis
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Madison Pettis
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Madison Pettis
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1878,6 +2562,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Madison Pettis
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Madison Pettis
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Madison Pettis
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Madison Pettis
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Madison Pettis
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Madison Pettis
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Madison Pettis
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Madison Pettis
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Madison Pettis
@@ -1891,42 +2647,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Austin Butler
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Austin Butler
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Austin Butler
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Austin Butler
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Austin Butler
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -1968,6 +2688,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Austin Butler
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Austin Butler
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Austin Butler
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Austin Butler
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Austin Butler
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Austin Butler
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Austin Butler
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Austin Butler
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Austin Butler
@@ -1981,42 +2773,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Mark Zuckerberg
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Mark Zuckerberg
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Mark Zuckerberg
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2058,6 +2814,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Mark Zuckerberg
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Mark Zuckerberg
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Mark Zuckerberg
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Mark Zuckerberg
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Mark Zuckerberg
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Mark Zuckerberg
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Mark Zuckerberg
@@ -2071,42 +2899,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Ariana Grande
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Ariana Grande
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Ariana Grande
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Ariana Grande
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Ariana Grande
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2148,6 +2940,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Ariana Grande
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Ariana Grande
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Ariana Grande
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Ariana Grande
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Ariana Grande
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Ariana Grande
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Ariana Grande
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Ariana Grande
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Ariana Grande
@@ -2161,42 +3025,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Livvy Dunne
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Livvy Dunne
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Livvy Dunne
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Livvy Dunne
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Livvy Dunne
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2238,6 +3066,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Livvy Dunne
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Livvy Dunne
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Livvy Dunne
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Livvy Dunne
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Livvy Dunne
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Livvy Dunne
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Livvy Dunne
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Livvy Dunne
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Livvy Dunne
@@ -2251,42 +3151,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Ali Wong
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Ali Wong
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Ali Wong
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Ali Wong
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Ali Wong
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2328,6 +3192,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Ali Wong
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Ali Wong
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Ali Wong
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Ali Wong
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Ali Wong
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Ali Wong
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Ali Wong
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Ali Wong
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Ali Wong
@@ -2341,42 +3277,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Lizzo
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Lizzo
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Lizzo
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Lizzo
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Lizzo
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2418,6 +3318,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Lizzo
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Lizzo
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Lizzo
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Lizzo
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Lizzo
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Lizzo
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Lizzo
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Lizzo
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Lizzo
@@ -2431,42 +3403,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Alison Brie
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Alison Brie
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Alison Brie
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Alison Brie
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Alison Brie
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2508,6 +3444,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Alison Brie
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Alison Brie
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Alison Brie
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Alison Brie
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Alison Brie
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Alison Brie
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Alison Brie
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Alison Brie
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Alison Brie
@@ -2521,42 +3529,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Lil Wayne
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Lil Wayne
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Lil Wayne
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Lil Wayne
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Lil Wayne
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2598,6 +3570,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Lil Wayne
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Lil Wayne
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Lil Wayne
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Lil Wayne
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Lil Wayne
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Lil Wayne
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Lil Wayne
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Lil Wayne
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Lil Wayne
@@ -2611,42 +3655,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Adele
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Adele
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Adele
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Adele
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Adele
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2688,6 +3696,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Adele
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Adele
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Adele
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Adele
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Adele
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Adele
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Adele
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Adele
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Adele
@@ -2701,42 +3781,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Lindsay Lohan
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Lindsay Lohan
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Lindsay Lohan
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Lindsay Lohan
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Lindsay Lohan
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2778,6 +3822,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Lindsay Lohan
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Lindsay Lohan
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Lindsay Lohan
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Lindsay Lohan
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Lindsay Lohan
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Lindsay Lohan
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Lindsay Lohan
@@ -2791,42 +3907,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Addison Rae
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Addison Rae
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Addison Rae
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Addison Rae
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Addison Rae
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2868,6 +3948,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Addison Rae
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Addison Rae
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Addison Rae
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Addison Rae
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Addison Rae
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Addison Rae
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Addison Rae
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Addison Rae
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Addison Rae
@@ -2881,42 +4033,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Latto
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Latto
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Latto
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Latto
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Latto
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -2958,6 +4074,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Latto
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Latto
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Latto
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Latto
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Latto
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Latto
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Latto
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Latto
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Latto
@@ -2971,42 +4159,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Aaron Paul
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Aaron Paul
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Aaron Paul
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Aaron Paul
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Aaron Paul
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3048,6 +4200,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Aaron Paul
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Aaron Paul
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Aaron Paul
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Aaron Paul
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Aaron Paul
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Aaron Paul
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Aaron Paul
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Aaron Paul
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Aaron Paul
@@ -3061,42 +4285,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## LeBron James
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## LeBron James
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## LeBron James
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## LeBron James
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## LeBron James
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3138,6 +4326,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## LeBron James
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## LeBron James
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## LeBron James
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## LeBron James
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## LeBron James
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## LeBron James
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## LeBron James
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## LeBron James
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## LeBron James
@@ -3151,42 +4411,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## 50 Cent
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## 50 Cent
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## 50 Cent
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## 50 Cent
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## 50 Cent
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3228,6 +4452,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## 50 Cent
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## 50 Cent
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## 50 Cent
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## 50 Cent
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## 50 Cent
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## 50 Cent
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## 50 Cent
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## 50 Cent
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## 50 Cent
@@ -3241,42 +4537,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Kesha
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Kesha
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Kesha
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Kesha
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Kesha
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3318,6 +4578,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Kesha
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Kesha
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Kesha
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Kesha
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Kesha
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Kesha
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Kesha
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Kesha
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Kesha
@@ -3331,42 +4663,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## 21 Savage
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## 21 Savage
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## 21 Savage
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## 21 Savage
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## 21 Savage
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3408,6 +4704,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## 21 Savage
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## 21 Savage
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## 21 Savage
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## 21 Savage
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## 21 Savage
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## 21 Savage
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## 21 Savage
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## 21 Savage
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## 21 Savage
@@ -3421,42 +4789,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Larry David
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Larry David
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Larry David
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Larry David
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Larry David
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3498,6 +4830,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Larry David
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Larry David
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Larry David
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Larry David
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Larry David
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Larry David
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Larry David
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Larry David
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Larry David
@@ -3511,42 +4915,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Seth Rogan
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Seth Rogan
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Seth Rogan
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Seth Rogan
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Seth Rogan
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3588,6 +4956,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Seth Rogan
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Seth Rogan
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Seth Rogan
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Seth Rogan
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Seth Rogan
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Seth Rogan
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Seth Rogan
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Seth Rogan
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Seth Rogan
@@ -3601,42 +5041,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Simone Biles
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Simone Biles
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Simone Biles
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Simone Biles
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Simone Biles
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3678,6 +5082,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Simone Biles
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Simone Biles
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Simone Biles
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Simone Biles
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Simone Biles
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Simone Biles
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Simone Biles
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Simone Biles
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Simone Biles
@@ -3691,42 +5167,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Pete Davidson
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Pete Davidson
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Pete Davidson
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Pete Davidson
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Pete Davidson
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3768,6 +5208,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Pete Davidson
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Pete Davidson
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Pete Davidson
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Pete Davidson
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Pete Davidson
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Pete Davidson
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Pete Davidson
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Pete Davidson
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Pete Davidson
@@ -3781,42 +5293,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Prince Harry
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Prince Harry
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Prince Harry
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Prince Harry
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Prince Harry
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3858,6 +5334,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Prince Harry
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Prince Harry
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Prince Harry
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Prince Harry
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Prince Harry
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Prince Harry
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Prince Harry
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Prince Harry
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Prince Harry
@@ -3871,42 +5419,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Princess of Wales
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Princess of Wales
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Princess of Wales
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Princess of Wales
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Princess of Wales
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -3948,6 +5460,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Princess of Wales
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Princess of Wales
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Princess of Wales
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Princess of Wales
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Princess of Wales
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Princess of Wales
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Princess of Wales
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Princess of Wales
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Princess of Wales
@@ -3961,42 +5545,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Rachel McAdams
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Rachel McAdams
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Rachel McAdams
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Rachel McAdams
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Rachel McAdams
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4038,6 +5586,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Rachel McAdams
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Rachel McAdams
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Rachel McAdams
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Rachel McAdams
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Rachel McAdams
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Rachel McAdams
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Rachel McAdams
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Rachel McAdams
@@ -4051,42 +5671,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Reneé Rapp
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Reneé Rapp
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Reneé Rapp
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Reneé Rapp
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Reneé Rapp
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4128,6 +5712,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Reneé Rapp
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Reneé Rapp
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Reneé Rapp
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Reneé Rapp
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Reneé Rapp
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Reneé Rapp
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Reneé Rapp
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Reneé Rapp
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Reneé Rapp
@@ -4141,42 +5797,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Rick Ross
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Rick Ross
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Rick Ross
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Rick Ross
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Rick Ross
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4218,6 +5838,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Rick Ross
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Rick Ross
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Rick Ross
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Rick Ross
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Rick Ross
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Rick Ross
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Rick Ross
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Rick Ross
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Rick Ross
@@ -4231,42 +5923,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Sam Ashgari
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Sam Ashgari
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Sam Ashgari
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Sam Ashgari
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Sam Ashgari
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4308,6 +5964,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Sam Ashgari
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Sam Ashgari
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Sam Ashgari
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Sam Ashgari
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Sam Ashgari
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Sam Ashgari
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Sam Ashgari
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Sam Ashgari
@@ -4321,42 +6049,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Sandra Oh
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Sandra Oh
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Sandra Oh
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Sandra Oh
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Sandra Oh
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4398,6 +6090,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Sandra Oh
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Sandra Oh
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Sandra Oh
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Sandra Oh
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Sandra Oh
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Sandra Oh
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Sandra Oh
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Sandra Oh
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Sandra Oh
@@ -4411,42 +6175,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Donald Trump
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Donald Trump
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Donald Trump
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Donald Trump
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Donald Trump
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4488,6 +6216,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Donald Trump
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Donald Trump
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Donald Trump
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Donald Trump
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Donald Trump
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Donald Trump
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Donald Trump
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Donald Trump
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Donald Trump
@@ -4501,42 +6301,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Diddy
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Diddy
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Diddy
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Diddy
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Diddy
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4578,6 +6342,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Diddy
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Diddy
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Diddy
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Diddy
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Diddy
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Diddy
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Diddy
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Diddy
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Diddy
@@ -4591,42 +6427,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## City Girls
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## City Girls
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## City Girls
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## City Girls
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## City Girls
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4668,6 +6468,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## City Girls
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## City Girls
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## City Girls
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## City Girls
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## City Girls
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## City Girls
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## City Girls
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## City Girls
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## City Girls
@@ -4681,42 +6553,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Chloe Bailey
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Chloe Bailey
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Chloe Bailey
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Chloe Bailey
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Chloe Bailey
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4758,6 +6594,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Chloe Bailey
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Chloe Bailey
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Chloe Bailey
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Chloe Bailey
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Chloe Bailey
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Chloe Bailey
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Chloe Bailey
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Chloe Bailey
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Chloe Bailey
@@ -4771,42 +6679,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Charli D Amelio
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Charli D Amelio
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Charli D Amelio
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Charli D Amelio
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Charli D Amelio
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4848,6 +6720,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Charli D Amelio
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Charli D Amelio
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Charli D Amelio
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Charli D Amelio
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Charli D Amelio
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Charli D Amelio
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Charli D Amelio
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Charli D Amelio
@@ -4861,42 +6805,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Cardi B
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Cardi B
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Cardi B
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Cardi B
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Cardi B
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -4938,6 +6846,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Cardi B
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Cardi B
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Cardi B
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Cardi B
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Cardi B
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Cardi B
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Cardi B
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Cardi B
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Cardi B
@@ -4951,42 +6931,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Bryan Cranston
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Bryan Cranston
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Bryan Cranston
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Bryan Cranston
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Bryan Cranston
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5028,6 +6972,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Bryan Cranston
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Bryan Cranston
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Bryan Cranston
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Bryan Cranston
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Bryan Cranston
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Bryan Cranston
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Bryan Cranston
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Bryan Cranston
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Bryan Cranston
@@ -5041,42 +7057,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Brielle Biermann
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Brielle Biermann
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Brielle Biermann
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Brielle Biermann
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Brielle Biermann
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5118,6 +7098,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Brielle Biermann
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Brielle Biermann
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Brielle Biermann
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Brielle Biermann
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Brielle Biermann
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Brielle Biermann
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Brielle Biermann
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Brielle Biermann
@@ -5131,42 +7183,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Dua Lipa
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Dua Lipa
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Dua Lipa
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Dua Lipa
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Dua Lipa
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5208,6 +7224,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Dua Lipa
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Dua Lipa
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Dua Lipa
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Dua Lipa
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Dua Lipa
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Dua Lipa
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Dua Lipa
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Dua Lipa
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Dua Lipa
@@ -5221,42 +7309,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Drake
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Drake
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Drake
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Drake
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Drake
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5298,6 +7350,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Drake
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Drake
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Drake
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Drake
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Drake
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Drake
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Drake
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Drake
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Drake
@@ -5311,42 +7435,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Jenner
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Jenner
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Jenner
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Jenner
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Jenner
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5388,6 +7476,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Jenner
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Jenner
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Jenner
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Jenner
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Jenner
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Jenner
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Jenner
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Jenner
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Jenner
@@ -5401,42 +7561,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## J. Cole
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## J. Cole
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## J. Cole
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## J. Cole
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## J. Cole
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5478,6 +7602,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## J. Cole
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## J. Cole
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## J. Cole
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## J. Cole
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## J. Cole
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## J. Cole
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## J. Cole
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## J. Cole
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## J. Cole
@@ -5491,42 +7687,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Jerrod Carmichael
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Jerrod Carmichael
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Jerrod Carmichael
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5568,6 +7728,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Jerrod Carmichael
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Jerrod Carmichael
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Jerrod Carmichael
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Jerrod Carmichael
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Jerrod Carmichael
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Jerrod Carmichael
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Jerrod Carmichael
@@ -5581,42 +7813,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Jennifer Lawrence
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Jennifer Lawrence
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Jennifer Lawrence
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5658,6 +7854,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Jennifer Lawrence
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Jennifer Lawrence
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Jennifer Lawrence
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Jennifer Lawrence
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Jennifer Lawrence
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Jennifer Lawrence
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Jennifer Lawrence
@@ -5671,42 +7939,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Joe Biden
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Joe Biden
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Joe Biden
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Joe Biden
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Joe Biden
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5748,6 +7980,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Joe Biden
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Joe Biden
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Joe Biden
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Joe Biden
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Joe Biden
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Joe Biden
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Joe Biden
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Joe Biden
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Joe Biden
@@ -5761,42 +8065,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## J.K. Simmons
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## J.K. Simmons
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## J.K. Simmons
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## J.K. Simmons
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## J.K. Simmons
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5838,6 +8106,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## J.K. Simmons
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## J.K. Simmons
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## J.K. Simmons
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## J.K. Simmons
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## J.K. Simmons
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## J.K. Simmons
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## J.K. Simmons
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## J.K. Simmons
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## J.K. Simmons
@@ -5851,42 +8191,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Kamala Harris
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Kamala Harris
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Kamala Harris
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Kamala Harris
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Kamala Harris
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -5928,6 +8232,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Kamala Harris
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Kamala Harris
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Kamala Harris
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Kamala Harris
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Kamala Harris
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Kamala Harris
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Kamala Harris
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Kamala Harris
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Kamala Harris
@@ -5941,42 +8317,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## John C Reilly
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## John C Reilly
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## John C Reilly
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## John C Reilly
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## John C Reilly
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6018,6 +8358,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## John C Reilly
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## John C Reilly
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## John C Reilly
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## John C Reilly
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## John C Reilly
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## John C Reilly
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## John C Reilly
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## John C Reilly
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## John C Reilly
@@ -6031,42 +8443,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Kardashian
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Kardashian
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Kardashian
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Kardashian
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Kardashian
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6108,6 +8484,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Kardashian
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Kardashian
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Kardashian
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Kardashian
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Kardashian
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Kardashian
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Kardashian
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Kardashian
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Kardashian
@@ -6121,42 +8569,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Kanye
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Kanye
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Kanye
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Kanye
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Kanye
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6198,6 +8610,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Kanye
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Kanye
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Kanye
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Kanye
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Kanye
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Kanye
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Kanye
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Kanye
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Kanye
@@ -6211,42 +8695,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Zendaya
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Zendaya
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Zendaya
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Zendaya
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Zendaya
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6288,6 +8736,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Zendaya
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Zendaya
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Zendaya
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Zendaya
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Zendaya
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Zendaya
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Zendaya
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Zendaya
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Zendaya
@@ -6301,42 +8821,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Will Ferrell
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Will Ferrell
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Will Ferrell
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Will Ferrell
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Will Ferrell
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6378,6 +8862,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Will Ferrell
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Will Ferrell
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Will Ferrell
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Will Ferrell
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Will Ferrell
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Will Ferrell
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Will Ferrell
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Will Ferrell
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Will Ferrell
@@ -6391,42 +8947,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Zazie Beetz
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Zazie Beetz
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Zazie Beetz
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Zazie Beetz
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Zazie Beetz
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6468,6 +8988,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Zazie Beetz
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Zazie Beetz
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Zazie Beetz
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Zazie Beetz
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Zazie Beetz
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Zazie Beetz
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Zazie Beetz
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Zazie Beetz
@@ -6481,42 +9073,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Bob Odenkirk
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Bob Odenkirk
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Bob Odenkirk
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Bob Odenkirk
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Bob Odenkirk
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6558,6 +9114,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Bob Odenkirk
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Bob Odenkirk
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Bob Odenkirk
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Bob Odenkirk
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Bob Odenkirk
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Bob Odenkirk
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Bob Odenkirk
@@ -6571,42 +9199,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Brad Pitt
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Brad Pitt
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Brad Pitt
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Brad Pitt
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Brad Pitt
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6648,6 +9240,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Brad Pitt
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Brad Pitt
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Brad Pitt
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Brad Pitt
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Brad Pitt
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Brad Pitt
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Brad Pitt
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Brad Pitt
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Brad Pitt
@@ -6661,42 +9325,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Beyoncé
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Beyoncé
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Beyoncé
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Beyoncé
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Beyoncé
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6738,6 +9366,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Beyoncé
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Beyoncé
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Beyoncé
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Beyoncé
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Beyoncé
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Beyoncé
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Beyoncé
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Beyoncé
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Beyoncé
@@ -6751,42 +9451,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Bia
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Bia
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Bia
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Bia
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Bia
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6828,6 +9492,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Bia
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Bia
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Bia
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Bia
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Bia
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Bia
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Bia
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Bia
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Bia
@@ -6841,42 +9577,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Avantika
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Avantika
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Avantika
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Avantika
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Avantika
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -6918,6 +9618,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Avantika
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Avantika
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Avantika
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Avantika
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Avantika
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Avantika
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Avantika
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Avantika
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Avantika
@@ -6931,42 +9703,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Bernie Sanders
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Bernie Sanders
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Bernie Sanders
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Bernie Sanders
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Bernie Sanders
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7008,6 +9744,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Bernie Sanders
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Bernie Sanders
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Bernie Sanders
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Bernie Sanders
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Bernie Sanders
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Bernie Sanders
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Bernie Sanders
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Bernie Sanders
@@ -7021,42 +9829,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Big Sean
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Big Sean
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Big Sean
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Big Sean
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Big Sean
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7098,6 +9870,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Big Sean
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Big Sean
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Big Sean
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Big Sean
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Big Sean
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Big Sean
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Big Sean
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Big Sean
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Big Sean
@@ -7111,42 +9955,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## BlockBoy JB
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## BlockBoy JB
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## BlockBoy JB
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## BlockBoy JB
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## BlockBoy JB
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7188,6 +9996,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## BlockBoy JB
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## BlockBoy JB
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## BlockBoy JB
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## BlockBoy JB
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## BlockBoy JB
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## BlockBoy JB
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## BlockBoy JB
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## BlockBoy JB
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## BlockBoy JB
@@ -7201,42 +10081,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Biden
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Biden
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Biden
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Biden
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Biden
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7278,6 +10122,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Biden
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Biden
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Biden
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Biden
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Biden
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Biden
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Biden
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Biden
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Biden
@@ -7291,42 +10207,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Bieber
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Bieber
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Bieber
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Bieber
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Bieber
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7368,6 +10248,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Bieber
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Bieber
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Bieber
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Bieber
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Bieber
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Bieber
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Bieber
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Bieber
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Bieber
@@ -7381,42 +10333,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Paulina Porizkov
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Paulina Porizkov
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Paulina Porizkov
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Paulina Porizkov
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Paulina Porizkov
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7458,6 +10374,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Paulina Porizkov
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Paulina Porizkov
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Paulina Porizkov
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Paulina Porizkov
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Paulina Porizkov
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Paulina Porizkov
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Paulina Porizkov
@@ -7471,42 +10459,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Paris Hilton
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Paris Hilton
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Paris Hilton
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Paris Hilton
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Paris Hilton
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7548,6 +10500,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Paris Hilton
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Paris Hilton
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Paris Hilton
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Paris Hilton
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Paris Hilton
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Paris Hilton
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Paris Hilton
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Paris Hilton
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Paris Hilton
@@ -7561,42 +10585,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Metro Boomin
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Metro Boomin
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Metro Boomin
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Metro Boomin
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Metro Boomin
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7638,6 +10626,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Metro Boomin
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Metro Boomin
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Metro Boomin
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Metro Boomin
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Metro Boomin
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Metro Boomin
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Metro Boomin
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Metro Boomin
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Metro Boomin
@@ -7651,42 +10711,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Meghan Markle
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Meghan Markle
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Meghan Markle
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Meghan Markle
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Meghan Markle
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7728,6 +10752,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Meghan Markle
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Meghan Markle
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Meghan Markle
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Meghan Markle
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Meghan Markle
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Meghan Markle
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Meghan Markle
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Meghan Markle
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Meghan Markle
@@ -7741,42 +10837,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Megan Thee Stallion
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Megan Thee Stallion
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Megan Thee Stallion
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7818,6 +10878,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Megan Thee Stallion
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Megan Thee Stallion
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Megan Thee Stallion
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Megan Thee Stallion
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Megan Thee Stallion
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Megan Thee Stallion
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Megan Thee Stallion
@@ -7831,42 +10963,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Maya Rudolph
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Maya Rudolph
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Maya Rudolph
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Maya Rudolph
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Maya Rudolph
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7908,6 +11004,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Maya Rudolph
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Maya Rudolph
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Maya Rudolph
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Maya Rudolph
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Maya Rudolph
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Maya Rudolph
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Maya Rudolph
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Maya Rudolph
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Maya Rudolph
@@ -7921,42 +11089,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Olivia Rodrigo
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Olivia Rodrigo
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Olivia Rodrigo
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -7998,6 +11130,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Olivia Rodrigo
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Olivia Rodrigo
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Olivia Rodrigo
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Olivia Rodrigo
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Olivia Rodrigo
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Olivia Rodrigo
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Olivia Rodrigo
@@ -8011,42 +11215,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Obama
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Obama
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Obama
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Obama
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Obama
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -8088,6 +11256,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Obama
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Obama
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Obama
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Obama
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Obama
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Obama
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Obama
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Obama
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Obama
@@ -8101,42 +11341,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## Nicki Minaj
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Nicki Minaj
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Nicki Minaj
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Nicki Minaj
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Nicki Minaj
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -8178,6 +11382,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## Nicki Minaj
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## Nicki Minaj
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## Nicki Minaj
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## Nicki Minaj
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Nicki Minaj
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Nicki Minaj
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Nicki Minaj
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Nicki Minaj
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## Nicki Minaj
@@ -8191,42 +11467,6 @@ It's that time again: Nike's Jordan Brand returns with another "Reimagined" clas
 
 ## MrBeast
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## MrBeast
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## MrBeast
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## MrBeast
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## MrBeast
-
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
 
 It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
@@ -8268,6 +11508,78 @@ In the world of luxury fashion, few retailers loom as large as Canada's very own
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
 
 *Published on: Thu, 04 Jul 2024 12:29:34 GMT*
+
+
+## MrBeast
+
+## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
+
+Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
+
+*Published on: Thu, 04 Jul 2024 13:31:44 GMT*
+
+
+## MrBeast
+
+## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
+
+One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
+
+*Published on: Thu, 04 Jul 2024 14:51:04 GMT*
+
+
+## MrBeast
+
+## [A Summer Wedding Guest Edit That Vows You'll Look the Part](https://www.highsnobiety.com/p/summer-wedding-guest-outfit/)
+
+Admittedly, this is a topic that's safe to part our audience into different camps: Either you're too young to be bothered about wedding just yet, you're so old…
+
+*Published on: Thu, 04 Jul 2024 14:55:06 GMT*
+
+
+## MrBeast
+
+## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
+
+This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
+
+*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## MrBeast
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## MrBeast
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## MrBeast
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## MrBeast
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
 
 
 ## MrBeast
