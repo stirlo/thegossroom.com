@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Tim Cook
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -37,15 +28,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Tim Cook
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Tim Cook
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -64,15 +46,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Tim Cook
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Tim Cook
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -82,6 +55,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Tim Cook
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Tim Cook
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Tim Cook
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Tim Cook
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -91,11 +91,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Tim Cook
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Tim Cook
@@ -109,15 +109,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Taylor Swift
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Taylor Swift
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -145,15 +136,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Taylor Swift
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Taylor Swift
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -172,15 +154,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Taylor Swift
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Taylor Swift
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -190,6 +163,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Taylor Swift
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Taylor Swift
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Taylor Swift
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Taylor Swift
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -199,11 +199,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Taylor Swift
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Taylor Swift
@@ -217,15 +217,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Tom Brady
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Tom Brady
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -253,15 +244,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Tom Brady
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Tom Brady
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -280,15 +262,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Tom Brady
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Tom Brady
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -298,6 +271,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Tom Brady
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Tom Brady
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Tom Brady
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Tom Brady
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -307,11 +307,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Tom Brady
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Tom Brady
@@ -325,15 +325,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Tina Fey
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Tina Fey
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -361,15 +352,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Tina Fey
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Tina Fey
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -388,15 +370,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Tina Fey
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Tina Fey
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -406,6 +379,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Tina Fey
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Tina Fey
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Tina Fey
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Tina Fey
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -415,11 +415,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Tina Fey
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Tina Fey
@@ -433,15 +433,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Steven Yuen
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Steven Yuen
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -469,15 +460,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Steven Yuen
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Steven Yuen
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -496,15 +478,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Steven Yuen
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Steven Yuen
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -514,6 +487,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Steven Yuen
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Steven Yuen
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Steven Yuen
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Steven Yuen
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -523,11 +523,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Steven Yuen
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Steven Yuen
@@ -541,15 +541,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Sommer Ray
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Sommer Ray
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -577,15 +568,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Sommer Ray
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Sommer Ray
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -604,15 +586,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Sommer Ray
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Sommer Ray
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -622,6 +595,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Sommer Ray
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Sommer Ray
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Sommer Ray
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Sommer Ray
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -631,11 +631,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Sommer Ray
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Sommer Ray
@@ -649,15 +649,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Sza
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Sza
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -685,15 +676,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Sza
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Sza
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -712,15 +694,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Sza
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Sza
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -730,6 +703,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Sza
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Sza
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Sza
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Sza
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -739,11 +739,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Sza
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Sza
@@ -757,15 +757,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Sydney Sweeney
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Sydney Sweeney
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -793,15 +784,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Sydney Sweeney
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Sydney Sweeney
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -820,15 +802,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Sydney Sweeney
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Sydney Sweeney
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -838,6 +811,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Sydney Sweeney
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Sydney Sweeney
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Sydney Sweeney
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Sydney Sweeney
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -847,11 +847,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Sydney Sweeney
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Sydney Sweeney
@@ -865,15 +865,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Walton Goggins
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Walton Goggins
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -901,15 +892,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Walton Goggins
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Walton Goggins
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -928,15 +910,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Walton Goggins
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Walton Goggins
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -946,6 +919,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Walton Goggins
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Walton Goggins
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Walton Goggins
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Walton Goggins
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -955,11 +955,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Walton Goggins
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Walton Goggins
@@ -973,15 +973,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Tom Holland
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Tom Holland
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1009,15 +1000,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Tom Holland
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Tom Holland
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1036,15 +1018,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Tom Holland
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Tom Holland
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -1054,6 +1027,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Tom Holland
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Tom Holland
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Tom Holland
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Tom Holland
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -1063,11 +1063,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Tom Holland
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Tom Holland
@@ -1081,15 +1081,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Gucci Mane
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Gucci Mane
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1117,15 +1108,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Gucci Mane
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Gucci Mane
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1144,15 +1126,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Gucci Mane
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Gucci Mane
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -1162,6 +1135,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Gucci Mane
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Gucci Mane
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Gucci Mane
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Gucci Mane
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -1171,11 +1171,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Gucci Mane
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Gucci Mane
@@ -1189,15 +1189,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Harry Styles
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Harry Styles
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1225,15 +1216,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Harry Styles
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Harry Styles
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1252,15 +1234,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Harry Styles
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Harry Styles
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -1270,6 +1243,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Harry Styles
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Harry Styles
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Harry Styles
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Harry Styles
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -1279,11 +1279,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Harry Styles
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Harry Styles
@@ -1297,15 +1297,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Jake Paul
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Jake Paul
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1333,15 +1324,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Jake Paul
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Jake Paul
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1360,15 +1342,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Jake Paul
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Jake Paul
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -1378,6 +1351,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Jake Paul
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Jake Paul
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Jake Paul
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Jake Paul
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -1387,11 +1387,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Jake Paul
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Jake Paul
@@ -1405,15 +1405,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Jameela Jamil
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Jameela Jamil
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1441,15 +1432,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Jameela Jamil
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Jameela Jamil
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1468,15 +1450,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Jameela Jamil
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Jameela Jamil
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -1486,6 +1459,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Jameela Jamil
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Jameela Jamil
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Jameela Jamil
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Jameela Jamil
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -1495,11 +1495,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Jameela Jamil
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Jameela Jamil
@@ -1513,15 +1513,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Elon Musk
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Elon Musk
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1549,15 +1540,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Elon Musk
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Elon Musk
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1576,15 +1558,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Elon Musk
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Elon Musk
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -1594,6 +1567,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Elon Musk
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Elon Musk
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Elon Musk
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Elon Musk
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -1603,11 +1603,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Elon Musk
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Elon Musk
@@ -1621,15 +1621,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Gabrielle Union
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Gabrielle Union
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1657,15 +1648,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Gabrielle Union
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Gabrielle Union
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1684,15 +1666,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Gabrielle Union
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Gabrielle Union
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -1702,6 +1675,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Gabrielle Union
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Gabrielle Union
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Gabrielle Union
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Gabrielle Union
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -1711,11 +1711,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Gabrielle Union
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Gabrielle Union
@@ -1729,15 +1729,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Giancarlo Esposito
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Giancarlo Esposito
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1765,15 +1756,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Giancarlo Esposito
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1792,15 +1774,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Giancarlo Esposito
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -1810,6 +1783,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Giancarlo Esposito
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Giancarlo Esposito
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Giancarlo Esposito
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -1819,11 +1819,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Giancarlo Esposito
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Giancarlo Esposito
@@ -1837,15 +1837,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Gillian Jacobs
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Gillian Jacobs
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1873,15 +1864,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Gillian Jacobs
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Gillian Jacobs
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -1900,15 +1882,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Gillian Jacobs
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Gillian Jacobs
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -1918,6 +1891,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Gillian Jacobs
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Gillian Jacobs
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Gillian Jacobs
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Gillian Jacobs
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -1927,11 +1927,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Gillian Jacobs
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Gillian Jacobs
@@ -1945,15 +1945,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Jason Mantzoukas
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Jason Mantzoukas
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -1981,15 +1972,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Jason Mantzoukas
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2008,15 +1990,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Jason Mantzoukas
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2026,6 +1999,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Jason Mantzoukas
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Jason Mantzoukas
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Jason Mantzoukas
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -2035,11 +2035,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Jason Mantzoukas
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Jason Mantzoukas
@@ -2053,15 +2053,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## JB Smoove
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## JB Smoove
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -2089,15 +2080,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## JB Smoove
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## JB Smoove
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2116,15 +2098,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## JB Smoove
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## JB Smoove
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2134,6 +2107,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## JB Smoove
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## JB Smoove
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## JB Smoove
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## JB Smoove
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -2143,11 +2143,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## JB Smoove
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## JB Smoove
@@ -2161,15 +2161,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Madison Pettis
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Madison Pettis
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -2197,15 +2188,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Madison Pettis
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Madison Pettis
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2224,15 +2206,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Madison Pettis
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Madison Pettis
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2242,6 +2215,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Madison Pettis
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Madison Pettis
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Madison Pettis
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Madison Pettis
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -2251,11 +2251,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Madison Pettis
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Madison Pettis
@@ -2269,15 +2269,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Austin Butler
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Austin Butler
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -2305,15 +2296,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Austin Butler
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Austin Butler
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2332,15 +2314,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Austin Butler
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Austin Butler
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2350,6 +2323,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Austin Butler
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Austin Butler
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Austin Butler
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Austin Butler
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -2359,11 +2359,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Austin Butler
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Austin Butler
@@ -2377,15 +2377,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Mark Zuckerberg
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Mark Zuckerberg
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -2413,15 +2404,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Mark Zuckerberg
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2440,15 +2422,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Mark Zuckerberg
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2458,6 +2431,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Mark Zuckerberg
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Mark Zuckerberg
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Mark Zuckerberg
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -2467,11 +2467,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Mark Zuckerberg
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Mark Zuckerberg
@@ -2485,15 +2485,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Ariana Grande
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Ariana Grande
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -2521,15 +2512,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Ariana Grande
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Ariana Grande
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2548,15 +2530,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Ariana Grande
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Ariana Grande
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2566,6 +2539,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Ariana Grande
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Ariana Grande
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Ariana Grande
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Ariana Grande
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -2575,11 +2575,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Ariana Grande
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Ariana Grande
@@ -2593,15 +2593,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Livvy Dunne
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Livvy Dunne
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -2629,15 +2620,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Livvy Dunne
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Livvy Dunne
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2656,15 +2638,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Livvy Dunne
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Livvy Dunne
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2674,6 +2647,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Livvy Dunne
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Livvy Dunne
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Livvy Dunne
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Livvy Dunne
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -2683,11 +2683,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Livvy Dunne
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Livvy Dunne
@@ -2701,15 +2701,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Ali Wong
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Ali Wong
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -2737,15 +2728,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Ali Wong
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Ali Wong
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2764,15 +2746,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Ali Wong
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Ali Wong
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2782,6 +2755,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Ali Wong
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Ali Wong
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Ali Wong
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Ali Wong
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -2791,11 +2791,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Ali Wong
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Ali Wong
@@ -2809,15 +2809,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Lizzo
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Lizzo
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -2845,15 +2836,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Lizzo
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Lizzo
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2872,15 +2854,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Lizzo
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Lizzo
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2890,6 +2863,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Lizzo
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Lizzo
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Lizzo
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Lizzo
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -2899,11 +2899,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Lizzo
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Lizzo
@@ -2917,15 +2917,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Alison Brie
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Alison Brie
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -2953,15 +2944,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Alison Brie
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Alison Brie
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -2980,15 +2962,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Alison Brie
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Alison Brie
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -2998,6 +2971,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Alison Brie
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Alison Brie
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Alison Brie
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Alison Brie
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3007,11 +3007,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Alison Brie
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Alison Brie
@@ -3025,15 +3025,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Lil Wayne
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Lil Wayne
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -3061,15 +3052,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Lil Wayne
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Lil Wayne
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3088,15 +3070,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Lil Wayne
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Lil Wayne
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -3106,6 +3079,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Lil Wayne
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Lil Wayne
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Lil Wayne
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Lil Wayne
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3115,11 +3115,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Lil Wayne
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Lil Wayne
@@ -3133,15 +3133,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Adele
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Adele
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -3169,15 +3160,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Adele
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Adele
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3196,15 +3178,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Adele
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Adele
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -3214,6 +3187,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Adele
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Adele
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Adele
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Adele
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3223,11 +3223,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Adele
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Adele
@@ -3241,15 +3241,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Lindsay Lohan
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Lindsay Lohan
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -3277,15 +3268,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Lindsay Lohan
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Lindsay Lohan
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3304,15 +3286,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Lindsay Lohan
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Lindsay Lohan
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -3322,6 +3295,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Lindsay Lohan
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Lindsay Lohan
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Lindsay Lohan
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Lindsay Lohan
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3331,11 +3331,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Lindsay Lohan
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Lindsay Lohan
@@ -3349,15 +3349,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Addison Rae
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Addison Rae
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -3385,15 +3376,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Addison Rae
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Addison Rae
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3412,15 +3394,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Addison Rae
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Addison Rae
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -3430,6 +3403,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Addison Rae
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Addison Rae
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Addison Rae
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Addison Rae
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3439,11 +3439,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Addison Rae
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Addison Rae
@@ -3457,15 +3457,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Latto
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Latto
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -3493,15 +3484,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Latto
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Latto
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3520,15 +3502,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Latto
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Latto
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -3538,6 +3511,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Latto
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Latto
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Latto
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Latto
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3547,11 +3547,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Latto
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Latto
@@ -3565,15 +3565,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Aaron Paul
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Aaron Paul
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -3601,15 +3592,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Aaron Paul
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Aaron Paul
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3628,15 +3610,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Aaron Paul
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Aaron Paul
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -3646,6 +3619,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Aaron Paul
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Aaron Paul
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Aaron Paul
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Aaron Paul
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3655,11 +3655,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Aaron Paul
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Aaron Paul
@@ -3673,15 +3673,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## LeBron James
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## LeBron James
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -3709,15 +3700,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## LeBron James
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## LeBron James
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3736,15 +3718,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## LeBron James
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## LeBron James
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -3754,6 +3727,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## LeBron James
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## LeBron James
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## LeBron James
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## LeBron James
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3763,11 +3763,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## LeBron James
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## LeBron James
@@ -3781,15 +3781,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## 50 Cent
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## 50 Cent
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -3817,15 +3808,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## 50 Cent
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## 50 Cent
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3844,15 +3826,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## 50 Cent
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## 50 Cent
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -3862,6 +3835,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## 50 Cent
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## 50 Cent
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## 50 Cent
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## 50 Cent
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3871,11 +3871,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## 50 Cent
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## 50 Cent
@@ -3889,15 +3889,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Kesha
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Kesha
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -3925,15 +3916,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Kesha
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Kesha
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -3952,15 +3934,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Kesha
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Kesha
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -3970,6 +3943,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Kesha
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Kesha
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Kesha
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Kesha
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -3979,11 +3979,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Kesha
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Kesha
@@ -3997,15 +3997,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## 21 Savage
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## 21 Savage
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -4033,15 +4024,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## 21 Savage
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## 21 Savage
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4060,15 +4042,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## 21 Savage
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## 21 Savage
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -4078,6 +4051,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## 21 Savage
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## 21 Savage
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## 21 Savage
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## 21 Savage
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -4087,11 +4087,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## 21 Savage
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## 21 Savage
@@ -4105,15 +4105,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Larry David
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Larry David
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -4141,15 +4132,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Larry David
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Larry David
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4168,15 +4150,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Larry David
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Larry David
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -4186,6 +4159,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Larry David
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Larry David
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Larry David
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Larry David
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -4195,11 +4195,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Larry David
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Larry David
@@ -4213,15 +4213,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Seth Rogan
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Seth Rogan
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -4249,15 +4240,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Seth Rogan
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Seth Rogan
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4276,15 +4258,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Seth Rogan
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Seth Rogan
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -4294,6 +4267,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Seth Rogan
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Seth Rogan
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Seth Rogan
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Seth Rogan
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -4303,11 +4303,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Seth Rogan
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Seth Rogan
@@ -4321,15 +4321,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Simone Biles
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Simone Biles
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -4357,15 +4348,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Simone Biles
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Simone Biles
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4384,15 +4366,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Simone Biles
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Simone Biles
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -4402,6 +4375,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Simone Biles
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Simone Biles
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Simone Biles
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Simone Biles
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -4411,11 +4411,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Simone Biles
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Simone Biles
@@ -4429,15 +4429,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Pete Davidson
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Pete Davidson
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -4465,15 +4456,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Pete Davidson
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Pete Davidson
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4492,15 +4474,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Pete Davidson
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Pete Davidson
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -4510,6 +4483,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Pete Davidson
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Pete Davidson
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Pete Davidson
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Pete Davidson
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -4519,11 +4519,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Pete Davidson
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Pete Davidson
@@ -4537,15 +4537,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Prince Harry
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Prince Harry
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -4573,15 +4564,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Prince Harry
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Prince Harry
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4600,15 +4582,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Prince Harry
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Prince Harry
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -4618,6 +4591,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Prince Harry
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Prince Harry
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Prince Harry
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Prince Harry
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -4627,11 +4627,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Prince Harry
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Prince Harry
@@ -4645,15 +4645,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Princess of Wales
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Princess of Wales
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -4681,15 +4672,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Princess of Wales
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Princess of Wales
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4708,15 +4690,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Princess of Wales
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Princess of Wales
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -4726,6 +4699,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Princess of Wales
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Princess of Wales
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Princess of Wales
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Princess of Wales
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -4735,11 +4735,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Princess of Wales
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Princess of Wales
@@ -4753,15 +4753,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Rachel McAdams
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Rachel McAdams
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -4789,15 +4780,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Rachel McAdams
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Rachel McAdams
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4816,15 +4798,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Rachel McAdams
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Rachel McAdams
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -4834,6 +4807,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Rachel McAdams
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Rachel McAdams
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Rachel McAdams
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Rachel McAdams
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -4843,11 +4843,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Rachel McAdams
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Rachel McAdams
@@ -4861,15 +4861,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Reneé Rapp
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Reneé Rapp
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -4897,15 +4888,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Reneé Rapp
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Reneé Rapp
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -4924,15 +4906,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Reneé Rapp
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Reneé Rapp
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -4942,6 +4915,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Reneé Rapp
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Reneé Rapp
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Reneé Rapp
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Reneé Rapp
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -4951,11 +4951,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Reneé Rapp
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Reneé Rapp
@@ -4969,15 +4969,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Rick Ross
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Rick Ross
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5005,15 +4996,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Rick Ross
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Rick Ross
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5032,15 +5014,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Rick Ross
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Rick Ross
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -5050,6 +5023,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Rick Ross
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Rick Ross
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Rick Ross
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Rick Ross
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -5059,11 +5059,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Rick Ross
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Rick Ross
@@ -5077,15 +5077,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Sam Ashgari
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Sam Ashgari
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5113,15 +5104,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Sam Ashgari
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Sam Ashgari
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5140,15 +5122,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Sam Ashgari
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Sam Ashgari
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -5158,6 +5131,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Sam Ashgari
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Sam Ashgari
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Sam Ashgari
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Sam Ashgari
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -5167,11 +5167,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Sam Ashgari
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Sam Ashgari
@@ -5185,15 +5185,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Sandra Oh
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Sandra Oh
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5221,15 +5212,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Sandra Oh
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Sandra Oh
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5248,15 +5230,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Sandra Oh
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Sandra Oh
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -5266,6 +5239,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Sandra Oh
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Sandra Oh
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Sandra Oh
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Sandra Oh
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -5275,11 +5275,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Sandra Oh
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Sandra Oh
@@ -5293,15 +5293,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Donald Trump
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Donald Trump
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5329,15 +5320,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Donald Trump
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Donald Trump
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5356,15 +5338,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Donald Trump
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Donald Trump
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -5374,6 +5347,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Donald Trump
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Donald Trump
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Donald Trump
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Donald Trump
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -5383,11 +5383,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Donald Trump
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Donald Trump
@@ -5401,15 +5401,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Diddy
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Diddy
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5437,15 +5428,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Diddy
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Diddy
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5464,15 +5446,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Diddy
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Diddy
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -5482,6 +5455,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Diddy
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Diddy
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Diddy
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Diddy
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -5491,11 +5491,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Diddy
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Diddy
@@ -5509,15 +5509,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## City Girls
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## City Girls
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5545,15 +5536,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## City Girls
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## City Girls
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5572,15 +5554,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## City Girls
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## City Girls
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -5590,6 +5563,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## City Girls
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## City Girls
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## City Girls
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## City Girls
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -5599,11 +5599,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## City Girls
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## City Girls
@@ -5617,15 +5617,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Chloe Bailey
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Chloe Bailey
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5653,15 +5644,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Chloe Bailey
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Chloe Bailey
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5680,15 +5662,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Chloe Bailey
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Chloe Bailey
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -5698,6 +5671,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Chloe Bailey
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Chloe Bailey
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Chloe Bailey
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Chloe Bailey
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -5707,11 +5707,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Chloe Bailey
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Chloe Bailey
@@ -5725,15 +5725,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Charli D Amelio
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Charli D Amelio
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5761,15 +5752,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Charli D Amelio
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Charli D Amelio
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5788,15 +5770,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Charli D Amelio
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Charli D Amelio
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -5806,6 +5779,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Charli D Amelio
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Charli D Amelio
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Charli D Amelio
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Charli D Amelio
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -5815,11 +5815,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Charli D Amelio
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Charli D Amelio
@@ -5833,15 +5833,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Cardi B
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Cardi B
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5869,15 +5860,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Cardi B
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Cardi B
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -5896,15 +5878,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Cardi B
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Cardi B
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -5914,6 +5887,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Cardi B
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Cardi B
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Cardi B
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Cardi B
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -5923,11 +5923,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Cardi B
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Cardi B
@@ -5941,15 +5941,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Bryan Cranston
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Bryan Cranston
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -5977,15 +5968,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Bryan Cranston
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Bryan Cranston
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6004,15 +5986,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Bryan Cranston
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Bryan Cranston
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6022,6 +5995,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Bryan Cranston
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Bryan Cranston
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Bryan Cranston
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Bryan Cranston
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -6031,11 +6031,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Bryan Cranston
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Bryan Cranston
@@ -6049,15 +6049,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Brielle Biermann
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Brielle Biermann
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -6085,15 +6076,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Brielle Biermann
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Brielle Biermann
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6112,15 +6094,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Brielle Biermann
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Brielle Biermann
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6130,6 +6103,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Brielle Biermann
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Brielle Biermann
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Brielle Biermann
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Brielle Biermann
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -6139,11 +6139,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Brielle Biermann
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Brielle Biermann
@@ -6157,15 +6157,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Dua Lipa
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Dua Lipa
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -6193,15 +6184,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Dua Lipa
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Dua Lipa
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6220,15 +6202,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Dua Lipa
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Dua Lipa
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6238,6 +6211,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Dua Lipa
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Dua Lipa
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Dua Lipa
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Dua Lipa
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -6247,11 +6247,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Dua Lipa
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Dua Lipa
@@ -6265,15 +6265,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Drake
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Drake
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -6301,15 +6292,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Drake
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Drake
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6328,15 +6310,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Drake
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Drake
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6346,6 +6319,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Drake
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Drake
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Drake
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Drake
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -6355,11 +6355,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Drake
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Drake
@@ -6373,15 +6373,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Jenner
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Jenner
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -6409,15 +6400,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Jenner
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Jenner
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6436,15 +6418,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Jenner
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Jenner
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6454,6 +6427,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Jenner
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Jenner
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Jenner
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Jenner
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -6463,11 +6463,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Jenner
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Jenner
@@ -6481,15 +6481,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## J. Cole
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## J. Cole
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -6517,15 +6508,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## J. Cole
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## J. Cole
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6544,15 +6526,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## J. Cole
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## J. Cole
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6562,6 +6535,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## J. Cole
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## J. Cole
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## J. Cole
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## J. Cole
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -6571,11 +6571,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## J. Cole
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## J. Cole
@@ -6589,15 +6589,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Jerrod Carmichael
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Jerrod Carmichael
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -6625,15 +6616,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Jerrod Carmichael
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6652,15 +6634,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Jerrod Carmichael
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6670,6 +6643,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Jerrod Carmichael
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Jerrod Carmichael
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Jerrod Carmichael
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -6679,11 +6679,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Jerrod Carmichael
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Jerrod Carmichael
@@ -6697,15 +6697,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Jennifer Lawrence
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Jennifer Lawrence
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -6733,15 +6724,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Jennifer Lawrence
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6760,15 +6742,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Jennifer Lawrence
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6778,6 +6751,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Jennifer Lawrence
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Jennifer Lawrence
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Jennifer Lawrence
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -6787,11 +6787,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Jennifer Lawrence
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Jennifer Lawrence
@@ -6805,15 +6805,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Joe Biden
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Joe Biden
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -6841,15 +6832,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Joe Biden
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Joe Biden
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6868,15 +6850,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Joe Biden
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Joe Biden
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6886,6 +6859,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Joe Biden
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Joe Biden
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Joe Biden
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Joe Biden
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -6895,11 +6895,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Joe Biden
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Joe Biden
@@ -6913,15 +6913,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## J.K. Simmons
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## J.K. Simmons
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -6949,15 +6940,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## J.K. Simmons
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## J.K. Simmons
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -6976,15 +6958,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## J.K. Simmons
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## J.K. Simmons
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -6994,6 +6967,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## J.K. Simmons
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## J.K. Simmons
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## J.K. Simmons
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## J.K. Simmons
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7003,11 +7003,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## J.K. Simmons
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## J.K. Simmons
@@ -7021,15 +7021,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Kamala Harris
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Kamala Harris
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -7057,15 +7048,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Kamala Harris
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Kamala Harris
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7084,15 +7066,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Kamala Harris
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Kamala Harris
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -7102,6 +7075,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Kamala Harris
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Kamala Harris
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Kamala Harris
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Kamala Harris
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7111,11 +7111,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Kamala Harris
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Kamala Harris
@@ -7129,15 +7129,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## John C Reilly
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## John C Reilly
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -7165,15 +7156,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## John C Reilly
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## John C Reilly
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7192,15 +7174,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## John C Reilly
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## John C Reilly
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -7210,6 +7183,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## John C Reilly
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## John C Reilly
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## John C Reilly
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## John C Reilly
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7219,11 +7219,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## John C Reilly
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## John C Reilly
@@ -7237,15 +7237,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Kardashian
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Kardashian
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -7273,15 +7264,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Kardashian
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Kardashian
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7300,15 +7282,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Kardashian
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Kardashian
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -7318,6 +7291,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Kardashian
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Kardashian
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Kardashian
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Kardashian
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7327,11 +7327,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Kardashian
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Kardashian
@@ -7345,15 +7345,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Kanye
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Kanye
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -7381,15 +7372,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Kanye
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Kanye
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7408,15 +7390,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Kanye
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Kanye
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -7426,6 +7399,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Kanye
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Kanye
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Kanye
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Kanye
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7435,11 +7435,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Kanye
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Kanye
@@ -7453,15 +7453,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Zendaya
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Zendaya
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -7489,15 +7480,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Zendaya
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Zendaya
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7516,15 +7498,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Zendaya
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Zendaya
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -7534,6 +7507,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Zendaya
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Zendaya
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Zendaya
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Zendaya
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7543,11 +7543,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Zendaya
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Zendaya
@@ -7561,15 +7561,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Will Ferrell
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Will Ferrell
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -7597,15 +7588,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Will Ferrell
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Will Ferrell
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7624,15 +7606,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Will Ferrell
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Will Ferrell
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -7642,6 +7615,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Will Ferrell
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Will Ferrell
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Will Ferrell
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Will Ferrell
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7651,11 +7651,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Will Ferrell
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Will Ferrell
@@ -7669,15 +7669,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Zazie Beetz
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Zazie Beetz
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -7705,15 +7696,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Zazie Beetz
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Zazie Beetz
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7732,15 +7714,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Zazie Beetz
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Zazie Beetz
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -7750,6 +7723,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Zazie Beetz
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Zazie Beetz
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Zazie Beetz
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Zazie Beetz
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7759,11 +7759,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Zazie Beetz
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Zazie Beetz
@@ -7777,15 +7777,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Bob Odenkirk
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Bob Odenkirk
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -7813,15 +7804,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Bob Odenkirk
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Bob Odenkirk
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7840,15 +7822,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Bob Odenkirk
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Bob Odenkirk
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -7858,6 +7831,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Bob Odenkirk
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Bob Odenkirk
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Bob Odenkirk
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Bob Odenkirk
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7867,11 +7867,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Bob Odenkirk
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Bob Odenkirk
@@ -7885,15 +7885,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Brad Pitt
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Brad Pitt
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -7921,15 +7912,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Brad Pitt
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Brad Pitt
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -7948,15 +7930,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Brad Pitt
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Brad Pitt
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -7966,6 +7939,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Brad Pitt
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Brad Pitt
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Brad Pitt
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Brad Pitt
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -7975,11 +7975,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Brad Pitt
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Brad Pitt
@@ -7993,15 +7993,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Beyoncé
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Beyoncé
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -8029,15 +8020,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Beyoncé
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Beyoncé
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8056,15 +8038,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Beyoncé
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Beyoncé
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -8074,6 +8047,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Beyoncé
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Beyoncé
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Beyoncé
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Beyoncé
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -8083,11 +8083,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Beyoncé
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Beyoncé
@@ -8101,15 +8101,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Bia
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Bia
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -8137,15 +8128,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Bia
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Bia
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8164,15 +8146,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Bia
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Bia
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -8182,6 +8155,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Bia
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Bia
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Bia
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Bia
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -8191,11 +8191,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Bia
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Bia
@@ -8209,15 +8209,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Avantika
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Avantika
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -8245,15 +8236,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Avantika
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Avantika
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8272,15 +8254,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Avantika
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Avantika
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -8290,6 +8263,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Avantika
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Avantika
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Avantika
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Avantika
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -8299,11 +8299,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Avantika
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Avantika
@@ -8317,15 +8317,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Bernie Sanders
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Bernie Sanders
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -8353,15 +8344,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Bernie Sanders
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Bernie Sanders
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8380,15 +8362,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Bernie Sanders
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Bernie Sanders
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -8398,6 +8371,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Bernie Sanders
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Bernie Sanders
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Bernie Sanders
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Bernie Sanders
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -8407,11 +8407,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Bernie Sanders
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Bernie Sanders
@@ -8425,15 +8425,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Big Sean
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Big Sean
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -8461,15 +8452,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Big Sean
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Big Sean
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8488,15 +8470,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Big Sean
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Big Sean
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -8506,6 +8479,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Big Sean
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Big Sean
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Big Sean
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Big Sean
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -8515,11 +8515,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Big Sean
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Big Sean
@@ -8533,15 +8533,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## BlockBoy JB
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## BlockBoy JB
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -8569,15 +8560,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## BlockBoy JB
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## BlockBoy JB
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8596,15 +8578,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## BlockBoy JB
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## BlockBoy JB
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -8614,6 +8587,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## BlockBoy JB
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## BlockBoy JB
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## BlockBoy JB
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## BlockBoy JB
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -8623,11 +8623,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## BlockBoy JB
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## BlockBoy JB
@@ -8641,15 +8641,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Biden
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Biden
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -8677,15 +8668,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Biden
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Biden
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8704,20 +8686,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Biden
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Biden
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Biden
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Biden
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Biden
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Biden
@@ -8731,11 +8731,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Biden
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Biden
@@ -8745,15 +8745,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## Bieber
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Bieber
@@ -8785,15 +8776,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Bieber
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Bieber
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8812,15 +8794,6 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Bieber
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Bieber
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
@@ -8830,6 +8803,33 @@ As anyone who's paid attention to anything these past few years can and will –
 
 ## Bieber
 
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Bieber
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Bieber
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Bieber
+
 ## [adidas' Stan Smith Just Got a Extremely Luxurious Makeover](https://www.highsnobiety.com/p/adidas-stan-smith-freizeit-sneakers-2024/)
 
 Like it or not, adidas' Stan Smith sneakers are on the path to being cool again . The flat shoe boom has re-sparked interest in not only the rotation-ready ori…
@@ -8839,11 +8839,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Bieber
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Bieber
@@ -8857,15 +8857,6 @@ Just days after sharing their splendid bowling shoes with the world, Brain Dead 
 
 ## Paulina Porizkov
 
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
-
-
-## Paulina Porizkov
-
 ## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
 
 All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
@@ -8893,15 +8884,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Paulina Porizkov
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Paulina Porizkov
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -8920,20 +8902,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Paulina Porizkov
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Paulina Porizkov
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Paulina Porizkov
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Paulina Porizkov
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Paulina Porizkov
@@ -8947,11 +8947,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Paulina Porizkov
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Paulina Porizkov
@@ -8961,15 +8961,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## Paris Hilton
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Paris Hilton
@@ -9001,15 +8992,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Paris Hilton
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Paris Hilton
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9028,20 +9010,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Paris Hilton
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Paris Hilton
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Paris Hilton
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Paris Hilton
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Paris Hilton
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Paris Hilton
@@ -9055,11 +9055,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Paris Hilton
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Paris Hilton
@@ -9069,15 +9069,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## Metro Boomin
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Metro Boomin
@@ -9109,15 +9100,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Metro Boomin
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Metro Boomin
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9136,20 +9118,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Metro Boomin
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Metro Boomin
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Metro Boomin
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Metro Boomin
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Metro Boomin
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Metro Boomin
@@ -9163,11 +9163,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Metro Boomin
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Metro Boomin
@@ -9177,15 +9177,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## Meghan Markle
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Meghan Markle
@@ -9217,15 +9208,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Meghan Markle
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Meghan Markle
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9244,20 +9226,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Meghan Markle
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Meghan Markle
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Meghan Markle
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Meghan Markle
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Meghan Markle
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Meghan Markle
@@ -9271,11 +9271,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Meghan Markle
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Meghan Markle
@@ -9285,15 +9285,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Megan Thee Stallion
@@ -9325,15 +9316,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Megan Thee Stallion
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9352,20 +9334,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Megan Thee Stallion
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Megan Thee Stallion
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Megan Thee Stallion
@@ -9379,11 +9379,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Megan Thee Stallion
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Megan Thee Stallion
@@ -9393,15 +9393,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## Maya Rudolph
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Maya Rudolph
@@ -9433,15 +9424,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Maya Rudolph
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Maya Rudolph
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9460,20 +9442,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Maya Rudolph
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Maya Rudolph
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Maya Rudolph
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Maya Rudolph
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Maya Rudolph
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Maya Rudolph
@@ -9487,11 +9487,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Maya Rudolph
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Maya Rudolph
@@ -9501,15 +9501,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Olivia Rodrigo
@@ -9541,15 +9532,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Olivia Rodrigo
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9568,20 +9550,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Olivia Rodrigo
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Olivia Rodrigo
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Olivia Rodrigo
@@ -9595,11 +9595,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Olivia Rodrigo
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Olivia Rodrigo
@@ -9609,15 +9609,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## Obama
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Obama
@@ -9649,15 +9640,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Obama
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Obama
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9676,20 +9658,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Obama
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Obama
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Obama
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Obama
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Obama
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Obama
@@ -9703,11 +9703,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Obama
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Obama
@@ -9717,15 +9717,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## Nicki Minaj
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Nicki Minaj
@@ -9757,15 +9748,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## Nicki Minaj
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## Nicki Minaj
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9784,20 +9766,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## Nicki Minaj
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## Nicki Minaj
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Nicki Minaj
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Nicki Minaj
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Nicki Minaj
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## Nicki Minaj
@@ -9811,11 +9811,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## Nicki Minaj
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## Nicki Minaj
@@ -9825,15 +9825,6 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Just days after sharing their splendid bowling shoes with the world, Brain Dead and adidas unveil their second shoe together: an "unstructured" Stan Smith coll…
 
 *Published on: Wed, 03 Jul 2024 05:18:00 GMT*
-
-
-## MrBeast
-
-## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
-
-Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
-
-*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## MrBeast
@@ -9865,15 +9856,6 @@ When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8
 
 ## MrBeast
 
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Wed, 03 Jul 2024 12:33:36 GMT*
-
-
-## MrBeast
-
 ## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
 
 Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
@@ -9892,20 +9874,38 @@ Referring to himself as "just a kid from Akron" with a story that could be the e
 
 ## MrBeast
 
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Wed, 03 Jul 2024 14:40:32 GMT*
-
-
-## MrBeast
-
 ## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
 
 As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
 
 *Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## MrBeast
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## MrBeast
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## MrBeast
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
 ## MrBeast
@@ -9919,11 +9919,11 @@ Like it or not, adidas' Stan Smith sneakers are on the path to being cool again 
 
 ## MrBeast
 
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+## [With a Second Great "Bike Air" Jordan, Nigel Sylvester Does It Again](https://www.highsnobiety.com/p/nigel-sylvester-jordan-4-rm-sneaker-grey-2024/)
 
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+Nigel Sylvester's Jordan 4 RM sneaker is undoubtedly one of the most anticipated collaborations of 2024. As we patiently wait for the low-rise green sneaker to…
 
-*Published on: Wed, 03 Jul 2024 06:55:00 GMT*
+*Published on: Wed, 03 Jul 2024 07:15:15 GMT*
 
 
 ## MrBeast
