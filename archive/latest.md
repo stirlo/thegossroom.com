@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Tim Cook
-
 ## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
 
 It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
@@ -80,13 +71,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Taylor Swift
@@ -153,6 +144,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Taylor Swift
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Taylor Swift
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Tom Brady
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Tom Brady
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Tom Brady
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Tom Brady
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Tom Brady
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Tom Brady
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Tom Brady
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Tom Brady
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -163,92 +235,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Tom Brady
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Tom Brady
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Tom Brady
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Tom Brady
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Tom Brady
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Tom Brady
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Tom Brady
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Tom Brady
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Tom Brady
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Tina Fey
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Tina Fey
@@ -323,13 +314,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Steven Yuen
@@ -396,6 +387,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Steven Yuen
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Steven Yuen
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Sommer Ray
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Sommer Ray
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Sommer Ray
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Sommer Ray
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Sommer Ray
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Sommer Ray
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Sommer Ray
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Sommer Ray
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -406,92 +478,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Sommer Ray
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Sommer Ray
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Sommer Ray
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Sommer Ray
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Sommer Ray
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Sommer Ray
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Sommer Ray
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Sommer Ray
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Sommer Ray
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Sza
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Sza
@@ -566,13 +557,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Sydney Sweeney
@@ -639,6 +630,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Sydney Sweeney
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Sydney Sweeney
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Walton Goggins
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Walton Goggins
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Walton Goggins
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Walton Goggins
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Walton Goggins
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Walton Goggins
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Walton Goggins
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Walton Goggins
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -649,92 +721,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Walton Goggins
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Walton Goggins
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Walton Goggins
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Walton Goggins
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Walton Goggins
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Walton Goggins
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Walton Goggins
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Walton Goggins
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Walton Goggins
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Tom Holland
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Tom Holland
@@ -809,13 +800,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Gucci Mane
@@ -882,6 +873,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Gucci Mane
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Gucci Mane
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Harry Styles
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Harry Styles
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Harry Styles
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Harry Styles
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Harry Styles
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Harry Styles
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Harry Styles
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Harry Styles
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -892,92 +964,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Harry Styles
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Harry Styles
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Harry Styles
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Harry Styles
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Harry Styles
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Harry Styles
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Harry Styles
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Harry Styles
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Harry Styles
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Jake Paul
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Jake Paul
@@ -1052,13 +1043,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Jameela Jamil
@@ -1125,6 +1116,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Jameela Jamil
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Jameela Jamil
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Elon Musk
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Elon Musk
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Elon Musk
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Elon Musk
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Elon Musk
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Elon Musk
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Elon Musk
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Elon Musk
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -1135,92 +1207,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Elon Musk
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Elon Musk
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Elon Musk
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Elon Musk
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Elon Musk
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Elon Musk
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Elon Musk
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Elon Musk
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Elon Musk
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Gabrielle Union
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Gabrielle Union
@@ -1295,13 +1286,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1368,6 +1359,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Giancarlo Esposito
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Giancarlo Esposito
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Gillian Jacobs
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Gillian Jacobs
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Gillian Jacobs
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Gillian Jacobs
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Gillian Jacobs
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Gillian Jacobs
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -1378,92 +1450,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Gillian Jacobs
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Gillian Jacobs
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Gillian Jacobs
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Gillian Jacobs
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Gillian Jacobs
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Gillian Jacobs
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Gillian Jacobs
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Jason Mantzoukas
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1538,13 +1529,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## JB Smoove
@@ -1611,6 +1602,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## JB Smoove
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## JB Smoove
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Madison Pettis
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Madison Pettis
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Madison Pettis
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Madison Pettis
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Madison Pettis
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Madison Pettis
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Madison Pettis
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Madison Pettis
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -1621,92 +1693,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Madison Pettis
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Madison Pettis
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Madison Pettis
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Madison Pettis
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Madison Pettis
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Madison Pettis
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Madison Pettis
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Madison Pettis
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Madison Pettis
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Austin Butler
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Austin Butler
@@ -1781,13 +1772,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1854,6 +1845,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Mark Zuckerberg
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Mark Zuckerberg
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Ariana Grande
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Ariana Grande
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Ariana Grande
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Ariana Grande
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Ariana Grande
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Ariana Grande
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Ariana Grande
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Ariana Grande
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -1864,92 +1936,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Ariana Grande
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Ariana Grande
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Ariana Grande
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Ariana Grande
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Ariana Grande
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Ariana Grande
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Ariana Grande
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Ariana Grande
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Ariana Grande
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Livvy Dunne
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Livvy Dunne
@@ -2024,13 +2015,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Ali Wong
@@ -2097,6 +2088,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Ali Wong
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Ali Wong
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Lizzo
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Lizzo
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Lizzo
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Lizzo
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Lizzo
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Lizzo
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Lizzo
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Lizzo
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -2107,92 +2179,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Lizzo
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Lizzo
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Lizzo
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Lizzo
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Lizzo
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Lizzo
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Lizzo
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Lizzo
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Lizzo
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Alison Brie
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Alison Brie
@@ -2267,13 +2258,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Lil Wayne
@@ -2340,6 +2331,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Lil Wayne
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Lil Wayne
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Adele
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Adele
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Adele
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Adele
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Adele
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Adele
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Adele
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Adele
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -2350,92 +2422,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Adele
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Adele
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Adele
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Adele
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Adele
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Adele
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Adele
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Adele
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Adele
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Lindsay Lohan
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Lindsay Lohan
@@ -2510,13 +2501,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Addison Rae
@@ -2583,6 +2574,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Addison Rae
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Addison Rae
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Latto
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Latto
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Latto
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Latto
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Latto
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Latto
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Latto
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Latto
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -2593,92 +2665,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Latto
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Latto
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Latto
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Latto
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Latto
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Latto
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Latto
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Latto
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Latto
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Aaron Paul
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Aaron Paul
@@ -2753,13 +2744,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## LeBron James
@@ -2826,6 +2817,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## LeBron James
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## LeBron James
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## 50 Cent
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## 50 Cent
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## 50 Cent
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## 50 Cent
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## 50 Cent
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## 50 Cent
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## 50 Cent
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## 50 Cent
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -2836,92 +2908,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## 50 Cent
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## 50 Cent
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## 50 Cent
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## 50 Cent
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## 50 Cent
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## 50 Cent
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## 50 Cent
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## 50 Cent
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## 50 Cent
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Kesha
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Kesha
@@ -2996,13 +2987,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## 21 Savage
@@ -3069,6 +3060,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## 21 Savage
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## 21 Savage
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Larry David
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Larry David
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Larry David
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Larry David
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Larry David
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Larry David
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Larry David
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Larry David
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -3079,92 +3151,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Larry David
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Larry David
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Larry David
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Larry David
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Larry David
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Larry David
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Larry David
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Larry David
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Larry David
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Seth Rogan
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Seth Rogan
@@ -3239,13 +3230,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Simone Biles
@@ -3312,6 +3303,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Simone Biles
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Simone Biles
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Pete Davidson
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Pete Davidson
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Pete Davidson
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Pete Davidson
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Pete Davidson
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Pete Davidson
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Pete Davidson
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Pete Davidson
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -3322,92 +3394,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Pete Davidson
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Pete Davidson
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Pete Davidson
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Pete Davidson
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Pete Davidson
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Pete Davidson
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Pete Davidson
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Pete Davidson
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Pete Davidson
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Prince Harry
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Prince Harry
@@ -3482,13 +3473,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Princess of Wales
@@ -3555,6 +3546,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Princess of Wales
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Princess of Wales
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Rachel McAdams
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Rachel McAdams
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Rachel McAdams
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Rachel McAdams
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Rachel McAdams
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Rachel McAdams
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Rachel McAdams
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -3565,92 +3637,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Rachel McAdams
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Rachel McAdams
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Rachel McAdams
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Rachel McAdams
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Rachel McAdams
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Rachel McAdams
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Rachel McAdams
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Rachel McAdams
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Rachel McAdams
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Reneé Rapp
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Reneé Rapp
@@ -3725,13 +3716,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Rick Ross
@@ -3798,6 +3789,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Rick Ross
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Rick Ross
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Sam Ashgari
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Sam Ashgari
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Sam Ashgari
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Sam Ashgari
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Sam Ashgari
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Sam Ashgari
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Sam Ashgari
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -3808,92 +3880,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Sam Ashgari
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Sam Ashgari
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Sam Ashgari
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Sam Ashgari
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Sam Ashgari
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Sam Ashgari
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Sam Ashgari
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Sam Ashgari
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Sam Ashgari
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Sandra Oh
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Sandra Oh
@@ -3968,13 +3959,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Donald Trump
@@ -4041,6 +4032,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Donald Trump
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Donald Trump
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Diddy
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Diddy
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Diddy
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Diddy
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Diddy
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Diddy
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Diddy
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Diddy
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -4051,92 +4123,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Diddy
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Diddy
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Diddy
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Diddy
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Diddy
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Diddy
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Diddy
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Diddy
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Diddy
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## City Girls
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## City Girls
@@ -4211,13 +4202,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Chloe Bailey
@@ -4284,6 +4275,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Chloe Bailey
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Chloe Bailey
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Charli D Amelio
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Charli D Amelio
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Charli D Amelio
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Charli D Amelio
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Charli D Amelio
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Charli D Amelio
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Charli D Amelio
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -4294,92 +4366,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Charli D Amelio
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Charli D Amelio
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Charli D Amelio
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Charli D Amelio
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Charli D Amelio
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Charli D Amelio
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Charli D Amelio
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Charli D Amelio
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Charli D Amelio
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Cardi B
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Cardi B
@@ -4454,13 +4445,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Bryan Cranston
@@ -4527,6 +4518,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Bryan Cranston
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Bryan Cranston
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Brielle Biermann
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Brielle Biermann
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Brielle Biermann
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Brielle Biermann
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Brielle Biermann
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Brielle Biermann
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Brielle Biermann
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -4537,92 +4609,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Brielle Biermann
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Brielle Biermann
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Brielle Biermann
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Brielle Biermann
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Brielle Biermann
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Brielle Biermann
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Brielle Biermann
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Brielle Biermann
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Brielle Biermann
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Dua Lipa
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Dua Lipa
@@ -4697,13 +4688,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Drake
@@ -4770,6 +4761,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Drake
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Drake
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Jenner
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Jenner
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Jenner
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Jenner
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Jenner
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Jenner
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Jenner
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Jenner
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -4780,92 +4852,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Jenner
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Jenner
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Jenner
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Jenner
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Jenner
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Jenner
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Jenner
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Jenner
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Jenner
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## J. Cole
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## J. Cole
@@ -4940,13 +4931,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -5013,6 +5004,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Jerrod Carmichael
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Jerrod Carmichael
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Jennifer Lawrence
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Jennifer Lawrence
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Jennifer Lawrence
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Jennifer Lawrence
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Jennifer Lawrence
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -5023,92 +5095,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Jennifer Lawrence
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Jennifer Lawrence
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Jennifer Lawrence
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Jennifer Lawrence
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Jennifer Lawrence
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Jennifer Lawrence
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Joe Biden
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Joe Biden
@@ -5183,13 +5174,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## J.K. Simmons
@@ -5256,6 +5247,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## J.K. Simmons
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## J.K. Simmons
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Kamala Harris
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Kamala Harris
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Kamala Harris
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Kamala Harris
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Kamala Harris
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Kamala Harris
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Kamala Harris
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Kamala Harris
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -5266,92 +5338,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Kamala Harris
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Kamala Harris
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Kamala Harris
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Kamala Harris
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Kamala Harris
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Kamala Harris
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Kamala Harris
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Kamala Harris
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Kamala Harris
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## John C Reilly
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## John C Reilly
@@ -5426,13 +5417,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Kardashian
@@ -5499,6 +5490,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Kardashian
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Kardashian
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Kanye
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Kanye
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Kanye
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Kanye
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Kanye
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Kanye
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Kanye
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Kanye
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -5509,92 +5581,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Kanye
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Kanye
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Kanye
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Kanye
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Kanye
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Kanye
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Kanye
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Kanye
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Kanye
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Zendaya
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Zendaya
@@ -5669,13 +5660,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Will Ferrell
@@ -5742,6 +5733,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Will Ferrell
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Will Ferrell
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Zazie Beetz
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Zazie Beetz
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Zazie Beetz
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Zazie Beetz
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Zazie Beetz
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Zazie Beetz
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Zazie Beetz
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -5752,92 +5824,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Zazie Beetz
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Zazie Beetz
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Zazie Beetz
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Zazie Beetz
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Zazie Beetz
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Zazie Beetz
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Zazie Beetz
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Zazie Beetz
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Zazie Beetz
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Bob Odenkirk
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Bob Odenkirk
@@ -5912,13 +5903,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Brad Pitt
@@ -5985,6 +5976,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Brad Pitt
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Brad Pitt
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Beyoncé
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Beyoncé
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Beyoncé
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Beyoncé
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Beyoncé
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Beyoncé
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Beyoncé
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Beyoncé
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -5995,92 +6067,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Beyoncé
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Beyoncé
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Beyoncé
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Beyoncé
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Beyoncé
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Beyoncé
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Beyoncé
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Beyoncé
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Beyoncé
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Bia
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Bia
@@ -6155,13 +6146,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Avantika
+## Bia
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Avantika
@@ -6228,6 +6219,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Avantika
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Avantika
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Bernie Sanders
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Bernie Sanders
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Bernie Sanders
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Bernie Sanders
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Bernie Sanders
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Bernie Sanders
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Bernie Sanders
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -6238,92 +6310,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Bernie Sanders
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Bernie Sanders
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Bernie Sanders
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Bernie Sanders
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Bernie Sanders
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Bernie Sanders
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Bernie Sanders
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Bernie Sanders
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Bernie Sanders
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Big Sean
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Big Sean
@@ -6398,13 +6389,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## BlockBoy JB
@@ -6471,6 +6462,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## BlockBoy JB
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## BlockBoy JB
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Biden
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Biden
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Biden
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Biden
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Biden
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Biden
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Biden
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Biden
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -6481,92 +6553,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Biden
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Biden
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Biden
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Biden
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Biden
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Biden
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Biden
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Biden
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Biden
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Bieber
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Bieber
@@ -6641,13 +6632,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Paulina Porizkov
@@ -6714,6 +6705,87 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 
 
 ## Paulina Porizkov
+
+## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
+
+Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
+
+*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## Paulina Porizkov
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
+
+
+## Paris Hilton
+
+## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
+
+It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
+
+*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
+
+
+## Paris Hilton
+
+## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+
+When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+
+*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
+
+
+## Paris Hilton
+
+## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
+
+Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
+
+*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
+
+
+## Paris Hilton
+
+## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
+
+Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
+
+*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
+
+
+## Paris Hilton
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
+## Paris Hilton
+
+## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
+
+It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
+
+*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
+
+
+## Paris Hilton
+
+## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
+
+New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
+
+*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
+
+
+## Paris Hilton
 
 ## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
 
@@ -6724,92 +6796,11 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 
 ## Paris Hilton
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
-
-
-## Paris Hilton
-
-## [The Greatest Jordan 5 Sneaker Makes Its Epic Return](https://www.highsnobiety.com/p/jordan-5-black-metallic-reimagined-sneakers-2025/)
-
-It's that time again: Nike's Jordan Brand returns with another "Reimagined" classic. This time, the brand plans to revive the iconic Air Jordan 5 "Black Metall…
-
-*Published on: Wed, 03 Jul 2024 11:35:21 GMT*
-
-
-## Paris Hilton
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Wed, 03 Jul 2024 12:09:11 GMT*
-
-
-## Paris Hilton
-
-## [Running's In, So Why Not Run Like A NIKE Olympian? ](https://www.highsnobiety.com/p/nike-olympians-2024/)
-
-Running is having an unprecedented moment in culture – or so it seems. Not long ago, we briefly investigated the trend that is swapping dating apps for running…
-
-*Published on: Wed, 03 Jul 2024 13:00:00 GMT*
-
-
-## Paris Hilton
-
-## [Basketball, Business, and Billions: Inside LeBron James' Net Worth](https://www.highsnobiety.com/p/lebron-james-net-worth/)
-
-Referring to himself as "just a kid from Akron" with a story that could be the epitome of the American dream, going from rags to riches, LeBron James stands am…
-
-*Published on: Wed, 03 Jul 2024 14:16:54 GMT*
-
-
-## Paris Hilton
-
-## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
-
-As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
-
-*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
-
-
-## Paris Hilton
-
-## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
-
-It turns out that outdoorsy heritage company National Geographic makes astonishingly good dad shoes.The National Geographic Contour Zero sneakers apparently de…
-
-*Published on: Thu, 04 Jul 2024 08:33:36 GMT*
-
-
-## Paris Hilton
-
-## [New Balance's "Barefoot" Shoes Are Barely There  Everywhere, Simultaneously](https://www.highsnobiety.com/p/new-balance-minimus-sneakers-2024/)
-
-New Balance's Minimus shoes may follow a barely-there design concept, but the shoes are quite literally everywhere these days. Indeed, fashion brands can't get…
-
-*Published on: Thu, 04 Jul 2024 08:55:00 GMT*
-
-
-## Paris Hilton
-
-## [When Flat Sneakers Thrive, Will Dad Shoes Survive?](https://www.highsnobiety.com/p/flat-sneaker-chunky-shoe-trend/)
-
-Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
-
-*Published on: Thu, 04 Jul 2024 09:30:32 GMT*
-
-
-## Metro Boomin
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Metro Boomin
@@ -6884,13 +6875,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Meghan Markle
@@ -6965,13 +6956,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -7046,13 +7037,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Maya Rudolph
@@ -7127,13 +7118,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -7208,13 +7199,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Obama
@@ -7289,13 +7280,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## Nicki Minaj
@@ -7370,13 +7361,13 @@ Dad shoes have cast a long, chunky shadow across sneakerdom for the better part 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
 
-*Published on: Wed, 03 Jul 2024 10:59:34 GMT*
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
 ## MrBeast
@@ -7449,5 +7440,14 @@ New Balance's Minimus shoes may follow a barely-there design concept, but the sh
 Dad shoes have cast a long, chunky shadow across sneakerdom for the better part of a decade. But, as they say: the bigger you come, the harder you fall.Flat sn…
 
 *Published on: Thu, 04 Jul 2024 09:30:32 GMT*
+
+
+## MrBeast
+
+## [Take up to 70% off Marni, C.P Company  More Here](https://www.highsnobiety.com/p/ssense-sale-discount/)
+
+In the world of luxury fashion, few retailers loom as large as Canada's very own SSENSE . One of the longest brand lists around positions the retailer as a hub…
+
+*Published on: Thu, 04 Jul 2024 10:10:00 GMT*
 
 
