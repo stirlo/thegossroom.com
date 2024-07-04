@@ -80,6 +80,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Tim Cook
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Taylor Swift
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -159,6 +168,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Taylor Swift
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Tom Brady
@@ -242,6 +260,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Tom Brady
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Tina Fey
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -321,6 +348,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Tina Fey
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Steven Yuen
@@ -404,6 +440,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Steven Yuen
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Sommer Ray
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -483,6 +528,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Sommer Ray
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Sza
@@ -566,6 +620,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Sza
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Sydney Sweeney
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -645,6 +708,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Sydney Sweeney
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Walton Goggins
@@ -728,6 +800,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Walton Goggins
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Tom Holland
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -807,6 +888,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Tom Holland
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Gucci Mane
@@ -890,6 +980,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Gucci Mane
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Harry Styles
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -969,6 +1068,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Harry Styles
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Jake Paul
@@ -1052,6 +1160,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Jake Paul
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Jameela Jamil
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -1131,6 +1248,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Jameela Jamil
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Elon Musk
@@ -1214,6 +1340,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Elon Musk
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Gabrielle Union
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -1293,6 +1428,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Gabrielle Union
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -1376,6 +1520,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Giancarlo Esposito
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Gillian Jacobs
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -1455,6 +1608,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Gillian Jacobs
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -1538,6 +1700,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Jason Mantzoukas
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## JB Smoove
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -1617,6 +1788,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## JB Smoove
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Madison Pettis
@@ -1700,6 +1880,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Madison Pettis
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Austin Butler
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -1779,6 +1968,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Austin Butler
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -1862,6 +2060,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Mark Zuckerberg
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Ariana Grande
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -1941,6 +2148,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Ariana Grande
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Livvy Dunne
@@ -2024,6 +2240,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Livvy Dunne
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Ali Wong
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -2103,6 +2328,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Ali Wong
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Lizzo
@@ -2186,6 +2420,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Lizzo
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Alison Brie
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -2265,6 +2508,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Alison Brie
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Lil Wayne
@@ -2348,6 +2600,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Lil Wayne
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Adele
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -2427,6 +2688,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Adele
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Lindsay Lohan
@@ -2510,6 +2780,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Lindsay Lohan
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Addison Rae
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -2589,6 +2868,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Addison Rae
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Latto
@@ -2672,6 +2960,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Latto
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Aaron Paul
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -2751,6 +3048,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Aaron Paul
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## LeBron James
@@ -2834,6 +3140,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## LeBron James
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## 50 Cent
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -2913,6 +3228,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## 50 Cent
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Kesha
@@ -2996,6 +3320,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Kesha
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## 21 Savage
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -3075,6 +3408,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## 21 Savage
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Larry David
@@ -3158,6 +3500,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Larry David
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Seth Rogan
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -3237,6 +3588,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Seth Rogan
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Simone Biles
@@ -3320,6 +3680,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Simone Biles
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Pete Davidson
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -3399,6 +3768,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Pete Davidson
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Prince Harry
@@ -3482,6 +3860,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Prince Harry
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Princess of Wales
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -3561,6 +3948,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Princess of Wales
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Rachel McAdams
@@ -3644,6 +4040,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Rachel McAdams
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Reneé Rapp
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -3723,6 +4128,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Reneé Rapp
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Rick Ross
@@ -3806,6 +4220,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Rick Ross
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Sam Ashgari
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -3885,6 +4308,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Sam Ashgari
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Sandra Oh
@@ -3968,6 +4400,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Sandra Oh
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Donald Trump
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -4047,6 +4488,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Donald Trump
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Diddy
@@ -4130,6 +4580,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Diddy
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## City Girls
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -4209,6 +4668,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## City Girls
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Chloe Bailey
@@ -4292,6 +4760,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Chloe Bailey
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Charli D Amelio
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -4371,6 +4848,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Charli D Amelio
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Cardi B
@@ -4454,6 +4940,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Cardi B
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Bryan Cranston
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -4533,6 +5028,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Bryan Cranston
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Brielle Biermann
@@ -4616,6 +5120,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Brielle Biermann
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Dua Lipa
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -4695,6 +5208,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Dua Lipa
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Drake
@@ -4778,6 +5300,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Drake
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Jenner
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -4857,6 +5388,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Jenner
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## J. Cole
@@ -4940,6 +5480,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## J. Cole
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Jerrod Carmichael
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -5019,6 +5568,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Jerrod Carmichael
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -5102,6 +5660,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Jennifer Lawrence
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Joe Biden
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -5181,6 +5748,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Joe Biden
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## J.K. Simmons
@@ -5264,6 +5840,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## J.K. Simmons
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Kamala Harris
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -5343,6 +5928,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Kamala Harris
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## John C Reilly
@@ -5426,6 +6020,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## John C Reilly
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Kardashian
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -5505,6 +6108,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Kardashian
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Kanye
@@ -5588,6 +6200,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Kanye
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Zendaya
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -5667,6 +6288,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Zendaya
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Will Ferrell
@@ -5750,6 +6380,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Will Ferrell
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Zazie Beetz
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -5829,6 +6468,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Zazie Beetz
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Bob Odenkirk
@@ -5912,6 +6560,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Bob Odenkirk
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Brad Pitt
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -5991,6 +6648,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Brad Pitt
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Beyoncé
@@ -6074,6 +6740,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Beyoncé
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Bia
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -6153,6 +6828,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Bia
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Avantika
@@ -6236,6 +6920,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Avantika
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Bernie Sanders
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -6315,6 +7008,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Bernie Sanders
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Big Sean
@@ -6398,6 +7100,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Big Sean
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## BlockBoy JB
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -6477,6 +7188,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## BlockBoy JB
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Biden
@@ -6560,6 +7280,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Biden
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Bieber
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -6639,6 +7368,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Bieber
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Paulina Porizkov
@@ -6722,6 +7460,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Paulina Porizkov
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Paris Hilton
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -6801,6 +7548,15 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## Paris Hilton
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
 ## Metro Boomin
@@ -6884,6 +7640,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Metro Boomin
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Meghan Markle
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -6965,6 +7730,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Meghan Markle
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Megan Thee Stallion
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -7046,6 +7820,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Megan Thee Stallion
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Maya Rudolph
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -7127,6 +7910,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Maya Rudolph
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Olivia Rodrigo
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -7208,6 +8000,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Olivia Rodrigo
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Obama
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -7289,6 +8090,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Obama
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## Nicki Minaj
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -7370,6 +8180,15 @@ This weekly guide sorts the very best from the rest when it comes to the saturat
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
+## Nicki Minaj
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
+
+
 ## MrBeast
 
 ## [Wait, Nat Geo's Planet-Friendly Dad Shoes Actually Go Hard ](https://www.highsnobiety.com/p/national-geographic-contour-zero-sneaker-2024/)
@@ -7449,5 +8268,14 @@ Admittedly, this is a topic that's safe to part our audience into different camp
 This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
 
 *Published on: Thu, 04 Jul 2024 15:02:32 GMT*
+
+
+## MrBeast
+
+## [Mules! Yep, Just More Mules](https://www.highsnobiety.com/p/mules/)
+
+As anyone who's paid attention to anything these past few years can and will – gladly or sadly – attest to: MULES are very much – and have been – back in fashi…
+
+*Published on: Wed, 03 Jul 2024 15:30:00 GMT*
 
 
