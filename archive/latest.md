@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Tim Cook
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -73,15 +64,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Taylor Swift
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Taylor Swift
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -145,15 +127,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Tom Brady
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Tom Brady
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -217,15 +190,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Tina Fey
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Tina Fey
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -289,15 +253,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Steven Yuen
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Steven Yuen
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -361,15 +316,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Sommer Ray
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Sommer Ray
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -433,15 +379,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Sza
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Sza
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -505,15 +442,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Sydney Sweeney
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Sydney Sweeney
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -577,15 +505,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Walton Goggins
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Walton Goggins
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -649,15 +568,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Tom Holland
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Tom Holland
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -721,15 +631,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Gucci Mane
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Gucci Mane
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -793,15 +694,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Harry Styles
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Harry Styles
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -865,15 +757,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Jake Paul
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Jake Paul
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -937,15 +820,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Jameela Jamil
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Jameela Jamil
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1009,15 +883,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Elon Musk
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Elon Musk
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1081,15 +946,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Gabrielle Union
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Gabrielle Union
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1153,15 +1009,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Giancarlo Esposito
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Giancarlo Esposito
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1225,15 +1072,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Gillian Jacobs
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Gillian Jacobs
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1297,15 +1135,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Jason Mantzoukas
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Jason Mantzoukas
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1369,15 +1198,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## JB Smoove
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## JB Smoove
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1441,15 +1261,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Madison Pettis
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Madison Pettis
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1513,15 +1324,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Austin Butler
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Austin Butler
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1585,15 +1387,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Mark Zuckerberg
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Mark Zuckerberg
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1657,15 +1450,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Ariana Grande
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Ariana Grande
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1729,15 +1513,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Livvy Dunne
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Livvy Dunne
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1801,15 +1576,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Ali Wong
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Ali Wong
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1873,15 +1639,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Lizzo
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Lizzo
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -1945,15 +1702,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Alison Brie
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Alison Brie
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2017,15 +1765,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Lil Wayne
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Lil Wayne
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2089,15 +1828,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Adele
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Adele
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2161,15 +1891,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Lindsay Lohan
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Lindsay Lohan
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2233,15 +1954,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Addison Rae
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Addison Rae
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2305,15 +2017,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Latto
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Latto
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2377,15 +2080,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Aaron Paul
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Aaron Paul
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2449,15 +2143,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## LeBron James
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## LeBron James
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2521,15 +2206,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## 50 Cent
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## 50 Cent
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2593,15 +2269,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Kesha
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Kesha
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2665,15 +2332,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## 21 Savage
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## 21 Savage
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2737,15 +2395,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Larry David
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Larry David
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2809,15 +2458,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Seth Rogan
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Seth Rogan
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2881,15 +2521,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Simone Biles
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Simone Biles
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -2953,15 +2584,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Pete Davidson
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Pete Davidson
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3025,15 +2647,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Prince Harry
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Prince Harry
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3097,15 +2710,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Princess of Wales
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Princess of Wales
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3169,15 +2773,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Rachel McAdams
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Rachel McAdams
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3241,15 +2836,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Reneé Rapp
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Reneé Rapp
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3313,15 +2899,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Rick Ross
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Rick Ross
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3385,15 +2962,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Sam Ashgari
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Sam Ashgari
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3457,15 +3025,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Sandra Oh
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Sandra Oh
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3529,15 +3088,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Donald Trump
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Donald Trump
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3601,15 +3151,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Diddy
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Diddy
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3673,15 +3214,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## City Girls
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## City Girls
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3745,15 +3277,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Chloe Bailey
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Chloe Bailey
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3817,15 +3340,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Charli D Amelio
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Charli D Amelio
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3889,15 +3403,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Cardi B
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Cardi B
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -3961,15 +3466,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Bryan Cranston
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Bryan Cranston
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4033,15 +3529,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Brielle Biermann
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Brielle Biermann
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4105,15 +3592,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Dua Lipa
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Dua Lipa
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4177,15 +3655,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Drake
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Drake
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4249,15 +3718,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Jenner
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Jenner
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4321,15 +3781,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## J. Cole
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## J. Cole
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4393,15 +3844,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Jerrod Carmichael
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Jerrod Carmichael
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4465,15 +3907,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Jennifer Lawrence
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Jennifer Lawrence
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4537,15 +3970,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Joe Biden
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Joe Biden
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4609,15 +4033,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## J.K. Simmons
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## J.K. Simmons
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4681,15 +4096,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Kamala Harris
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Kamala Harris
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4753,15 +4159,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## John C Reilly
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## John C Reilly
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4825,15 +4222,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Kardashian
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Kardashian
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4897,15 +4285,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Kanye
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Kanye
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -4969,15 +4348,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Zendaya
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Zendaya
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5041,15 +4411,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Will Ferrell
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Will Ferrell
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5113,15 +4474,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Zazie Beetz
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Zazie Beetz
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5185,15 +4537,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Bob Odenkirk
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Bob Odenkirk
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5257,15 +4600,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Brad Pitt
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Brad Pitt
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5329,15 +4663,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Beyoncé
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Beyoncé
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5401,15 +4726,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Bia
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Bia
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5473,15 +4789,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Avantika
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Avantika
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5545,15 +4852,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Bernie Sanders
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Bernie Sanders
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5617,15 +4915,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Big Sean
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Big Sean
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5689,15 +4978,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## BlockBoy JB
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## BlockBoy JB
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5761,15 +5041,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Biden
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Biden
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5833,15 +5104,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Bieber
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Bieber
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5905,15 +5167,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Paulina Porizkov
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Paulina Porizkov
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -5977,15 +5230,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Paris Hilton
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Paris Hilton
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -6049,15 +5293,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Metro Boomin
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Metro Boomin
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -6117,15 +5352,6 @@ Running has never been more in vogue. For many, it transcends being just a trend
 Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
 
 *Published on: Fri, 05 Jul 2024 15:22:44 GMT*
-
-
-## Meghan Markle
-
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
 ## Meghan Markle
@@ -6193,15 +5419,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Megan Thee Stallion
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Megan Thee Stallion
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -6261,15 +5478,6 @@ Running has never been more in vogue. For many, it transcends being just a trend
 Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
 
 *Published on: Fri, 05 Jul 2024 15:22:44 GMT*
-
-
-## Maya Rudolph
-
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
 ## Maya Rudolph
@@ -6337,15 +5545,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Olivia Rodrigo
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Olivia Rodrigo
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -6405,15 +5604,6 @@ Running has never been more in vogue. For many, it transcends being just a trend
 Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
 
 *Published on: Fri, 05 Jul 2024 15:22:44 GMT*
-
-
-## Obama
-
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
 ## Obama
@@ -6481,15 +5671,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 
 ## Nicki Minaj
 
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
-
-
-## Nicki Minaj
-
 ## [adidas’ Hybrid Lace-Up Slides Are Wonderfully Weird](https://www.highsnobiety.com/p/adidas-gazelle-beach-slides/)
 
 One of the many advantages of wearing slides is that you don’t have to deal with the fiddly inconvenience of tying laces. However, that is not the case with ad…
@@ -6549,15 +5730,6 @@ Running has never been more in vogue. For many, it transcends being just a trend
 Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
 
 *Published on: Fri, 05 Jul 2024 15:22:44 GMT*
-
-
-## MrBeast
-
-## [From Nike to ASICS, Browse This Week’s Best Sneaker Releases](https://www.highsnobiety.com/p/sneaker-releases-jul-week-1/)
-
-This weekly guide sorts the very best from the rest when it comes to the saturated world of sneaker releases, with information on prices and where to buy. Plea…
-
-*Published on: Thu, 04 Jul 2024 15:02:32 GMT*
 
 
 ## MrBeast
