@@ -1,101 +1,29 @@
 # Latest Stories
 ## Tim Cook
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [On’s Chunky New Super Shoe Is Here to Break Records](https://www.highsnobiety.com/p/on-cloudboom-strike/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+Having left running enthusiasts speculating for months about its next supershoe, the Cloudboom Strike, On is finally ready to unveil its latest invention.A chu…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
+*Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
 ## Tim Cook
 
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
-
-
-## Tim Cook
-
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
 ## Tim Cook
 
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Tim Cook
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
-
-
-## Tim Cook
-
-## [On’s Chunky New Super Shoe Is Here to Break Records](https://www.highsnobiety.com/p/on-cloudboom-strike/)
-
-Having left running enthusiasts speculating for months about its next supershoe, the Cloudboom Strike, On is finally ready to unveil its latest invention.A chu…
-
-*Published on: Sat, 06 Jul 2024 14:10:00 GMT*
-
-
-## Taylor Swift
-
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
-
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
-
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Taylor Swift
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
-
-
-## Taylor Swift
-
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Taylor Swift
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Taylor Swift
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Taylor Swift
@@ -107,49 +35,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Tom Brady
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Tom Brady
+## Taylor Swift
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Tom Brady
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Tom Brady
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Tom Brady
@@ -161,49 +62,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Tina Fey
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Tina Fey
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Tina Fey
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Tina Fey
@@ -215,49 +89,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Steven Yuen
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Steven Yuen
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Steven Yuen
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Steven Yuen
@@ -269,49 +116,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Sommer Ray
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sommer Ray
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Sommer Ray
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Sommer Ray
@@ -323,49 +143,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Sza
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Sza
+## Sommer Ray
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sza
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Sza
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Sza
@@ -377,49 +170,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Sydney Sweeney
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sydney Sweeney
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Sydney Sweeney
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Sydney Sweeney
@@ -431,49 +197,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Walton Goggins
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Walton Goggins
+## Sydney Sweeney
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Walton Goggins
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Walton Goggins
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Walton Goggins
@@ -485,49 +224,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Tom Holland
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Tom Holland
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Tom Holland
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Tom Holland
@@ -539,49 +251,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Gucci Mane
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Gucci Mane
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Gucci Mane
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Gucci Mane
@@ -593,49 +278,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Harry Styles
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Harry Styles
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Harry Styles
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Harry Styles
@@ -647,49 +305,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Jake Paul
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Jake Paul
+## Harry Styles
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jake Paul
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Jake Paul
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Jake Paul
@@ -701,49 +332,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Jameela Jamil
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jameela Jamil
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Jameela Jamil
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Jameela Jamil
@@ -755,49 +359,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Elon Musk
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Elon Musk
+## Jameela Jamil
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Elon Musk
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Elon Musk
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Elon Musk
@@ -809,49 +386,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Gabrielle Union
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Gabrielle Union
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Gabrielle Union
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Gabrielle Union
@@ -863,49 +413,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Giancarlo Esposito
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Giancarlo Esposito
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Giancarlo Esposito
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Giancarlo Esposito
@@ -917,49 +440,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Gillian Jacobs
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Gillian Jacobs
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Gillian Jacobs
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Gillian Jacobs
@@ -971,49 +467,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Jason Mantzoukas
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Jason Mantzoukas
+## Gillian Jacobs
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Jason Mantzoukas
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Jason Mantzoukas
@@ -1025,49 +494,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## JB Smoove
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## JB Smoove
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## JB Smoove
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## JB Smoove
@@ -1079,49 +521,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Madison Pettis
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Madison Pettis
+## JB Smoove
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Madison Pettis
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Madison Pettis
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Madison Pettis
@@ -1133,49 +548,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Austin Butler
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Austin Butler
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Austin Butler
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Austin Butler
@@ -1187,49 +575,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Mark Zuckerberg
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Mark Zuckerberg
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Mark Zuckerberg
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Mark Zuckerberg
@@ -1241,49 +602,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Ariana Grande
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Ariana Grande
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Ariana Grande
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Ariana Grande
@@ -1295,49 +629,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Livvy Dunne
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Livvy Dunne
+## Ariana Grande
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Livvy Dunne
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Livvy Dunne
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Livvy Dunne
@@ -1349,49 +656,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Ali Wong
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Ali Wong
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Ali Wong
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Ali Wong
@@ -1403,49 +683,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Lizzo
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Lizzo
+## Ali Wong
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Lizzo
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Lizzo
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Lizzo
@@ -1457,49 +710,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Alison Brie
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Alison Brie
+## Lizzo
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Alison Brie
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Alison Brie
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Alison Brie
@@ -1511,49 +737,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Lil Wayne
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Lil Wayne
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Lil Wayne
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Lil Wayne
@@ -1565,49 +764,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Adele
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Adele
+## Lil Wayne
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Adele
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Adele
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Adele
@@ -1619,49 +791,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Lindsay Lohan
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Lindsay Lohan
+## Adele
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Lindsay Lohan
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Lindsay Lohan
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Lindsay Lohan
@@ -1673,49 +818,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Addison Rae
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Addison Rae
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Addison Rae
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Addison Rae
@@ -1727,49 +845,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Latto
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Latto
+## Addison Rae
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Latto
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Latto
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Latto
@@ -1781,49 +872,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Aaron Paul
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Aaron Paul
+## Latto
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Aaron Paul
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Aaron Paul
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Aaron Paul
@@ -1835,49 +899,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## LeBron James
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## LeBron James
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## LeBron James
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## LeBron James
@@ -1889,49 +926,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## 50 Cent
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## 50 Cent
+## LeBron James
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## 50 Cent
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## 50 Cent
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## 50 Cent
@@ -1943,49 +953,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Kesha
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Kesha
+## 50 Cent
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Kesha
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Kesha
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Kesha
@@ -1997,49 +980,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## 21 Savage
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## 21 Savage
+## Kesha
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## 21 Savage
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## 21 Savage
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## 21 Savage
@@ -2051,49 +1007,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Larry David
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Larry David
+## 21 Savage
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Larry David
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Larry David
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Larry David
@@ -2105,49 +1034,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Seth Rogan
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Seth Rogan
+## Larry David
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Seth Rogan
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Seth Rogan
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Seth Rogan
@@ -2159,49 +1061,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Simone Biles
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Simone Biles
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Simone Biles
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Simone Biles
@@ -2213,49 +1088,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Pete Davidson
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Pete Davidson
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Pete Davidson
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Pete Davidson
@@ -2267,49 +1115,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Prince Harry
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Prince Harry
+## Pete Davidson
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Prince Harry
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Prince Harry
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Prince Harry
@@ -2321,49 +1142,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Princess of Wales
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Princess of Wales
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Princess of Wales
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Princess of Wales
@@ -2375,49 +1169,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Rachel McAdams
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Rachel McAdams
+## Princess of Wales
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Rachel McAdams
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Rachel McAdams
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Rachel McAdams
@@ -2429,49 +1196,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Reneé Rapp
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Reneé Rapp
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Reneé Rapp
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Reneé Rapp
@@ -2483,49 +1223,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Rick Ross
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Rick Ross
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Rick Ross
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Rick Ross
@@ -2537,49 +1250,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Sam Ashgari
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sam Ashgari
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Sam Ashgari
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Sam Ashgari
@@ -2591,49 +1277,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Sandra Oh
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Sandra Oh
+## Sam Ashgari
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sandra Oh
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Sandra Oh
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Sandra Oh
@@ -2645,49 +1304,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Donald Trump
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Donald Trump
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Donald Trump
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Donald Trump
@@ -2699,49 +1331,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Diddy
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Diddy
+## Donald Trump
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Diddy
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Diddy
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Diddy
@@ -2753,49 +1358,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## City Girls
+## Diddy
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## City Girls
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## City Girls
+## Diddy
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## City Girls
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## City Girls
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## City Girls
@@ -2807,49 +1385,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Chloe Bailey
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Chloe Bailey
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Chloe Bailey
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Chloe Bailey
@@ -2861,49 +1412,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Charli D Amelio
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Charli D Amelio
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Charli D Amelio
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Charli D Amelio
@@ -2915,49 +1439,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Cardi B
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Cardi B
+## Charli D Amelio
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Cardi B
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Cardi B
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Cardi B
@@ -2969,49 +1466,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Bryan Cranston
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bryan Cranston
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Bryan Cranston
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Bryan Cranston
@@ -3023,49 +1493,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Brielle Biermann
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Brielle Biermann
+## Bryan Cranston
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Brielle Biermann
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Brielle Biermann
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Brielle Biermann
@@ -3077,49 +1520,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Dua Lipa
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Dua Lipa
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Dua Lipa
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Dua Lipa
@@ -3131,49 +1547,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Drake
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Drake
+## Dua Lipa
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Drake
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Drake
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Drake
@@ -3185,49 +1574,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Jenner
+## Drake
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Jenner
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Jenner
+## Drake
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jenner
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Jenner
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Jenner
@@ -3239,49 +1601,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## J. Cole
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## J. Cole
+## Jenner
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## J. Cole
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## J. Cole
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## J. Cole
@@ -3293,49 +1628,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Jerrod Carmichael
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Jerrod Carmichael
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Jerrod Carmichael
@@ -3347,49 +1655,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Jennifer Lawrence
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Jennifer Lawrence
+## Jerrod Carmichael
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Jennifer Lawrence
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Jennifer Lawrence
@@ -3401,49 +1682,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Joe Biden
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Joe Biden
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Joe Biden
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Joe Biden
@@ -3455,49 +1709,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## J.K. Simmons
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## J.K. Simmons
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## J.K. Simmons
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## J.K. Simmons
@@ -3509,49 +1736,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Kamala Harris
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Kamala Harris
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Kamala Harris
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Kamala Harris
@@ -3563,49 +1763,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## John C Reilly
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## John C Reilly
+## Kamala Harris
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## John C Reilly
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## John C Reilly
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## John C Reilly
@@ -3617,49 +1790,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Kardashian
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Kardashian
+## John C Reilly
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Kardashian
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Kardashian
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Kardashian
@@ -3671,49 +1817,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Kanye
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Kanye
+## Kardashian
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Kanye
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Kanye
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Kanye
@@ -3725,49 +1844,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Zendaya
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Zendaya
+## Kanye
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Zendaya
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Zendaya
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Zendaya
@@ -3779,49 +1871,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Will Ferrell
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Will Ferrell
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Will Ferrell
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Will Ferrell
@@ -3833,49 +1898,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Zazie Beetz
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Zazie Beetz
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Zazie Beetz
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Zazie Beetz
@@ -3887,49 +1925,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Bob Odenkirk
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Bob Odenkirk
+## Zazie Beetz
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bob Odenkirk
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Bob Odenkirk
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Bob Odenkirk
@@ -3941,49 +1952,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Brad Pitt
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Brad Pitt
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Brad Pitt
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Brad Pitt
@@ -3995,49 +1979,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Beyoncé
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Beyoncé
+## Brad Pitt
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Beyoncé
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Beyoncé
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Beyoncé
@@ -4049,49 +2006,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Bia
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Bia
+## Beyoncé
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bia
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Bia
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Bia
@@ -4103,49 +2033,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Avantika
+## Bia
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Avantika
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Avantika
+## Bia
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Avantika
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Avantika
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Avantika
@@ -4157,49 +2060,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Bernie Sanders
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bernie Sanders
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Bernie Sanders
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Bernie Sanders
@@ -4211,49 +2087,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Big Sean
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Big Sean
+## Bernie Sanders
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Big Sean
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Big Sean
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Big Sean
@@ -4265,49 +2114,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## BlockBoy JB
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## BlockBoy JB
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## BlockBoy JB
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## BlockBoy JB
@@ -4319,49 +2141,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Biden
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Biden
+## BlockBoy JB
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Biden
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Biden
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Biden
@@ -4373,49 +2168,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Bieber
+## Biden
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Bieber
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Bieber
+## Biden
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bieber
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Bieber
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Bieber
@@ -4427,49 +2195,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Paulina Porizkov
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Paulina Porizkov
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Paulina Porizkov
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Paulina Porizkov
@@ -4481,49 +2222,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Paris Hilton
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Paris Hilton
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Paris Hilton
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Paris Hilton
@@ -4535,49 +2249,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Metro Boomin
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Metro Boomin
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Metro Boomin
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Metro Boomin
@@ -4589,49 +2276,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Meghan Markle
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Meghan Markle
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Meghan Markle
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Meghan Markle
@@ -4643,49 +2303,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Megan Thee Stallion
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Megan Thee Stallion
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Megan Thee Stallion
@@ -4697,49 +2330,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Maya Rudolph
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Maya Rudolph
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Maya Rudolph
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Maya Rudolph
@@ -4751,49 +2357,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Olivia Rodrigo
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Olivia Rodrigo
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Olivia Rodrigo
@@ -4805,49 +2384,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Obama
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Obama
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Obama
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Obama
@@ -4859,49 +2411,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## Nicki Minaj
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## Nicki Minaj
+## Obama
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Nicki Minaj
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## Nicki Minaj
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## Nicki Minaj
@@ -4913,49 +2438,22 @@ Having left running enthusiasts speculating for months about its next supershoe,
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [adidas' Most Famous Tennis Shoe Is Back in the Best Way ](https://www.highsnobiety.com/p/adidas-stan-smith-sneakers-2024/)
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
 
-All of a sudden, it feels like 2015 again, and the adidas Stan Smith sneakers are thriving. However, it's 2024 now, and the timeless adidas shoe is back and be…
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
-*Published on: Fri, 05 Jul 2024 11:00:34 GMT*
-
-
-## MrBeast
-
-## [Vans' Mary Jane Sneakers Are Quietly Luxe Skate Shoes](https://www.highsnobiety.com/p/vans-mary-jane-skate-shoe-premium/)
-
-When you think Vans skate shoe, you may think classic lace-up Era or mid-top Sk8-Hi. You probably don't think about dainty Mary Jane boarding some grip tape fo…
-
-*Published on: Fri, 05 Jul 2024 11:09:11 GMT*
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
 
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## MrBeast
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Fri, 05 Jul 2024 15:11:14 GMT*
-
-
-## MrBeast
-
-## [Martine Rose Is the Real Winner of Drake and Kendrick Lamar's Beef](https://www.highsnobiety.com/p/not-like-us-music-video-kendrick-lamar-drake-martine-rose/)
-
-Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us', demonstrates what it looks like when high fashion hits below the belt. It see…
-
-*Published on: Fri, 05 Jul 2024 15:22:44 GMT*
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## MrBeast
@@ -4965,5 +2463,23 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 Having left running enthusiasts speculating for months about its next supershoe, the Cloudboom Strike, On is finally ready to unveil its latest invention.A chu…
 
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
+
+
+## MrBeast
+
+## [Joe Freshgoods Took New Balance's Super Chunky Dad Shoes to the Tone Zone](https://www.highsnobiety.com/p/joe-freshgoods-new-balance-sneakers-2024/)
+
+It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
+
+*Published on: Sat, 06 Jul 2024 15:23:35 GMT*
+
+
+## MrBeast
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
+
+*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
