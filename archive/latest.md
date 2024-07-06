@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Tim Cook
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -37,15 +28,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Taylor Swift
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Taylor Swift
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -73,15 +55,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Tom Brady
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Tom Brady
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -109,15 +82,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Tina Fey
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Tina Fey
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -145,15 +109,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Steven Yuen
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Steven Yuen
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -181,15 +136,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Sommer Ray
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sommer Ray
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -217,15 +163,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Sza
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sza
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -253,15 +190,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Sydney Sweeney
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sydney Sweeney
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -289,15 +217,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Walton Goggins
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Walton Goggins
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -325,15 +244,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Tom Holland
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Tom Holland
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -361,15 +271,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Gucci Mane
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Gucci Mane
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -397,15 +298,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Harry Styles
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Harry Styles
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -433,15 +325,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Jake Paul
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jake Paul
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -469,15 +352,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Jameela Jamil
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jameela Jamil
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -505,15 +379,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Elon Musk
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Elon Musk
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -541,15 +406,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Gabrielle Union
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Gabrielle Union
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -577,15 +433,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Giancarlo Esposito
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Giancarlo Esposito
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -613,15 +460,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Gillian Jacobs
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Gillian Jacobs
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -649,15 +487,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Jason Mantzoukas
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jason Mantzoukas
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -685,15 +514,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## JB Smoove
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## JB Smoove
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -721,15 +541,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Madison Pettis
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Madison Pettis
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -757,15 +568,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Austin Butler
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Austin Butler
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -793,15 +595,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Mark Zuckerberg
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Mark Zuckerberg
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -829,15 +622,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Ariana Grande
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Ariana Grande
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -865,15 +649,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Livvy Dunne
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Livvy Dunne
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -901,15 +676,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Ali Wong
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Ali Wong
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -937,15 +703,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Lizzo
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Lizzo
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -973,15 +730,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Alison Brie
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Alison Brie
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1009,15 +757,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Lil Wayne
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Lil Wayne
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1045,15 +784,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Adele
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Adele
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1081,15 +811,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Lindsay Lohan
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Lindsay Lohan
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1117,15 +838,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Addison Rae
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Addison Rae
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1153,15 +865,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Latto
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Latto
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1189,15 +892,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Aaron Paul
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Aaron Paul
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1225,15 +919,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## LeBron James
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## LeBron James
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1261,15 +946,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## 50 Cent
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## 50 Cent
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1297,15 +973,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Kesha
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Kesha
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1333,15 +1000,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## 21 Savage
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## 21 Savage
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1369,15 +1027,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Larry David
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Larry David
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1405,15 +1054,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Seth Rogan
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Seth Rogan
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1441,15 +1081,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Simone Biles
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Simone Biles
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1477,15 +1108,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Pete Davidson
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Pete Davidson
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1513,15 +1135,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Prince Harry
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Prince Harry
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1549,15 +1162,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Princess of Wales
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Princess of Wales
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1585,15 +1189,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Rachel McAdams
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Rachel McAdams
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1621,15 +1216,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Reneé Rapp
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Reneé Rapp
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1657,15 +1243,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Rick Ross
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Rick Ross
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1693,15 +1270,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Sam Ashgari
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sam Ashgari
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1729,15 +1297,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Sandra Oh
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Sandra Oh
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1765,15 +1324,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Donald Trump
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Donald Trump
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1801,15 +1351,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Diddy
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Diddy
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1837,15 +1378,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## City Girls
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## City Girls
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1873,15 +1405,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Chloe Bailey
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Chloe Bailey
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1909,15 +1432,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Charli D Amelio
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Charli D Amelio
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1945,15 +1459,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Cardi B
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Cardi B
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -1981,15 +1486,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Bryan Cranston
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bryan Cranston
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2017,15 +1513,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Brielle Biermann
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Brielle Biermann
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2053,15 +1540,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Dua Lipa
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Dua Lipa
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2089,15 +1567,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Drake
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Drake
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2125,15 +1594,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Jenner
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jenner
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2161,15 +1621,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## J. Cole
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## J. Cole
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2197,15 +1648,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Jerrod Carmichael
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jerrod Carmichael
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2233,15 +1675,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Jennifer Lawrence
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Jennifer Lawrence
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2269,15 +1702,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Joe Biden
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Joe Biden
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2305,15 +1729,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## J.K. Simmons
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## J.K. Simmons
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2341,15 +1756,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Kamala Harris
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Kamala Harris
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2377,15 +1783,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## John C Reilly
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## John C Reilly
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2413,15 +1810,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Kardashian
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Kardashian
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2449,15 +1837,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Kanye
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Kanye
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2485,15 +1864,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Zendaya
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Zendaya
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2521,15 +1891,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Will Ferrell
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Will Ferrell
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2557,15 +1918,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Zazie Beetz
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Zazie Beetz
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2593,15 +1945,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Bob Odenkirk
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bob Odenkirk
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2629,15 +1972,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Brad Pitt
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Brad Pitt
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2665,15 +1999,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Beyoncé
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Beyoncé
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2701,15 +2026,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Bia
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bia
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2737,15 +2053,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Avantika
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Avantika
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2773,15 +2080,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Bernie Sanders
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bernie Sanders
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2809,15 +2107,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Big Sean
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Big Sean
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2845,15 +2134,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## BlockBoy JB
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## BlockBoy JB
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2881,15 +2161,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Biden
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Biden
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2917,15 +2188,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Bieber
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Bieber
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2953,15 +2215,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Paulina Porizkov
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Paulina Porizkov
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -2989,15 +2242,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Paris Hilton
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Paris Hilton
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -3025,15 +2269,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Metro Boomin
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Metro Boomin
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -3061,15 +2296,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Meghan Markle
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Meghan Markle
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -3097,15 +2323,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Megan Thee Stallion
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Megan Thee Stallion
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -3133,15 +2350,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Maya Rudolph
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Maya Rudolph
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -3169,15 +2377,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Olivia Rodrigo
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Olivia Rodrigo
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -3201,15 +2400,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 Having left running enthusiasts speculating for months about its next supershoe, the Cloudboom Strike, On is finally ready to unveil its latest invention.A chu…
 
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
-
-
-## Obama
-
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
 
 
 ## Obama
@@ -3241,15 +2431,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 
 ## Nicki Minaj
 
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
-
-
-## Nicki Minaj
-
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
@@ -3273,15 +2454,6 @@ Kendrick Lamar's music video for the highly polarizing Drake diss, 'Not Like Us'
 Having left running enthusiasts speculating for months about its next supershoe, the Cloudboom Strike, On is finally ready to unveil its latest invention.A chu…
 
 *Published on: Sat, 06 Jul 2024 14:10:00 GMT*
-
-
-## MrBeast
-
-## [Check Out Burberry's New Kicks – Pun Intended](https://www.highsnobiety.com/p/burberry-terrace-sneaker/)
-
-A while back, we broke the news on the 2024 launch of the Classics collection – a special range of Burberry sneakers, apparel, and accessories, dedicated to Da…
-
-*Published on: Fri, 05 Jul 2024 13:00:00 GMT*
 
 
 ## MrBeast
