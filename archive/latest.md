@@ -1,6 +1,15 @@
 # Latest Stories
 ## Tim Cook
 
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
+
+
+## Tim Cook
+
 ## [On’s Chunky New Super Shoe Is Here to Break Records](https://www.highsnobiety.com/p/on-cloudboom-strike/)
 
 Having left running enthusiasts speculating for months about its next supershoe, the Cloudboom Strike, On is finally ready to unveil its latest invention.A chu…
@@ -19,20 +28,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Tim Cook
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Tim Cook
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Taylor Swift
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Taylor Swift
@@ -55,20 +64,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Taylor Swift
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Taylor Swift
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Tom Brady
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Tom Brady
@@ -91,20 +100,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Tom Brady
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Tom Brady
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Tina Fey
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Tina Fey
@@ -127,20 +136,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Tina Fey
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Tina Fey
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Steven Yuen
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Steven Yuen
@@ -163,20 +172,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Steven Yuen
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Steven Yuen
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Sommer Ray
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Sommer Ray
@@ -199,20 +208,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Sommer Ray
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Sommer Ray
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Sza
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Sza
@@ -235,20 +244,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Sza
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Sza
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Sydney Sweeney
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Sydney Sweeney
@@ -271,20 +280,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Sydney Sweeney
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Sydney Sweeney
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Walton Goggins
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Walton Goggins
@@ -307,20 +316,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Walton Goggins
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Walton Goggins
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Tom Holland
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Tom Holland
@@ -343,20 +352,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Tom Holland
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Tom Holland
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Gucci Mane
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Gucci Mane
@@ -379,20 +388,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Gucci Mane
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Gucci Mane
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Harry Styles
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Harry Styles
@@ -415,20 +424,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Harry Styles
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Harry Styles
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Jake Paul
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Jake Paul
@@ -451,20 +460,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Jake Paul
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Jake Paul
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Jameela Jamil
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Jameela Jamil
@@ -487,20 +496,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Jameela Jamil
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Jameela Jamil
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Elon Musk
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Elon Musk
@@ -523,20 +532,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Elon Musk
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Elon Musk
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Gabrielle Union
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Gabrielle Union
@@ -559,20 +568,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Gabrielle Union
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Gabrielle Union
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Giancarlo Esposito
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -595,20 +604,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Giancarlo Esposito
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Gillian Jacobs
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Gillian Jacobs
@@ -631,20 +640,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Gillian Jacobs
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Gillian Jacobs
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Jason Mantzoukas
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -667,20 +676,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Jason Mantzoukas
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## JB Smoove
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## JB Smoove
@@ -703,20 +712,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## JB Smoove
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## JB Smoove
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Madison Pettis
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Madison Pettis
@@ -739,20 +748,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Madison Pettis
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Madison Pettis
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Austin Butler
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Austin Butler
@@ -775,20 +784,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Austin Butler
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Austin Butler
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Mark Zuckerberg
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -811,20 +820,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Mark Zuckerberg
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Ariana Grande
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Ariana Grande
@@ -847,20 +856,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Ariana Grande
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Ariana Grande
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Livvy Dunne
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Livvy Dunne
@@ -883,20 +892,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Livvy Dunne
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Livvy Dunne
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Ali Wong
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Ali Wong
@@ -919,20 +928,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Ali Wong
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Ali Wong
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Lizzo
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Lizzo
@@ -955,20 +964,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Lizzo
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Lizzo
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Alison Brie
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Alison Brie
@@ -991,20 +1000,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Alison Brie
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Alison Brie
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Lil Wayne
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Lil Wayne
@@ -1027,20 +1036,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Lil Wayne
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Lil Wayne
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Adele
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Adele
@@ -1063,20 +1072,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Adele
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Adele
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Lindsay Lohan
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Lindsay Lohan
@@ -1099,20 +1108,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Lindsay Lohan
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Lindsay Lohan
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Addison Rae
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Addison Rae
@@ -1135,20 +1144,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Addison Rae
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Addison Rae
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Latto
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Latto
@@ -1171,20 +1180,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Latto
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Latto
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Aaron Paul
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Aaron Paul
@@ -1207,20 +1216,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Aaron Paul
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Aaron Paul
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## LeBron James
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## LeBron James
@@ -1243,20 +1252,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## LeBron James
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## LeBron James
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## 50 Cent
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## 50 Cent
@@ -1279,20 +1288,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## 50 Cent
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## 50 Cent
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Kesha
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Kesha
@@ -1315,20 +1324,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Kesha
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Kesha
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## 21 Savage
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## 21 Savage
@@ -1351,20 +1360,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## 21 Savage
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## 21 Savage
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Larry David
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Larry David
@@ -1387,20 +1396,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Larry David
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Larry David
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Seth Rogan
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Seth Rogan
@@ -1423,20 +1432,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Seth Rogan
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Seth Rogan
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Simone Biles
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Simone Biles
@@ -1459,20 +1468,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Simone Biles
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Simone Biles
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Pete Davidson
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Pete Davidson
@@ -1495,20 +1504,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Pete Davidson
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Pete Davidson
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Prince Harry
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Prince Harry
@@ -1531,20 +1540,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Prince Harry
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Prince Harry
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Princess of Wales
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Princess of Wales
@@ -1567,20 +1576,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Princess of Wales
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Princess of Wales
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Rachel McAdams
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Rachel McAdams
@@ -1603,20 +1612,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Rachel McAdams
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Rachel McAdams
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Reneé Rapp
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Reneé Rapp
@@ -1639,20 +1648,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Reneé Rapp
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Reneé Rapp
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Rick Ross
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Rick Ross
@@ -1675,20 +1684,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Rick Ross
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Rick Ross
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Sam Ashgari
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Sam Ashgari
@@ -1711,20 +1720,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Sam Ashgari
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Sam Ashgari
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Sandra Oh
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Sandra Oh
@@ -1747,20 +1756,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Sandra Oh
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Sandra Oh
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Donald Trump
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Donald Trump
@@ -1783,20 +1792,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Donald Trump
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Donald Trump
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Diddy
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Diddy
@@ -1819,20 +1828,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Diddy
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Diddy
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## City Girls
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## City Girls
@@ -1855,20 +1864,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## City Girls
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## City Girls
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Chloe Bailey
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Chloe Bailey
@@ -1891,20 +1900,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Chloe Bailey
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Chloe Bailey
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Charli D Amelio
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Charli D Amelio
@@ -1927,20 +1936,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Charli D Amelio
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Charli D Amelio
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Cardi B
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Cardi B
@@ -1963,20 +1972,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Cardi B
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Cardi B
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Bryan Cranston
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Bryan Cranston
@@ -1999,20 +2008,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Bryan Cranston
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Bryan Cranston
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Brielle Biermann
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Brielle Biermann
@@ -2035,20 +2044,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Brielle Biermann
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Brielle Biermann
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Dua Lipa
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Dua Lipa
@@ -2071,20 +2080,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Dua Lipa
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Dua Lipa
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Drake
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Drake
@@ -2107,20 +2116,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Drake
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Drake
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Jenner
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Jenner
@@ -2143,20 +2152,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Jenner
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Jenner
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## J. Cole
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## J. Cole
@@ -2179,20 +2188,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## J. Cole
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## J. Cole
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Jerrod Carmichael
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -2215,20 +2224,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Jerrod Carmichael
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Jennifer Lawrence
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -2251,20 +2260,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Jennifer Lawrence
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Joe Biden
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Joe Biden
@@ -2287,20 +2296,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Joe Biden
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Joe Biden
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## J.K. Simmons
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## J.K. Simmons
@@ -2323,20 +2332,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## J.K. Simmons
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## J.K. Simmons
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Kamala Harris
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Kamala Harris
@@ -2359,20 +2368,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Kamala Harris
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Kamala Harris
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## John C Reilly
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## John C Reilly
@@ -2395,20 +2404,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## John C Reilly
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## John C Reilly
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Kardashian
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Kardashian
@@ -2431,20 +2440,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Kardashian
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Kardashian
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Kanye
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Kanye
@@ -2467,20 +2476,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Kanye
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Kanye
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Zendaya
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Zendaya
@@ -2503,20 +2512,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Zendaya
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Zendaya
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Will Ferrell
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Will Ferrell
@@ -2539,20 +2548,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Will Ferrell
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Will Ferrell
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Zazie Beetz
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Zazie Beetz
@@ -2575,20 +2584,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Zazie Beetz
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Zazie Beetz
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Bob Odenkirk
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Bob Odenkirk
@@ -2611,20 +2620,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Bob Odenkirk
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Bob Odenkirk
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Brad Pitt
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Brad Pitt
@@ -2647,20 +2656,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Brad Pitt
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Brad Pitt
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Beyoncé
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Beyoncé
@@ -2683,20 +2692,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Beyoncé
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Beyoncé
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Bia
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Bia
@@ -2719,20 +2728,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Bia
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Bia
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Avantika
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Avantika
@@ -2755,20 +2764,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Avantika
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Avantika
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Bernie Sanders
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Bernie Sanders
@@ -2791,20 +2800,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Bernie Sanders
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Bernie Sanders
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Big Sean
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Big Sean
@@ -2827,20 +2836,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Big Sean
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Big Sean
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## BlockBoy JB
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## BlockBoy JB
@@ -2863,20 +2872,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## BlockBoy JB
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## BlockBoy JB
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Biden
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Biden
@@ -2899,20 +2908,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Biden
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Biden
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Bieber
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Bieber
@@ -2935,20 +2944,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Bieber
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Bieber
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Paulina Porizkov
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Paulina Porizkov
@@ -2971,20 +2980,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Paulina Porizkov
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Paulina Porizkov
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Paris Hilton
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Paris Hilton
@@ -3007,20 +3016,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Paris Hilton
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Paris Hilton
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Metro Boomin
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Metro Boomin
@@ -3043,20 +3052,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Metro Boomin
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Metro Boomin
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Meghan Markle
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Meghan Markle
@@ -3079,20 +3088,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Meghan Markle
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Meghan Markle
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Megan Thee Stallion
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -3115,20 +3124,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Megan Thee Stallion
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Maya Rudolph
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Maya Rudolph
@@ -3151,20 +3160,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Maya Rudolph
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Maya Rudolph
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Olivia Rodrigo
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -3187,20 +3196,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Olivia Rodrigo
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Obama
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Obama
@@ -3223,20 +3232,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Obama
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Obama
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## Nicki Minaj
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## Nicki Minaj
@@ -3259,20 +3268,20 @@ It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad 
 
 ## Nicki Minaj
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
-
-
-## Nicki Minaj
-
 ## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
 The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
 *Published on: Sat, 06 Jul 2024 19:52:48 GMT*
+
+
+## MrBeast
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Sat, 06 Jul 2024 13:49:00 GMT*
 
 
 ## MrBeast
@@ -3291,15 +3300,6 @@ Having left running enthusiasts speculating for months about its next supershoe,
 It's a Joe Freshgoods x New Balance summer, folks. Following leaks of a red dad sneaker , the Chicago designer quietly confirmed rumors to be true — while also…
 
 *Published on: Sat, 06 Jul 2024 15:23:35 GMT*
-
-
-## MrBeast
-
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
-
-Nike is really on it with its skate shoes right now, from reborn models that look like nice skate sneakers to stunning skate-intentional styles. The latest fal…
-
-*Published on: Sat, 06 Jul 2024 16:22:53 GMT*
 
 
 ## MrBeast
