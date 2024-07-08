@@ -125,15 +125,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Tim Cook
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Taylor Swift
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -258,15 +249,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Taylor Swift
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Tom Brady
@@ -395,15 +377,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Tom Brady
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Tina Fey
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -528,15 +501,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Tina Fey
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Steven Yuen
@@ -665,15 +629,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Steven Yuen
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Sommer Ray
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -798,15 +753,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Sommer Ray
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Sza
@@ -935,15 +881,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Sza
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Sydney Sweeney
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -1068,15 +1005,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Sydney Sweeney
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Walton Goggins
@@ -1205,15 +1133,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Walton Goggins
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Tom Holland
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -1338,15 +1257,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Tom Holland
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Gucci Mane
@@ -1475,15 +1385,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Gucci Mane
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Harry Styles
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -1608,15 +1509,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Harry Styles
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Jake Paul
@@ -1745,15 +1637,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Jake Paul
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Jameela Jamil
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -1878,15 +1761,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Jameela Jamil
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Elon Musk
@@ -2015,15 +1889,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Elon Musk
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Gabrielle Union
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -2148,15 +2013,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Gabrielle Union
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Giancarlo Esposito
@@ -2285,15 +2141,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Giancarlo Esposito
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Gillian Jacobs
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -2418,15 +2265,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Gillian Jacobs
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Jason Mantzoukas
@@ -2555,15 +2393,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Jason Mantzoukas
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## JB Smoove
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -2688,15 +2517,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## JB Smoove
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Madison Pettis
@@ -2825,15 +2645,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Madison Pettis
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Austin Butler
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -2958,15 +2769,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Austin Butler
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Mark Zuckerberg
@@ -3095,15 +2897,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Mark Zuckerberg
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Ariana Grande
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -3228,15 +3021,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Ariana Grande
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Livvy Dunne
@@ -3365,15 +3149,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Livvy Dunne
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Ali Wong
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -3498,15 +3273,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Ali Wong
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Lizzo
@@ -3635,15 +3401,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Lizzo
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Alison Brie
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -3768,15 +3525,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Alison Brie
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Lil Wayne
@@ -3905,15 +3653,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Lil Wayne
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Adele
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -4038,15 +3777,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Adele
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Lindsay Lohan
@@ -4175,15 +3905,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Lindsay Lohan
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Addison Rae
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -4308,15 +4029,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Addison Rae
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Latto
@@ -4445,15 +4157,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Latto
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Aaron Paul
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -4578,15 +4281,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Aaron Paul
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## LeBron James
@@ -4715,15 +4409,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## LeBron James
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## 50 Cent
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -4848,15 +4533,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## 50 Cent
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Kesha
@@ -4985,15 +4661,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Kesha
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## 21 Savage
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -5118,15 +4785,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## 21 Savage
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Larry David
@@ -5255,15 +4913,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Larry David
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Seth Rogan
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -5388,15 +5037,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Seth Rogan
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Simone Biles
@@ -5525,15 +5165,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Simone Biles
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Pete Davidson
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -5658,15 +5289,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Pete Davidson
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Prince Harry
@@ -5795,15 +5417,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Prince Harry
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Princess of Wales
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -5928,15 +5541,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Princess of Wales
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Rachel McAdams
@@ -6065,15 +5669,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Rachel McAdams
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Reneé Rapp
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -6198,15 +5793,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Reneé Rapp
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Rick Ross
@@ -6335,15 +5921,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Rick Ross
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Sam Ashgari
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -6468,15 +6045,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Sam Ashgari
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Sandra Oh
@@ -6605,15 +6173,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Sandra Oh
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Donald Trump
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -6738,15 +6297,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Donald Trump
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Diddy
@@ -6875,15 +6425,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Diddy
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## City Girls
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -7008,15 +6549,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## City Girls
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Chloe Bailey
@@ -7145,15 +6677,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Chloe Bailey
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Charli D Amelio
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -7278,15 +6801,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Charli D Amelio
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Cardi B
@@ -7415,15 +6929,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Cardi B
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Bryan Cranston
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -7548,15 +7053,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Bryan Cranston
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Brielle Biermann
@@ -7685,15 +7181,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Brielle Biermann
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Dua Lipa
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -7818,15 +7305,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Dua Lipa
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Drake
@@ -7955,15 +7433,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Drake
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Jenner
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -8088,15 +7557,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Jenner
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## J. Cole
@@ -8225,15 +7685,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## J. Cole
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Jerrod Carmichael
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -8358,15 +7809,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Jerrod Carmichael
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Jennifer Lawrence
@@ -8495,15 +7937,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Jennifer Lawrence
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Joe Biden
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -8628,15 +8061,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Joe Biden
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## J.K. Simmons
@@ -8765,15 +8189,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## J.K. Simmons
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Kamala Harris
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -8898,15 +8313,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Kamala Harris
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## John C Reilly
@@ -9035,15 +8441,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## John C Reilly
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Kardashian
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -9168,15 +8565,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Kardashian
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Kanye
@@ -9305,15 +8693,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Kanye
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Zendaya
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -9438,15 +8817,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Zendaya
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Will Ferrell
@@ -9575,15 +8945,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Will Ferrell
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Zazie Beetz
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -9708,15 +9069,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Zazie Beetz
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Bob Odenkirk
@@ -9845,15 +9197,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Bob Odenkirk
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Brad Pitt
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -9978,15 +9321,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Brad Pitt
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Beyoncé
@@ -10115,15 +9449,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Beyoncé
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Bia
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -10248,15 +9573,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Bia
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Avantika
@@ -10385,15 +9701,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Avantika
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Bernie Sanders
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -10518,15 +9825,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Bernie Sanders
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Big Sean
@@ -10655,15 +9953,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Big Sean
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## BlockBoy JB
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -10788,15 +10077,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## BlockBoy JB
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Biden
@@ -10925,15 +10205,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Biden
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Bieber
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -11058,15 +10329,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Bieber
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Paulina Porizkov
@@ -11195,15 +10457,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Paulina Porizkov
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Paris Hilton
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -11328,15 +10581,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Paris Hilton
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Metro Boomin
@@ -11465,15 +10709,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Metro Boomin
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Meghan Markle
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -11598,15 +10833,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Meghan Markle
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Megan Thee Stallion
@@ -11735,15 +10961,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Megan Thee Stallion
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Maya Rudolph
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -11868,15 +11085,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Maya Rudolph
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Olivia Rodrigo
@@ -12005,15 +11213,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Olivia Rodrigo
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## Obama
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -12138,15 +11337,6 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Obama
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
 ## Nicki Minaj
@@ -12275,15 +11465,6 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Nicki Minaj
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
-
-
 ## MrBeast
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
@@ -12408,14 +11589,5 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## MrBeast
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
 
 
