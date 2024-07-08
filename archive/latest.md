@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Tim Cook
-
 ## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
 
 Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
@@ -24,15 +15,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Tim Cook
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Tim Cook
@@ -62,13 +44,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Tim Cook
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Tim Cook
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Tim Cook
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Taylor Swift
@@ -91,15 +100,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Taylor Swift
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Taylor Swift
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -117,6 +117,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Taylor Swift
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Taylor Swift
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Taylor Swift
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Taylor Swift
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Taylor Swift
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Tom Brady
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Tom Brady
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Tom Brady
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Tom Brady
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Tom Brady
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -131,25 +212,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Tom Brady
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Tom Brady
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Tom Brady
@@ -158,43 +221,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Tom Brady
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Tom Brady
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Tom Brady
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Tina Fey
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Tina Fey
@@ -213,15 +258,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Tina Fey
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Tina Fey
@@ -251,13 +287,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Steven Yuen
+## Tina Fey
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Tina Fey
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Tina Fey
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Tina Fey
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Steven Yuen
@@ -280,15 +343,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Steven Yuen
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Steven Yuen
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -306,6 +360,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Steven Yuen
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Steven Yuen
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Steven Yuen
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Steven Yuen
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Steven Yuen
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Sommer Ray
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Sommer Ray
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Sommer Ray
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Sommer Ray
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Sommer Ray
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -320,25 +455,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Sommer Ray
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Sommer Ray
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Sommer Ray
@@ -347,43 +464,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Sommer Ray
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Sommer Ray
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Sommer Ray
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Sza
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Sza
@@ -402,15 +501,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Sza
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Sza
@@ -440,13 +530,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Sza
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Sza
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Sza
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Sydney Sweeney
@@ -469,15 +586,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Sydney Sweeney
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Sydney Sweeney
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -495,6 +603,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Sydney Sweeney
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Sydney Sweeney
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Sydney Sweeney
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Sydney Sweeney
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Walton Goggins
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Walton Goggins
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Walton Goggins
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Walton Goggins
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Walton Goggins
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -509,25 +698,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Walton Goggins
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Walton Goggins
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Walton Goggins
@@ -536,43 +707,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Walton Goggins
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Walton Goggins
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Walton Goggins
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Tom Holland
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Tom Holland
@@ -591,15 +744,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Tom Holland
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Tom Holland
@@ -629,13 +773,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Gucci Mane
+## Tom Holland
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Tom Holland
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Tom Holland
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Tom Holland
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Gucci Mane
@@ -658,15 +829,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Gucci Mane
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Gucci Mane
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -684,6 +846,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Gucci Mane
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Gucci Mane
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Gucci Mane
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Gucci Mane
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Gucci Mane
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Harry Styles
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Harry Styles
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Harry Styles
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Harry Styles
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Harry Styles
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -698,25 +941,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Harry Styles
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Harry Styles
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Harry Styles
@@ -725,43 +950,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Harry Styles
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Harry Styles
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Harry Styles
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Jake Paul
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Jake Paul
@@ -780,15 +987,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Jake Paul
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Jake Paul
@@ -818,13 +1016,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Jake Paul
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Jake Paul
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Jake Paul
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Jameela Jamil
@@ -847,15 +1072,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Jameela Jamil
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Jameela Jamil
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -873,6 +1089,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Jameela Jamil
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Jameela Jamil
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Jameela Jamil
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Jameela Jamil
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Jameela Jamil
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Elon Musk
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Elon Musk
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Elon Musk
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Elon Musk
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Elon Musk
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -887,25 +1184,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Elon Musk
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Elon Musk
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Elon Musk
@@ -914,43 +1193,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Elon Musk
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Elon Musk
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Elon Musk
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Gabrielle Union
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Gabrielle Union
@@ -969,15 +1230,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Gabrielle Union
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Gabrielle Union
@@ -1007,13 +1259,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Giancarlo Esposito
+## Gabrielle Union
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Gabrielle Union
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Gabrielle Union
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Gabrielle Union
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Giancarlo Esposito
@@ -1036,15 +1315,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Giancarlo Esposito
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -1062,6 +1332,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Giancarlo Esposito
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Giancarlo Esposito
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Giancarlo Esposito
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Gillian Jacobs
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Gillian Jacobs
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Gillian Jacobs
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Gillian Jacobs
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Gillian Jacobs
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -1076,25 +1427,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Gillian Jacobs
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Gillian Jacobs
@@ -1103,43 +1436,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Gillian Jacobs
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Gillian Jacobs
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Gillian Jacobs
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Jason Mantzoukas
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Jason Mantzoukas
@@ -1158,15 +1473,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Jason Mantzoukas
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Jason Mantzoukas
@@ -1196,13 +1502,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Jason Mantzoukas
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## JB Smoove
@@ -1225,15 +1558,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## JB Smoove
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## JB Smoove
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -1251,6 +1575,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## JB Smoove
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## JB Smoove
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## JB Smoove
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## JB Smoove
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## JB Smoove
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Madison Pettis
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Madison Pettis
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Madison Pettis
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Madison Pettis
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Madison Pettis
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -1265,25 +1670,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Madison Pettis
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Madison Pettis
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Madison Pettis
@@ -1292,43 +1679,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Madison Pettis
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Madison Pettis
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Madison Pettis
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Austin Butler
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Austin Butler
@@ -1347,15 +1716,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Austin Butler
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Austin Butler
@@ -1385,13 +1745,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Mark Zuckerberg
+## Austin Butler
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Austin Butler
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Austin Butler
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Austin Butler
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Mark Zuckerberg
@@ -1414,15 +1801,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Mark Zuckerberg
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -1440,6 +1818,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Mark Zuckerberg
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Mark Zuckerberg
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Mark Zuckerberg
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Ariana Grande
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Ariana Grande
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Ariana Grande
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Ariana Grande
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Ariana Grande
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -1454,25 +1913,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Ariana Grande
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Ariana Grande
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Ariana Grande
@@ -1481,43 +1922,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Ariana Grande
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Ariana Grande
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Ariana Grande
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Livvy Dunne
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Livvy Dunne
@@ -1536,15 +1959,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Livvy Dunne
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Livvy Dunne
@@ -1574,13 +1988,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Livvy Dunne
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Livvy Dunne
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Livvy Dunne
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Ali Wong
@@ -1603,15 +2044,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Ali Wong
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Ali Wong
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -1629,6 +2061,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Ali Wong
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Ali Wong
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Ali Wong
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Ali Wong
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Ali Wong
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Lizzo
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Lizzo
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Lizzo
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Lizzo
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Lizzo
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -1643,25 +2156,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Lizzo
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Lizzo
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Lizzo
@@ -1670,43 +2165,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Lizzo
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Lizzo
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Lizzo
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Alison Brie
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Alison Brie
@@ -1725,15 +2202,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Alison Brie
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Alison Brie
@@ -1763,13 +2231,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Lil Wayne
+## Alison Brie
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Alison Brie
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Alison Brie
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Alison Brie
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Lil Wayne
@@ -1792,15 +2287,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Lil Wayne
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Lil Wayne
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -1818,6 +2304,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Lil Wayne
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Lil Wayne
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Lil Wayne
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Lil Wayne
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Lil Wayne
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Adele
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Adele
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Adele
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Adele
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Adele
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -1832,25 +2399,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Adele
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Adele
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Adele
@@ -1859,43 +2408,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Adele
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Adele
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Adele
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Lindsay Lohan
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Lindsay Lohan
@@ -1914,15 +2445,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Lindsay Lohan
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Lindsay Lohan
@@ -1952,13 +2474,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Lindsay Lohan
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Lindsay Lohan
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Addison Rae
@@ -1981,15 +2530,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Addison Rae
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Addison Rae
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -2007,6 +2547,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Addison Rae
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Addison Rae
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Addison Rae
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Addison Rae
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Addison Rae
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Latto
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Latto
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Latto
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Latto
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Latto
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -2021,25 +2642,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Latto
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Latto
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Latto
@@ -2048,43 +2651,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Latto
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Latto
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Latto
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Aaron Paul
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Aaron Paul
@@ -2103,15 +2688,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Aaron Paul
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Aaron Paul
@@ -2141,13 +2717,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## LeBron James
+## Aaron Paul
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Aaron Paul
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Aaron Paul
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Aaron Paul
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## LeBron James
@@ -2170,15 +2773,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## LeBron James
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## LeBron James
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -2196,6 +2790,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## LeBron James
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## LeBron James
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## LeBron James
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## LeBron James
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## LeBron James
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## 50 Cent
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## 50 Cent
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## 50 Cent
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## 50 Cent
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## 50 Cent
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -2210,25 +2885,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## 50 Cent
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## 50 Cent
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## 50 Cent
@@ -2237,43 +2894,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## 50 Cent
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## 50 Cent
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## 50 Cent
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Kesha
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Kesha
@@ -2292,15 +2931,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Kesha
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Kesha
@@ -2330,13 +2960,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Kesha
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Kesha
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Kesha
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## 21 Savage
@@ -2359,15 +3016,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## 21 Savage
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## 21 Savage
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -2385,6 +3033,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## 21 Savage
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## 21 Savage
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## 21 Savage
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## 21 Savage
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## 21 Savage
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Larry David
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Larry David
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Larry David
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Larry David
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Larry David
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -2399,25 +3128,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Larry David
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Larry David
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Larry David
@@ -2426,43 +3137,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Larry David
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Larry David
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Larry David
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Seth Rogan
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Seth Rogan
@@ -2481,15 +3174,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Seth Rogan
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Seth Rogan
@@ -2519,13 +3203,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Simone Biles
+## Seth Rogan
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Seth Rogan
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Seth Rogan
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Seth Rogan
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Simone Biles
@@ -2548,15 +3259,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Simone Biles
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Simone Biles
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -2574,6 +3276,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Simone Biles
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Simone Biles
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Simone Biles
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Simone Biles
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Simone Biles
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Pete Davidson
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Pete Davidson
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Pete Davidson
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Pete Davidson
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Pete Davidson
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -2588,25 +3371,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Pete Davidson
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Pete Davidson
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Pete Davidson
@@ -2615,43 +3380,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Pete Davidson
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Pete Davidson
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Pete Davidson
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Prince Harry
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Prince Harry
@@ -2670,15 +3417,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Prince Harry
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Prince Harry
@@ -2708,13 +3446,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Prince Harry
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Prince Harry
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Prince Harry
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Princess of Wales
@@ -2737,15 +3502,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Princess of Wales
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Princess of Wales
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -2763,6 +3519,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Princess of Wales
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Princess of Wales
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Princess of Wales
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Princess of Wales
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Princess of Wales
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Rachel McAdams
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Rachel McAdams
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Rachel McAdams
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Rachel McAdams
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Rachel McAdams
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -2777,25 +3614,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Rachel McAdams
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Rachel McAdams
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Rachel McAdams
@@ -2804,43 +3623,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Rachel McAdams
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Rachel McAdams
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Rachel McAdams
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Reneé Rapp
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Reneé Rapp
@@ -2859,15 +3660,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Reneé Rapp
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Reneé Rapp
@@ -2897,13 +3689,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Rick Ross
+## Reneé Rapp
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Reneé Rapp
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Reneé Rapp
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Reneé Rapp
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Rick Ross
@@ -2926,15 +3745,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Rick Ross
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Rick Ross
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -2952,6 +3762,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Rick Ross
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Rick Ross
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Rick Ross
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Rick Ross
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Rick Ross
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Sam Ashgari
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Sam Ashgari
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Sam Ashgari
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Sam Ashgari
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Sam Ashgari
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -2966,25 +3857,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Sam Ashgari
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Sam Ashgari
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Sam Ashgari
@@ -2993,43 +3866,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Sam Ashgari
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Sam Ashgari
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Sam Ashgari
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Sandra Oh
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Sandra Oh
@@ -3048,15 +3903,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Sandra Oh
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Sandra Oh
@@ -3086,13 +3932,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Sandra Oh
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Sandra Oh
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Sandra Oh
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Donald Trump
@@ -3115,15 +3988,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Donald Trump
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Donald Trump
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -3141,6 +4005,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Donald Trump
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Donald Trump
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Donald Trump
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Donald Trump
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Donald Trump
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Diddy
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Diddy
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Diddy
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Diddy
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Diddy
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -3155,25 +4100,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Diddy
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Diddy
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Diddy
@@ -3182,43 +4109,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Diddy
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Diddy
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Diddy
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## City Girls
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## City Girls
@@ -3237,15 +4146,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## City Girls
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## City Girls
@@ -3275,13 +4175,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Chloe Bailey
+## City Girls
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## City Girls
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## City Girls
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## City Girls
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Chloe Bailey
@@ -3304,15 +4231,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Chloe Bailey
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Chloe Bailey
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -3330,6 +4248,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Chloe Bailey
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Chloe Bailey
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Chloe Bailey
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Chloe Bailey
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Chloe Bailey
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Charli D Amelio
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Charli D Amelio
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Charli D Amelio
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Charli D Amelio
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Charli D Amelio
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -3344,25 +4343,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Charli D Amelio
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Charli D Amelio
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Charli D Amelio
@@ -3371,43 +4352,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Charli D Amelio
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Charli D Amelio
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Charli D Amelio
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Cardi B
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Cardi B
@@ -3426,15 +4389,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Cardi B
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Cardi B
@@ -3464,13 +4418,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Cardi B
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Cardi B
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Cardi B
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Bryan Cranston
@@ -3493,15 +4474,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Bryan Cranston
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Bryan Cranston
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -3519,6 +4491,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Bryan Cranston
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Bryan Cranston
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Bryan Cranston
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Bryan Cranston
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Bryan Cranston
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Brielle Biermann
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Brielle Biermann
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Brielle Biermann
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Brielle Biermann
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Brielle Biermann
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -3533,25 +4586,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Brielle Biermann
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Brielle Biermann
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Brielle Biermann
@@ -3560,43 +4595,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Brielle Biermann
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Brielle Biermann
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Brielle Biermann
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Dua Lipa
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Dua Lipa
@@ -3615,15 +4632,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Dua Lipa
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Dua Lipa
@@ -3653,13 +4661,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Drake
+## Dua Lipa
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Dua Lipa
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Dua Lipa
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Dua Lipa
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Drake
@@ -3682,15 +4717,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Drake
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Drake
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -3708,6 +4734,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Drake
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Drake
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Drake
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Drake
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Drake
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Jenner
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Jenner
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Jenner
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Jenner
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Jenner
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -3722,25 +4829,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Jenner
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Jenner
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Jenner
@@ -3749,43 +4838,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Jenner
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Jenner
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Jenner
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## J. Cole
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## J. Cole
@@ -3804,15 +4875,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## J. Cole
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## J. Cole
@@ -3842,13 +4904,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## J. Cole
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## J. Cole
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## J. Cole
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Jerrod Carmichael
@@ -3871,15 +4960,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Jerrod Carmichael
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -3897,6 +4977,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Jerrod Carmichael
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Jerrod Carmichael
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Jerrod Carmichael
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Jennifer Lawrence
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Jennifer Lawrence
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Jennifer Lawrence
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Jennifer Lawrence
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Jennifer Lawrence
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -3911,25 +5072,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Jennifer Lawrence
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Jennifer Lawrence
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -3938,43 +5081,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Jennifer Lawrence
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Jennifer Lawrence
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Jennifer Lawrence
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Joe Biden
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Joe Biden
@@ -3993,15 +5118,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Joe Biden
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Joe Biden
@@ -4031,13 +5147,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## J.K. Simmons
+## Joe Biden
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Joe Biden
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Joe Biden
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Joe Biden
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## J.K. Simmons
@@ -4060,15 +5203,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## J.K. Simmons
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## J.K. Simmons
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -4086,6 +5220,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## J.K. Simmons
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## J.K. Simmons
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## J.K. Simmons
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## J.K. Simmons
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## J.K. Simmons
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Kamala Harris
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Kamala Harris
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Kamala Harris
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Kamala Harris
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Kamala Harris
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -4100,25 +5315,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Kamala Harris
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Kamala Harris
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Kamala Harris
@@ -4127,43 +5324,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Kamala Harris
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Kamala Harris
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Kamala Harris
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## John C Reilly
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## John C Reilly
@@ -4182,15 +5361,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## John C Reilly
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## John C Reilly
@@ -4220,13 +5390,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## John C Reilly
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## John C Reilly
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## John C Reilly
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Kardashian
@@ -4249,15 +5446,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Kardashian
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Kardashian
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -4275,6 +5463,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Kardashian
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Kardashian
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Kardashian
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Kardashian
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Kardashian
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Kanye
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Kanye
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Kanye
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Kanye
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Kanye
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -4289,25 +5558,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Kanye
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Kanye
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Kanye
@@ -4316,43 +5567,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Kanye
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Kanye
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Kanye
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Zendaya
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Zendaya
@@ -4371,15 +5604,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Zendaya
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Zendaya
@@ -4409,13 +5633,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Will Ferrell
+## Zendaya
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Zendaya
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Zendaya
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Zendaya
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Will Ferrell
@@ -4438,15 +5689,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Will Ferrell
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Will Ferrell
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -4464,6 +5706,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Will Ferrell
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Will Ferrell
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Will Ferrell
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Will Ferrell
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Will Ferrell
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Zazie Beetz
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Zazie Beetz
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Zazie Beetz
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Zazie Beetz
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Zazie Beetz
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -4478,25 +5801,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Zazie Beetz
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Zazie Beetz
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Zazie Beetz
@@ -4505,43 +5810,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Zazie Beetz
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Zazie Beetz
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Zazie Beetz
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Bob Odenkirk
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Bob Odenkirk
@@ -4560,15 +5847,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Bob Odenkirk
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Bob Odenkirk
@@ -4598,13 +5876,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Bob Odenkirk
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Bob Odenkirk
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Brad Pitt
@@ -4627,15 +5932,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Brad Pitt
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Brad Pitt
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -4653,6 +5949,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Brad Pitt
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Brad Pitt
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Brad Pitt
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Brad Pitt
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Brad Pitt
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Beyoncé
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Beyoncé
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Beyoncé
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Beyoncé
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Beyoncé
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -4667,25 +6044,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Beyoncé
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Beyoncé
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Beyoncé
@@ -4694,43 +6053,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Beyoncé
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Beyoncé
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Beyoncé
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Bia
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Bia
@@ -4749,15 +6090,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Bia
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Bia
@@ -4787,13 +6119,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Avantika
+## Bia
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Bia
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Bia
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Bia
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Avantika
@@ -4816,15 +6175,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Avantika
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Avantika
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -4842,6 +6192,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Avantika
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Avantika
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Avantika
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Avantika
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Avantika
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Bernie Sanders
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Bernie Sanders
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Bernie Sanders
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Bernie Sanders
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Bernie Sanders
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -4856,25 +6287,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Bernie Sanders
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Bernie Sanders
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Bernie Sanders
@@ -4883,43 +6296,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Bernie Sanders
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Bernie Sanders
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Bernie Sanders
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Big Sean
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Big Sean
@@ -4938,15 +6333,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Big Sean
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Big Sean
@@ -4976,13 +6362,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Big Sean
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Big Sean
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Big Sean
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## BlockBoy JB
@@ -5005,15 +6418,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## BlockBoy JB
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## BlockBoy JB
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -5031,6 +6435,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## BlockBoy JB
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## BlockBoy JB
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## BlockBoy JB
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## BlockBoy JB
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## BlockBoy JB
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Biden
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Biden
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Biden
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Biden
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Biden
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -5045,25 +6530,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Biden
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Biden
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Biden
@@ -5072,43 +6539,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Biden
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Biden
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Biden
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Bieber
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Bieber
@@ -5127,15 +6576,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Bieber
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Bieber
@@ -5165,13 +6605,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Bieber
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Bieber
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Bieber
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Paulina Porizkov
@@ -5194,15 +6661,6 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 ## Paulina Porizkov
 
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
-
-
-## Paulina Porizkov
-
 ## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
 
 Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
@@ -5220,6 +6678,87 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 
 
 ## Paulina Porizkov
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## Paulina Porizkov
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Paulina Porizkov
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Paulina Porizkov
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Paris Hilton
+
+## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
+
+Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
+
+*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
+
+
+## Paris Hilton
+
+## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
+
+Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
+
+*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+
+
+## Paris Hilton
+
+## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+
+Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+
+*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
+
+
+## Paris Hilton
+
+## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
+
+Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
+
+*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+
+
+## Paris Hilton
 
 ## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
@@ -5234,25 +6773,7 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
-
-
-## Paris Hilton
-
-## [Miu Miu's Elderly New Balances Transformed Into Slip-On Hybrids](https://www.highsnobiety.com/p/miu-miu-new-balance-mules-2024/)
-
-Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right. The shoes are mules now!Just a few days ago, Miu Miu's flattened New Balance 5…
-
-*Published on: Sun, 07 Jul 2024 15:00:01 GMT*
-
-
-## Paris Hilton
-
-## [At Berlin Fashion Week's Intervention II, Epochal Fashion  a Crop of Crop Tops](https://www.highsnobiety.com/p/berlin-fashion-week-intervention-ss25/)
-
-Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
-
-*Published on: Sun, 07 Jul 2024 17:00:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Paris Hilton
@@ -5261,43 +6782,25 @@ Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, lit
 
 Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
 ## Paris Hilton
 
-## [Concepts Ain't Letting Up With Its Killer Sneakers ](https://www.highsnobiety.com/p/concepts-asics-sneakers-2024/)
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
 
-Concepts holds many great sneaker collaborations in its past, including the iconic "C-Note" New Balances and sneakerheads' favorite Thanksgiving Dunks .Concept…
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
 
-*Published on: Sun, 07 Jul 2024 19:41:35 GMT*
-
-
-## Paris Hilton
-
-## [This Born-Again Jordan 6 Sneaker Is Olympic-Ready as Ever](https://www.highsnobiety.com/p/jordan-6-olympic-sneakers-2024/)
-
-Another reborn classic is back from the Nike vault. This time, the sportswear brand has dusted off the Air Jordan 6 "Olympic" just in time for the upcoming Par…
-
-*Published on: Sun, 07 Jul 2024 20:47:39 GMT*
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Paris Hilton
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Metro Boomin
-
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
-
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
-
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Metro Boomin
@@ -5316,15 +6819,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Metro Boomin
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Metro Boomin
@@ -5354,13 +6848,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Metro Boomin
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Metro Boomin
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Metro Boomin
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Meghan Markle
@@ -5379,15 +6900,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Meghan Markle
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Meghan Markle
@@ -5417,13 +6929,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Meghan Markle
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Meghan Markle
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Meghan Markle
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Megan Thee Stallion
@@ -5442,15 +6981,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Megan Thee Stallion
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Megan Thee Stallion
@@ -5480,13 +7010,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Megan Thee Stallion
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Maya Rudolph
@@ -5505,15 +7062,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Maya Rudolph
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Maya Rudolph
@@ -5543,13 +7091,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Maya Rudolph
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Maya Rudolph
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Maya Rudolph
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Olivia Rodrigo
@@ -5568,15 +7143,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Olivia Rodrigo
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Olivia Rodrigo
@@ -5606,13 +7172,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Olivia Rodrigo
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Obama
@@ -5631,15 +7224,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Obama
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Obama
@@ -5669,13 +7253,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Obama
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Obama
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Obama
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## Nicki Minaj
@@ -5694,15 +7305,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## Nicki Minaj
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## Nicki Minaj
@@ -5732,13 +7334,40 @@ One of the most anticipated shoes coming from Nike's Olympics lineup — aside f
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
 Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Sun, 07 Jul 2024 13:59:00 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## Nicki Minaj
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## Nicki Minaj
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## Nicki Minaj
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
 ## MrBeast
@@ -5757,15 +7386,6 @@ Miu Miu's New Balance sneakers have turned into "Miu-le" Balances. That's right.
 Berlin Fashion Week Spring/Summer 2025, held in the first week of July 2024, literally brought together the old and new, mixing established designers with fash…
 
 *Published on: Sun, 07 Jul 2024 17:00:00 GMT*
-
-
-## MrBeast
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Sun, 07 Jul 2024 17:27:36 GMT*
 
 
 ## MrBeast
@@ -5793,5 +7413,41 @@ Another reborn classic is back from the Nike vault. This time, the sportswear br
 One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
 *Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+
+
+## MrBeast
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+
+
+## MrBeast
+
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
+
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
+
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## MrBeast
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
+
+
+## MrBeast
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
 
 
