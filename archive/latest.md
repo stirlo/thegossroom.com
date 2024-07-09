@@ -1,6 +1,15 @@
 # Latest Stories
 ## Tim Cook
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Tim Cook
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -73,6 +82,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Taylor Swift
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Taylor Swift
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -145,6 +163,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Tom Brady
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Tom Brady
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -217,6 +244,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Tina Fey
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Tina Fey
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -289,6 +325,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Steven Yuen
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Steven Yuen
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -361,6 +406,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Sommer Ray
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Sommer Ray
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -433,6 +487,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Sza
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Sza
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -505,6 +568,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Sydney Sweeney
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Sydney Sweeney
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -577,6 +649,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Walton Goggins
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Walton Goggins
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -649,6 +730,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Tom Holland
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Tom Holland
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -721,6 +811,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Gucci Mane
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Gucci Mane
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -793,6 +892,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Harry Styles
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Harry Styles
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -865,6 +973,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Jake Paul
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Jake Paul
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -937,6 +1054,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Jameela Jamil
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Jameela Jamil
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1009,6 +1135,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Elon Musk
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Elon Musk
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1081,6 +1216,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Gabrielle Union
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Gabrielle Union
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1153,6 +1297,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Giancarlo Esposito
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Giancarlo Esposito
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1225,6 +1378,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Gillian Jacobs
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Gillian Jacobs
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1297,6 +1459,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Jason Mantzoukas
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Jason Mantzoukas
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1369,6 +1540,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## JB Smoove
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## JB Smoove
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1441,6 +1621,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Madison Pettis
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Madison Pettis
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1513,6 +1702,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Austin Butler
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Austin Butler
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1585,6 +1783,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Mark Zuckerberg
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Mark Zuckerberg
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1657,6 +1864,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Ariana Grande
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Ariana Grande
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1729,6 +1945,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Livvy Dunne
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Livvy Dunne
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1801,6 +2026,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Ali Wong
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Ali Wong
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1873,6 +2107,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Lizzo
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Lizzo
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -1945,6 +2188,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Alison Brie
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Alison Brie
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2017,6 +2269,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Lil Wayne
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Lil Wayne
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2089,6 +2350,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Adele
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Adele
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2161,6 +2431,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Lindsay Lohan
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Lindsay Lohan
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2233,6 +2512,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Addison Rae
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Addison Rae
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2305,6 +2593,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Latto
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Latto
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2377,6 +2674,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Aaron Paul
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Aaron Paul
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2449,6 +2755,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## LeBron James
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## LeBron James
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2521,6 +2836,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## 50 Cent
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## 50 Cent
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2593,6 +2917,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Kesha
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Kesha
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2665,6 +2998,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## 21 Savage
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## 21 Savage
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2737,6 +3079,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Larry David
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Larry David
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2809,6 +3160,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Seth Rogan
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Seth Rogan
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2881,6 +3241,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Simone Biles
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Simone Biles
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -2953,6 +3322,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Pete Davidson
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Pete Davidson
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3025,6 +3403,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Prince Harry
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Prince Harry
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3097,6 +3484,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Princess of Wales
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Princess of Wales
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3169,6 +3565,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Rachel McAdams
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Rachel McAdams
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3241,6 +3646,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Reneé Rapp
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Reneé Rapp
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3313,6 +3727,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Rick Ross
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Rick Ross
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3385,6 +3808,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Sam Ashgari
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Sam Ashgari
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3457,6 +3889,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Sandra Oh
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Sandra Oh
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3529,6 +3970,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Donald Trump
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Donald Trump
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3601,6 +4051,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Diddy
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Diddy
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3673,6 +4132,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## City Girls
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## City Girls
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3745,6 +4213,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Chloe Bailey
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Chloe Bailey
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3817,6 +4294,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Charli D Amelio
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Charli D Amelio
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3889,6 +4375,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Cardi B
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Cardi B
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -3961,6 +4456,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Bryan Cranston
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Bryan Cranston
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4033,6 +4537,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Brielle Biermann
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Brielle Biermann
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4105,6 +4618,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Dua Lipa
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Dua Lipa
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4177,6 +4699,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Drake
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Drake
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4249,6 +4780,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Jenner
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Jenner
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4321,6 +4861,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## J. Cole
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## J. Cole
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4393,6 +4942,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Jerrod Carmichael
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Jerrod Carmichael
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4465,6 +5023,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Jennifer Lawrence
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Jennifer Lawrence
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4537,6 +5104,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Joe Biden
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Joe Biden
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4609,6 +5185,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## J.K. Simmons
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## J.K. Simmons
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4681,6 +5266,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Kamala Harris
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Kamala Harris
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4753,6 +5347,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## John C Reilly
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## John C Reilly
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4825,6 +5428,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Kardashian
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Kardashian
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4897,6 +5509,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Kanye
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Kanye
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -4969,6 +5590,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Zendaya
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Zendaya
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5041,6 +5671,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Will Ferrell
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Will Ferrell
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5113,6 +5752,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Zazie Beetz
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Zazie Beetz
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5185,6 +5833,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Bob Odenkirk
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Bob Odenkirk
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5257,6 +5914,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Brad Pitt
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Brad Pitt
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5329,6 +5995,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Beyoncé
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Beyoncé
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5401,6 +6076,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Bia
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Bia
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5473,6 +6157,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Avantika
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Avantika
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5545,6 +6238,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Bernie Sanders
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Bernie Sanders
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5617,6 +6319,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Big Sean
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Big Sean
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5689,6 +6400,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## BlockBoy JB
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## BlockBoy JB
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5761,6 +6481,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Biden
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Biden
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5833,6 +6562,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Bieber
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Bieber
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5905,6 +6643,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Paulina Porizkov
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Paulina Porizkov
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -5977,6 +6724,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Paris Hilton
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Paris Hilton
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -6049,6 +6805,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Metro Boomin
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Metro Boomin
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -6121,6 +6886,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Meghan Markle
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Meghan Markle
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -6193,6 +6967,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Megan Thee Stallion
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Megan Thee Stallion
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -6265,6 +7048,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Maya Rudolph
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Maya Rudolph
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -6337,6 +7129,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Olivia Rodrigo
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Olivia Rodrigo
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -6409,6 +7210,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Obama
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Obama
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -6481,6 +7291,15 @@ Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when ea
 
 ## Nicki Minaj
 
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
+
+
+## Nicki Minaj
+
 ## [We Selected This Season's Best Birkenstock Sandals for You](https://www.highsnobiety.com/p/birkenstock-shopping-guide/)
 
 It’s no exaggeration to say that Birkenstock , the family-owned German sandal brand, has withstood the test of time. Founded in 1774 (and thus older than the U…
@@ -6549,6 +7368,15 @@ Vans has blessed the sneaker community with unforgettable styles like the imitab
 Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
 
 *Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## MrBeast
+
+## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
+
+There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
+
+*Published on: Mon, 08 Jul 2024 10:30:00 GMT*
 
 
 ## MrBeast
