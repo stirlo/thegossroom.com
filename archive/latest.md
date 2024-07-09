@@ -1,15 +1,6 @@
 # Latest Stories
 ## Tim Cook
 
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
-
-
-## Tim Cook
-
 ## [These Pairs That Prove Summer Footwear Has Never Been Stronger](https://www.highsnobiety.com/p/best-summer-shoes-buy-online/)
 
 There was a time in not too distant memory when it was almost impossible to choose a nice pair of sandals for summer. It was an era that gave sandals a terribl…
@@ -37,33 +28,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Tim Cook
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Tim Cook
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Tim Cook
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Tim Cook
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -73,38 +37,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Tim Cook
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Tim Cook
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Tim Cook
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Tim Cook
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Tim Cook
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Tim Cook
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Tim Cook
@@ -118,20 +91,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Tim Cook
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Taylor Swift
+## Tim Cook
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Tim Cook
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Tim Cook
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Taylor Swift
@@ -159,33 +150,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Taylor Swift
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Taylor Swift
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Taylor Swift
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Taylor Swift
@@ -199,11 +163,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Taylor Swift
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Taylor Swift
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Taylor Swift
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Taylor Swift
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Taylor Swift
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Taylor Swift
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Taylor Swift
@@ -217,11 +226,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Taylor Swift
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Taylor Swift
@@ -235,29 +244,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Taylor Swift
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Taylor Swift
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Tom Brady
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Tom Brady
@@ -289,33 +280,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Tom Brady
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Tom Brady
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Tom Brady
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Tom Brady
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -325,38 +289,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Tom Brady
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Tom Brady
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Tom Brady
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Tom Brady
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Tom Brady
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Tom Brady
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Tom Brady
@@ -370,20 +343,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Tom Brady
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Tina Fey
+## Tom Brady
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Tom Brady
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Tom Brady
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Tina Fey
@@ -411,33 +402,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Tina Fey
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Tina Fey
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Tina Fey
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Tina Fey
@@ -451,11 +415,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Tina Fey
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Tina Fey
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Tina Fey
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Tina Fey
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Tina Fey
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Tina Fey
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Tina Fey
@@ -469,11 +478,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Tina Fey
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Tina Fey
@@ -487,29 +496,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Tina Fey
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Tina Fey
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Steven Yuen
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Steven Yuen
@@ -541,33 +532,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Steven Yuen
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Steven Yuen
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Steven Yuen
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Steven Yuen
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -577,38 +541,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Steven Yuen
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Steven Yuen
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Steven Yuen
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Steven Yuen
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Steven Yuen
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Steven Yuen
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Steven Yuen
@@ -622,20 +595,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Steven Yuen
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Sommer Ray
+## Steven Yuen
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Steven Yuen
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Steven Yuen
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Sommer Ray
@@ -663,33 +654,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Sommer Ray
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Sommer Ray
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Sommer Ray
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Sommer Ray
@@ -703,11 +667,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Sommer Ray
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Sommer Ray
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Sommer Ray
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Sommer Ray
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Sommer Ray
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Sommer Ray
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Sommer Ray
@@ -721,11 +730,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Sommer Ray
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Sommer Ray
@@ -739,29 +748,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Sommer Ray
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Sommer Ray
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Sza
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Sza
@@ -793,33 +784,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Sza
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Sza
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Sza
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Sza
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -829,38 +793,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Sza
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Sza
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Sza
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Sza
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Sza
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Sza
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Sza
@@ -874,20 +847,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Sza
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Sydney Sweeney
+## Sza
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Sza
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Sza
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Sydney Sweeney
@@ -915,33 +906,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Sydney Sweeney
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Sydney Sweeney
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Sydney Sweeney
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Sydney Sweeney
@@ -955,11 +919,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Sydney Sweeney
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Sydney Sweeney
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Sydney Sweeney
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Sydney Sweeney
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Sydney Sweeney
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Sydney Sweeney
@@ -973,11 +982,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Sydney Sweeney
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Sydney Sweeney
@@ -991,29 +1000,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Sydney Sweeney
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Sydney Sweeney
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Walton Goggins
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Walton Goggins
@@ -1045,33 +1036,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Walton Goggins
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Walton Goggins
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Walton Goggins
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Walton Goggins
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -1081,38 +1045,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Walton Goggins
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Walton Goggins
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Walton Goggins
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Walton Goggins
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Walton Goggins
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Walton Goggins
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Walton Goggins
@@ -1126,20 +1099,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Walton Goggins
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Tom Holland
+## Walton Goggins
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Walton Goggins
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Walton Goggins
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Tom Holland
@@ -1167,33 +1158,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Tom Holland
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Tom Holland
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Tom Holland
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Tom Holland
@@ -1207,11 +1171,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Tom Holland
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Tom Holland
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Tom Holland
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Tom Holland
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Tom Holland
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Tom Holland
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Tom Holland
@@ -1225,11 +1234,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Tom Holland
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Tom Holland
@@ -1243,29 +1252,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Tom Holland
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Tom Holland
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Gucci Mane
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Gucci Mane
@@ -1297,33 +1288,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Gucci Mane
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Gucci Mane
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Gucci Mane
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Gucci Mane
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -1333,38 +1297,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Gucci Mane
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Gucci Mane
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Gucci Mane
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Gucci Mane
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Gucci Mane
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Gucci Mane
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Gucci Mane
@@ -1378,20 +1351,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Gucci Mane
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Harry Styles
+## Gucci Mane
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Gucci Mane
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Gucci Mane
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Harry Styles
@@ -1419,33 +1410,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Harry Styles
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Harry Styles
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Harry Styles
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Harry Styles
@@ -1459,11 +1423,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Harry Styles
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Harry Styles
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Harry Styles
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Harry Styles
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Harry Styles
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Harry Styles
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Harry Styles
@@ -1477,11 +1486,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Harry Styles
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Harry Styles
@@ -1495,29 +1504,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Harry Styles
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Harry Styles
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Jake Paul
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Jake Paul
@@ -1549,33 +1540,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Jake Paul
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Jake Paul
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Jake Paul
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Jake Paul
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -1585,38 +1549,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Jake Paul
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Jake Paul
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Jake Paul
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Jake Paul
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Jake Paul
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Jake Paul
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Jake Paul
@@ -1630,20 +1603,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Jake Paul
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Jameela Jamil
+## Jake Paul
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Jake Paul
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Jake Paul
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Jameela Jamil
@@ -1671,33 +1662,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Jameela Jamil
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Jameela Jamil
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Jameela Jamil
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Jameela Jamil
@@ -1711,11 +1675,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Jameela Jamil
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Jameela Jamil
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Jameela Jamil
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Jameela Jamil
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Jameela Jamil
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Jameela Jamil
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Jameela Jamil
@@ -1729,11 +1738,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Jameela Jamil
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Jameela Jamil
@@ -1747,29 +1756,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Jameela Jamil
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Jameela Jamil
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Elon Musk
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Elon Musk
@@ -1801,33 +1792,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Elon Musk
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Elon Musk
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Elon Musk
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Elon Musk
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -1837,38 +1801,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Elon Musk
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Elon Musk
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Elon Musk
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Elon Musk
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Elon Musk
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Elon Musk
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Elon Musk
@@ -1882,20 +1855,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Elon Musk
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Gabrielle Union
+## Elon Musk
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Elon Musk
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Elon Musk
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Gabrielle Union
@@ -1923,33 +1914,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Gabrielle Union
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Gabrielle Union
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Gabrielle Union
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Gabrielle Union
@@ -1963,11 +1927,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Gabrielle Union
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Gabrielle Union
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Gabrielle Union
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Gabrielle Union
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Gabrielle Union
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Gabrielle Union
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Gabrielle Union
@@ -1981,11 +1990,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Gabrielle Union
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Gabrielle Union
@@ -1999,29 +2008,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Gabrielle Union
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Gabrielle Union
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Giancarlo Esposito
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Giancarlo Esposito
@@ -2053,33 +2044,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Giancarlo Esposito
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Giancarlo Esposito
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Giancarlo Esposito
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Giancarlo Esposito
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -2089,38 +2053,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Giancarlo Esposito
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Giancarlo Esposito
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Giancarlo Esposito
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Giancarlo Esposito
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Giancarlo Esposito
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Giancarlo Esposito
@@ -2134,20 +2107,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Giancarlo Esposito
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Gillian Jacobs
+## Giancarlo Esposito
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Giancarlo Esposito
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Giancarlo Esposito
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Gillian Jacobs
@@ -2175,33 +2166,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Gillian Jacobs
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Gillian Jacobs
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Gillian Jacobs
@@ -2215,11 +2179,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Gillian Jacobs
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Gillian Jacobs
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Gillian Jacobs
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Gillian Jacobs
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Gillian Jacobs
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Gillian Jacobs
@@ -2233,11 +2242,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Gillian Jacobs
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Gillian Jacobs
@@ -2251,29 +2260,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Gillian Jacobs
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Gillian Jacobs
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Jason Mantzoukas
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Jason Mantzoukas
@@ -2305,33 +2296,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Jason Mantzoukas
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Jason Mantzoukas
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Jason Mantzoukas
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Jason Mantzoukas
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -2341,38 +2305,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Jason Mantzoukas
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Jason Mantzoukas
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Jason Mantzoukas
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Jason Mantzoukas
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Jason Mantzoukas
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Jason Mantzoukas
@@ -2386,20 +2359,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Jason Mantzoukas
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## JB Smoove
+## Jason Mantzoukas
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Jason Mantzoukas
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Jason Mantzoukas
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## JB Smoove
@@ -2427,33 +2418,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## JB Smoove
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## JB Smoove
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## JB Smoove
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## JB Smoove
@@ -2467,11 +2431,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## JB Smoove
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## JB Smoove
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## JB Smoove
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## JB Smoove
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## JB Smoove
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## JB Smoove
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## JB Smoove
@@ -2485,11 +2494,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## JB Smoove
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## JB Smoove
@@ -2503,29 +2512,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## JB Smoove
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## JB Smoove
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Madison Pettis
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Madison Pettis
@@ -2557,33 +2548,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Madison Pettis
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Madison Pettis
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Madison Pettis
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Madison Pettis
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -2593,38 +2557,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Madison Pettis
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Madison Pettis
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Madison Pettis
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Madison Pettis
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Madison Pettis
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Madison Pettis
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Madison Pettis
@@ -2638,20 +2611,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Madison Pettis
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Austin Butler
+## Madison Pettis
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Madison Pettis
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Madison Pettis
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Austin Butler
@@ -2679,33 +2670,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Austin Butler
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Austin Butler
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Austin Butler
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Austin Butler
@@ -2719,11 +2683,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Austin Butler
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Austin Butler
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Austin Butler
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Austin Butler
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Austin Butler
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Austin Butler
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Austin Butler
@@ -2737,11 +2746,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Austin Butler
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Austin Butler
@@ -2755,29 +2764,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Austin Butler
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Austin Butler
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Mark Zuckerberg
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Mark Zuckerberg
@@ -2809,33 +2800,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Mark Zuckerberg
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Mark Zuckerberg
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Mark Zuckerberg
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Mark Zuckerberg
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -2845,38 +2809,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Mark Zuckerberg
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Mark Zuckerberg
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Mark Zuckerberg
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Mark Zuckerberg
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Mark Zuckerberg
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Mark Zuckerberg
@@ -2890,20 +2863,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Mark Zuckerberg
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Ariana Grande
+## Mark Zuckerberg
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Mark Zuckerberg
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Mark Zuckerberg
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Ariana Grande
@@ -2931,33 +2922,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Ariana Grande
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Ariana Grande
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Ariana Grande
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Ariana Grande
@@ -2971,11 +2935,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Ariana Grande
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Ariana Grande
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Ariana Grande
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Ariana Grande
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Ariana Grande
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Ariana Grande
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Ariana Grande
@@ -2989,11 +2998,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Ariana Grande
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Ariana Grande
@@ -3007,29 +3016,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Ariana Grande
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Ariana Grande
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Livvy Dunne
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Livvy Dunne
@@ -3061,33 +3052,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Livvy Dunne
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Livvy Dunne
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Livvy Dunne
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Livvy Dunne
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -3097,38 +3061,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Livvy Dunne
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Livvy Dunne
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Livvy Dunne
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Livvy Dunne
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Livvy Dunne
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Livvy Dunne
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Livvy Dunne
@@ -3142,20 +3115,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Livvy Dunne
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Ali Wong
+## Livvy Dunne
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Livvy Dunne
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Livvy Dunne
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Ali Wong
@@ -3183,33 +3174,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Ali Wong
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Ali Wong
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Ali Wong
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Ali Wong
@@ -3223,11 +3187,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Ali Wong
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Ali Wong
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Ali Wong
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Ali Wong
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Ali Wong
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Ali Wong
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Ali Wong
@@ -3241,11 +3250,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Ali Wong
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Ali Wong
@@ -3259,29 +3268,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Ali Wong
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Ali Wong
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Lizzo
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Lizzo
@@ -3313,33 +3304,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Lizzo
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Lizzo
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Lizzo
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Lizzo
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -3349,38 +3313,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Lizzo
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Lizzo
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Lizzo
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Lizzo
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Lizzo
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Lizzo
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Lizzo
@@ -3394,20 +3367,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Lizzo
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Alison Brie
+## Lizzo
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Lizzo
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Lizzo
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Alison Brie
@@ -3435,33 +3426,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Alison Brie
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Alison Brie
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Alison Brie
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Alison Brie
@@ -3475,11 +3439,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Alison Brie
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Alison Brie
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Alison Brie
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Alison Brie
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Alison Brie
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Alison Brie
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Alison Brie
@@ -3493,11 +3502,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Alison Brie
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Alison Brie
@@ -3511,29 +3520,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Alison Brie
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Alison Brie
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Lil Wayne
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Lil Wayne
@@ -3565,33 +3556,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Lil Wayne
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Lil Wayne
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Lil Wayne
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Lil Wayne
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -3601,38 +3565,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Lil Wayne
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Lil Wayne
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Lil Wayne
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Lil Wayne
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Lil Wayne
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Lil Wayne
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Lil Wayne
@@ -3646,20 +3619,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Lil Wayne
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Adele
+## Lil Wayne
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Lil Wayne
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Lil Wayne
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Adele
@@ -3687,33 +3678,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Adele
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Adele
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Adele
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Adele
@@ -3727,11 +3691,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Adele
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Adele
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Adele
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Adele
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Adele
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Adele
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Adele
@@ -3745,11 +3754,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Adele
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Adele
@@ -3763,29 +3772,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Adele
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Adele
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Lindsay Lohan
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Lindsay Lohan
@@ -3817,33 +3808,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Lindsay Lohan
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Lindsay Lohan
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Lindsay Lohan
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Lindsay Lohan
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -3853,38 +3817,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Lindsay Lohan
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Lindsay Lohan
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Lindsay Lohan
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Lindsay Lohan
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Lindsay Lohan
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Lindsay Lohan
@@ -3898,20 +3871,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Lindsay Lohan
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Addison Rae
+## Lindsay Lohan
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Lindsay Lohan
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Lindsay Lohan
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Addison Rae
@@ -3939,33 +3930,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Addison Rae
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Addison Rae
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Addison Rae
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Addison Rae
@@ -3979,11 +3943,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Addison Rae
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Addison Rae
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Addison Rae
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Addison Rae
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Addison Rae
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Addison Rae
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Addison Rae
@@ -3997,11 +4006,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Addison Rae
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Addison Rae
@@ -4015,29 +4024,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Addison Rae
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Addison Rae
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Latto
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Latto
@@ -4069,33 +4060,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Latto
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Latto
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Latto
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Latto
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -4105,38 +4069,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Latto
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Latto
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Latto
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Latto
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Latto
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Latto
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Latto
@@ -4150,20 +4123,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Latto
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Aaron Paul
+## Latto
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Latto
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Latto
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Aaron Paul
@@ -4191,33 +4182,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Aaron Paul
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Aaron Paul
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Aaron Paul
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Aaron Paul
@@ -4231,11 +4195,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Aaron Paul
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Aaron Paul
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Aaron Paul
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Aaron Paul
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Aaron Paul
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Aaron Paul
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Aaron Paul
@@ -4249,11 +4258,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Aaron Paul
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Aaron Paul
@@ -4267,29 +4276,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Aaron Paul
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Aaron Paul
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## LeBron James
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## LeBron James
@@ -4321,33 +4312,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## LeBron James
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## LeBron James
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## LeBron James
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## LeBron James
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -4357,38 +4321,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## LeBron James
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## LeBron James
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## LeBron James
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## LeBron James
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## LeBron James
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## LeBron James
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## LeBron James
@@ -4402,20 +4375,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## LeBron James
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## 50 Cent
+## LeBron James
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## LeBron James
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## LeBron James
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## 50 Cent
@@ -4443,33 +4434,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## 50 Cent
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## 50 Cent
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## 50 Cent
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## 50 Cent
@@ -4483,11 +4447,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## 50 Cent
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## 50 Cent
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## 50 Cent
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## 50 Cent
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## 50 Cent
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## 50 Cent
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## 50 Cent
@@ -4501,11 +4510,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## 50 Cent
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## 50 Cent
@@ -4519,29 +4528,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## 50 Cent
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## 50 Cent
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Kesha
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Kesha
@@ -4573,33 +4564,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Kesha
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Kesha
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Kesha
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Kesha
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -4609,38 +4573,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Kesha
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Kesha
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Kesha
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Kesha
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Kesha
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Kesha
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Kesha
@@ -4654,20 +4627,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Kesha
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## 21 Savage
+## Kesha
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Kesha
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Kesha
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## 21 Savage
@@ -4695,33 +4686,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## 21 Savage
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## 21 Savage
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## 21 Savage
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## 21 Savage
@@ -4735,11 +4699,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## 21 Savage
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## 21 Savage
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## 21 Savage
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## 21 Savage
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## 21 Savage
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## 21 Savage
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## 21 Savage
@@ -4753,11 +4762,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## 21 Savage
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## 21 Savage
@@ -4771,29 +4780,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## 21 Savage
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## 21 Savage
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Larry David
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Larry David
@@ -4825,33 +4816,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Larry David
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Larry David
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Larry David
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Larry David
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -4861,38 +4825,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Larry David
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Larry David
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Larry David
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Larry David
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Larry David
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Larry David
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Larry David
@@ -4906,20 +4879,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Larry David
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Seth Rogan
+## Larry David
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Larry David
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Larry David
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Seth Rogan
@@ -4947,33 +4938,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Seth Rogan
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Seth Rogan
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Seth Rogan
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Seth Rogan
@@ -4987,11 +4951,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Seth Rogan
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Seth Rogan
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Seth Rogan
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Seth Rogan
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Seth Rogan
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Seth Rogan
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Seth Rogan
@@ -5005,11 +5014,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Seth Rogan
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Seth Rogan
@@ -5023,29 +5032,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Seth Rogan
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Seth Rogan
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Simone Biles
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Simone Biles
@@ -5077,33 +5068,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Simone Biles
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Simone Biles
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Simone Biles
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Simone Biles
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -5113,38 +5077,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Simone Biles
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Simone Biles
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Simone Biles
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Simone Biles
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Simone Biles
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Simone Biles
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Simone Biles
@@ -5158,20 +5131,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Simone Biles
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Pete Davidson
+## Simone Biles
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Simone Biles
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Simone Biles
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Pete Davidson
@@ -5199,33 +5190,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Pete Davidson
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Pete Davidson
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Pete Davidson
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Pete Davidson
@@ -5239,11 +5203,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Pete Davidson
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Pete Davidson
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Pete Davidson
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Pete Davidson
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Pete Davidson
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Pete Davidson
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Pete Davidson
@@ -5257,11 +5266,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Pete Davidson
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Pete Davidson
@@ -5275,29 +5284,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Pete Davidson
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Pete Davidson
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Prince Harry
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Prince Harry
@@ -5329,33 +5320,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Prince Harry
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Prince Harry
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Prince Harry
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Prince Harry
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -5365,38 +5329,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Prince Harry
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Prince Harry
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Prince Harry
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Prince Harry
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Prince Harry
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Prince Harry
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Prince Harry
@@ -5410,20 +5383,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Prince Harry
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Princess of Wales
+## Prince Harry
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Prince Harry
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Prince Harry
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Princess of Wales
@@ -5451,33 +5442,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Princess of Wales
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Princess of Wales
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Princess of Wales
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Princess of Wales
@@ -5491,11 +5455,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Princess of Wales
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Princess of Wales
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Princess of Wales
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Princess of Wales
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Princess of Wales
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Princess of Wales
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Princess of Wales
@@ -5509,11 +5518,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Princess of Wales
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Princess of Wales
@@ -5527,29 +5536,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Princess of Wales
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Princess of Wales
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Rachel McAdams
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Rachel McAdams
@@ -5581,33 +5572,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Rachel McAdams
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Rachel McAdams
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Rachel McAdams
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Rachel McAdams
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -5617,38 +5581,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Rachel McAdams
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Rachel McAdams
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Rachel McAdams
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Rachel McAdams
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Rachel McAdams
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Rachel McAdams
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Rachel McAdams
@@ -5662,20 +5635,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Rachel McAdams
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Reneé Rapp
+## Rachel McAdams
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Rachel McAdams
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Rachel McAdams
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Reneé Rapp
@@ -5703,33 +5694,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Reneé Rapp
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Reneé Rapp
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Reneé Rapp
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Reneé Rapp
@@ -5743,11 +5707,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Reneé Rapp
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Reneé Rapp
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Reneé Rapp
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Reneé Rapp
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Reneé Rapp
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Reneé Rapp
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Reneé Rapp
@@ -5761,11 +5770,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Reneé Rapp
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Reneé Rapp
@@ -5779,29 +5788,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Reneé Rapp
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Reneé Rapp
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Rick Ross
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Rick Ross
@@ -5833,33 +5824,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Rick Ross
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Rick Ross
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Rick Ross
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Rick Ross
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -5869,38 +5833,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Rick Ross
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Rick Ross
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Rick Ross
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Rick Ross
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Rick Ross
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Rick Ross
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Rick Ross
@@ -5914,20 +5887,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Rick Ross
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Sam Ashgari
+## Rick Ross
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Rick Ross
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Rick Ross
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Sam Ashgari
@@ -5955,33 +5946,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Sam Ashgari
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Sam Ashgari
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Sam Ashgari
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Sam Ashgari
@@ -5995,11 +5959,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Sam Ashgari
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Sam Ashgari
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Sam Ashgari
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Sam Ashgari
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Sam Ashgari
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Sam Ashgari
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Sam Ashgari
@@ -6013,11 +6022,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Sam Ashgari
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Sam Ashgari
@@ -6031,29 +6040,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Sam Ashgari
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Sam Ashgari
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Sandra Oh
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Sandra Oh
@@ -6085,33 +6076,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Sandra Oh
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Sandra Oh
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Sandra Oh
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Sandra Oh
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -6121,38 +6085,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Sandra Oh
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Sandra Oh
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Sandra Oh
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Sandra Oh
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Sandra Oh
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Sandra Oh
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Sandra Oh
@@ -6166,20 +6139,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Sandra Oh
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Donald Trump
+## Sandra Oh
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Sandra Oh
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Sandra Oh
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Donald Trump
@@ -6207,33 +6198,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Donald Trump
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Donald Trump
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Donald Trump
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Donald Trump
@@ -6247,11 +6211,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Donald Trump
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Donald Trump
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Donald Trump
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Donald Trump
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Donald Trump
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Donald Trump
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Donald Trump
@@ -6265,11 +6274,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Donald Trump
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Donald Trump
@@ -6283,29 +6292,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Donald Trump
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Donald Trump
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Diddy
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Diddy
@@ -6337,33 +6328,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Diddy
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Diddy
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Diddy
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Diddy
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -6373,38 +6337,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Diddy
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Diddy
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Diddy
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Diddy
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Diddy
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Diddy
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Diddy
@@ -6418,20 +6391,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Diddy
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## City Girls
+## Diddy
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Diddy
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Diddy
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## City Girls
@@ -6459,33 +6450,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## City Girls
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## City Girls
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## City Girls
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## City Girls
@@ -6499,11 +6463,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## City Girls
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## City Girls
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## City Girls
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## City Girls
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## City Girls
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## City Girls
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## City Girls
@@ -6517,11 +6526,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## City Girls
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## City Girls
@@ -6535,29 +6544,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## City Girls
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## City Girls
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Chloe Bailey
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Chloe Bailey
@@ -6589,33 +6580,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Chloe Bailey
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Chloe Bailey
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Chloe Bailey
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Chloe Bailey
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -6625,38 +6589,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Chloe Bailey
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Chloe Bailey
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Chloe Bailey
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Chloe Bailey
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Chloe Bailey
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Chloe Bailey
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Chloe Bailey
@@ -6670,20 +6643,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Chloe Bailey
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Charli D Amelio
+## Chloe Bailey
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Chloe Bailey
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Chloe Bailey
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Charli D Amelio
@@ -6711,33 +6702,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Charli D Amelio
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Charli D Amelio
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Charli D Amelio
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Charli D Amelio
@@ -6751,11 +6715,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Charli D Amelio
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Charli D Amelio
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Charli D Amelio
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Charli D Amelio
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Charli D Amelio
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Charli D Amelio
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Charli D Amelio
@@ -6769,11 +6778,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Charli D Amelio
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Charli D Amelio
@@ -6787,29 +6796,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Charli D Amelio
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Charli D Amelio
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Cardi B
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Cardi B
@@ -6841,33 +6832,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Cardi B
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Cardi B
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Cardi B
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Cardi B
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -6877,38 +6841,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Cardi B
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Cardi B
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Cardi B
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Cardi B
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Cardi B
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Cardi B
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Cardi B
@@ -6922,20 +6895,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Cardi B
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Bryan Cranston
+## Cardi B
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Cardi B
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Cardi B
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Bryan Cranston
@@ -6963,33 +6954,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Bryan Cranston
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Bryan Cranston
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Bryan Cranston
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Bryan Cranston
@@ -7003,11 +6967,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Bryan Cranston
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Bryan Cranston
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Bryan Cranston
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Bryan Cranston
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Bryan Cranston
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Bryan Cranston
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Bryan Cranston
@@ -7021,11 +7030,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Bryan Cranston
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Bryan Cranston
@@ -7039,29 +7048,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Bryan Cranston
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Bryan Cranston
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Brielle Biermann
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Brielle Biermann
@@ -7093,33 +7084,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Brielle Biermann
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Brielle Biermann
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Brielle Biermann
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Brielle Biermann
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -7129,38 +7093,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Brielle Biermann
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Brielle Biermann
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Brielle Biermann
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Brielle Biermann
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Brielle Biermann
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Brielle Biermann
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Brielle Biermann
@@ -7174,20 +7147,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Brielle Biermann
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Dua Lipa
+## Brielle Biermann
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Brielle Biermann
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Brielle Biermann
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Dua Lipa
@@ -7215,33 +7206,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Dua Lipa
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Dua Lipa
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Dua Lipa
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Dua Lipa
@@ -7255,11 +7219,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Dua Lipa
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Dua Lipa
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Dua Lipa
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Dua Lipa
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Dua Lipa
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Dua Lipa
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Dua Lipa
@@ -7273,11 +7282,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Dua Lipa
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Dua Lipa
@@ -7291,29 +7300,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Dua Lipa
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Dua Lipa
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Drake
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Drake
@@ -7345,33 +7336,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Drake
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Drake
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Drake
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Drake
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -7381,38 +7345,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Drake
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Drake
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Drake
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Drake
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Drake
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Drake
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Drake
@@ -7426,20 +7399,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Drake
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Jenner
+## Drake
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Drake
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Drake
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Jenner
@@ -7467,33 +7458,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Jenner
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Jenner
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Jenner
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Jenner
@@ -7507,11 +7471,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Jenner
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Jenner
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Jenner
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Jenner
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Jenner
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Jenner
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Jenner
@@ -7525,11 +7534,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Jenner
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Jenner
@@ -7543,29 +7552,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Jenner
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Jenner
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## J. Cole
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## J. Cole
@@ -7597,33 +7588,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## J. Cole
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## J. Cole
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## J. Cole
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## J. Cole
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -7633,38 +7597,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## J. Cole
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## J. Cole
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## J. Cole
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## J. Cole
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## J. Cole
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## J. Cole
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## J. Cole
@@ -7678,20 +7651,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## J. Cole
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Jerrod Carmichael
+## J. Cole
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## J. Cole
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## J. Cole
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -7719,33 +7710,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Jerrod Carmichael
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Jerrod Carmichael
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Jerrod Carmichael
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Jerrod Carmichael
@@ -7759,11 +7723,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Jerrod Carmichael
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Jerrod Carmichael
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Jerrod Carmichael
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Jerrod Carmichael
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Jerrod Carmichael
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Jerrod Carmichael
@@ -7777,11 +7786,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Jerrod Carmichael
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Jerrod Carmichael
@@ -7795,29 +7804,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Jerrod Carmichael
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Jerrod Carmichael
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Jennifer Lawrence
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Jennifer Lawrence
@@ -7849,33 +7840,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Jennifer Lawrence
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Jennifer Lawrence
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Jennifer Lawrence
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Jennifer Lawrence
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -7885,38 +7849,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Jennifer Lawrence
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Jennifer Lawrence
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Jennifer Lawrence
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Jennifer Lawrence
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Jennifer Lawrence
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Jennifer Lawrence
@@ -7930,20 +7903,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Jennifer Lawrence
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Joe Biden
+## Jennifer Lawrence
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Jennifer Lawrence
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Jennifer Lawrence
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Joe Biden
@@ -7971,33 +7962,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Joe Biden
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Joe Biden
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Joe Biden
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Joe Biden
@@ -8011,11 +7975,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Joe Biden
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Joe Biden
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Joe Biden
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Joe Biden
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Joe Biden
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Joe Biden
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Joe Biden
@@ -8029,11 +8038,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Joe Biden
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Joe Biden
@@ -8047,29 +8056,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Joe Biden
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Joe Biden
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## J.K. Simmons
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## J.K. Simmons
@@ -8101,33 +8092,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## J.K. Simmons
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## J.K. Simmons
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## J.K. Simmons
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## J.K. Simmons
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -8137,38 +8101,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## J.K. Simmons
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## J.K. Simmons
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## J.K. Simmons
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## J.K. Simmons
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## J.K. Simmons
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## J.K. Simmons
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## J.K. Simmons
@@ -8182,20 +8155,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## J.K. Simmons
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Kamala Harris
+## J.K. Simmons
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## J.K. Simmons
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## J.K. Simmons
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Kamala Harris
@@ -8223,33 +8214,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Kamala Harris
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Kamala Harris
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Kamala Harris
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Kamala Harris
@@ -8263,11 +8227,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Kamala Harris
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Kamala Harris
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Kamala Harris
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Kamala Harris
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Kamala Harris
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Kamala Harris
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Kamala Harris
@@ -8281,11 +8290,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Kamala Harris
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Kamala Harris
@@ -8299,29 +8308,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Kamala Harris
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Kamala Harris
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## John C Reilly
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## John C Reilly
@@ -8353,33 +8344,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## John C Reilly
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## John C Reilly
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## John C Reilly
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## John C Reilly
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -8389,38 +8353,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## John C Reilly
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## John C Reilly
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## John C Reilly
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## John C Reilly
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## John C Reilly
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## John C Reilly
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## John C Reilly
@@ -8434,20 +8407,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## John C Reilly
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Kardashian
+## John C Reilly
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## John C Reilly
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## John C Reilly
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Kardashian
@@ -8475,33 +8466,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Kardashian
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Kardashian
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Kardashian
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Kardashian
@@ -8515,11 +8479,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Kardashian
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Kardashian
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Kardashian
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Kardashian
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Kardashian
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Kardashian
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Kardashian
@@ -8533,11 +8542,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Kardashian
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Kardashian
@@ -8551,29 +8560,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Kardashian
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Kardashian
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Kanye
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Kanye
@@ -8605,33 +8596,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Kanye
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Kanye
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Kanye
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Kanye
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -8641,38 +8605,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Kanye
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Kanye
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Kanye
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Kanye
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Kanye
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Kanye
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Kanye
@@ -8686,20 +8659,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Kanye
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Zendaya
+## Kanye
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Kanye
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Kanye
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Zendaya
@@ -8727,33 +8718,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Zendaya
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Zendaya
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Zendaya
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Zendaya
@@ -8767,11 +8731,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Zendaya
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Zendaya
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Zendaya
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Zendaya
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Zendaya
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Zendaya
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Zendaya
@@ -8785,11 +8794,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Zendaya
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Zendaya
@@ -8803,29 +8812,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Zendaya
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Zendaya
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Will Ferrell
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Will Ferrell
@@ -8857,33 +8848,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Will Ferrell
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Will Ferrell
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Will Ferrell
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Will Ferrell
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -8893,38 +8857,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Will Ferrell
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Will Ferrell
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Will Ferrell
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Will Ferrell
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Will Ferrell
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Will Ferrell
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Will Ferrell
@@ -8938,20 +8911,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Will Ferrell
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Zazie Beetz
+## Will Ferrell
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Will Ferrell
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Will Ferrell
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Zazie Beetz
@@ -8979,33 +8970,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Zazie Beetz
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Zazie Beetz
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Zazie Beetz
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Zazie Beetz
@@ -9019,11 +8983,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Zazie Beetz
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Zazie Beetz
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Zazie Beetz
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Zazie Beetz
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Zazie Beetz
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Zazie Beetz
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Zazie Beetz
@@ -9037,11 +9046,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Zazie Beetz
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Zazie Beetz
@@ -9055,29 +9064,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Zazie Beetz
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Zazie Beetz
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Bob Odenkirk
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Bob Odenkirk
@@ -9109,33 +9100,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Bob Odenkirk
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Bob Odenkirk
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Bob Odenkirk
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Bob Odenkirk
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -9145,38 +9109,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Bob Odenkirk
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Bob Odenkirk
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Bob Odenkirk
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Bob Odenkirk
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Bob Odenkirk
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Bob Odenkirk
@@ -9190,20 +9163,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Bob Odenkirk
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Brad Pitt
+## Bob Odenkirk
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Bob Odenkirk
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Bob Odenkirk
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Brad Pitt
@@ -9231,33 +9222,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Brad Pitt
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Brad Pitt
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Brad Pitt
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Brad Pitt
@@ -9271,11 +9235,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Brad Pitt
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Brad Pitt
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Brad Pitt
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Brad Pitt
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Brad Pitt
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Brad Pitt
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Brad Pitt
@@ -9289,11 +9298,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Brad Pitt
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Brad Pitt
@@ -9307,29 +9316,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Brad Pitt
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Brad Pitt
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Beyoncé
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Beyoncé
@@ -9361,33 +9352,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Beyoncé
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Beyoncé
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Beyoncé
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Beyoncé
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -9397,38 +9361,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Beyoncé
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Beyoncé
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Beyoncé
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Beyoncé
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Beyoncé
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Beyoncé
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Beyoncé
@@ -9442,20 +9415,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Beyoncé
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Bia
+## Beyoncé
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Beyoncé
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Beyoncé
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Bia
@@ -9483,33 +9474,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Bia
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Bia
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Bia
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Bia
@@ -9523,11 +9487,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Bia
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Bia
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Bia
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Bia
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Bia
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Bia
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Bia
@@ -9541,11 +9550,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Bia
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Bia
@@ -9559,29 +9568,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Bia
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Bia
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Avantika
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Avantika
@@ -9613,33 +9604,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Avantika
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Avantika
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Avantika
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Avantika
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -9649,38 +9613,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Avantika
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Avantika
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Avantika
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Avantika
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Avantika
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Avantika
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Avantika
@@ -9694,20 +9667,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Avantika
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Bernie Sanders
+## Avantika
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Avantika
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Avantika
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Bernie Sanders
@@ -9735,33 +9726,6 @@ It’s no exaggeration to say that Birkenstock , the family-owned German sandal 
 The white tank top is the hottest wardrobe staple this summer. From its 1920s swimwear origins, this simple white garment has long been a summer essential, and…
 
 *Published on: Mon, 08 Jul 2024 13:19:37 GMT*
-
-
-## Bernie Sanders
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Bernie Sanders
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Bernie Sanders
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
 
 
 ## Bernie Sanders
@@ -9775,11 +9739,56 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Bernie Sanders
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
+
+
+## Bernie Sanders
+
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
+
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
+
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+
+
+## Bernie Sanders
+
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Bernie Sanders
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Bernie Sanders
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
+
+
+## Bernie Sanders
+
+## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+
+Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+
+*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
 
 
 ## Bernie Sanders
@@ -9793,11 +9802,11 @@ Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of inn
 
 ## Bernie Sanders
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
 
 
 ## Bernie Sanders
@@ -9811,29 +9820,11 @@ The Swoosh doubles down on its workwear, offering up new goodies from Nike Life,
 
 ## Bernie Sanders
 
-## [No Notes Necessary for Nike's Effortlessly Stylish Skate Shoes](https://www.highsnobiety.com/p/nike-sb-day-one-sneakers-2024/)
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
 
-Nike is really on it with its skate shoes right now, from reborn models that look fit for the board to stunning skate-intentional styles. The latest falls in t…
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
 
-*Published on: Mon, 08 Jul 2024 08:41:00 GMT*
-
-
-## Bernie Sanders
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
-
-
-## Big Sean
-
-## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
-
-Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
-
-*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Big Sean
@@ -9865,33 +9856,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Big Sean
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Big Sean
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Big Sean
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Big Sean
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -9901,38 +9865,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Big Sean
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Big Sean
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Big Sean
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Big Sean
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Big Sean
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Big Sean
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Big Sean
@@ -9946,20 +9919,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Big Sean
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## BlockBoy JB
+## Big Sean
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Big Sean
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Big Sean
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## BlockBoy JB
@@ -9991,33 +9982,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## BlockBoy JB
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## BlockBoy JB
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## BlockBoy JB
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## BlockBoy JB
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -10027,38 +9991,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## BlockBoy JB
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## BlockBoy JB
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## BlockBoy JB
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## BlockBoy JB
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## BlockBoy JB
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## BlockBoy JB
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## BlockBoy JB
@@ -10072,20 +10045,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## BlockBoy JB
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Biden
+## BlockBoy JB
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## BlockBoy JB
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## BlockBoy JB
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Biden
@@ -10117,33 +10108,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Biden
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Biden
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Biden
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Biden
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -10153,38 +10117,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Biden
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Biden
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Biden
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Biden
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Biden
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Biden
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Biden
@@ -10198,20 +10171,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Biden
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Bieber
+## Biden
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Biden
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Biden
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Bieber
@@ -10243,33 +10234,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Bieber
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Bieber
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Bieber
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Bieber
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -10279,38 +10243,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Bieber
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Bieber
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Bieber
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Bieber
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Bieber
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Bieber
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Bieber
@@ -10324,20 +10297,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Bieber
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Paulina Porizkov
+## Bieber
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Bieber
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Bieber
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Paulina Porizkov
@@ -10369,33 +10360,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Paulina Porizkov
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Paulina Porizkov
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Paulina Porizkov
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Paulina Porizkov
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -10405,38 +10369,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Paulina Porizkov
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Paulina Porizkov
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Paulina Porizkov
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Paulina Porizkov
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Paulina Porizkov
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Paulina Porizkov
@@ -10450,20 +10423,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Paulina Porizkov
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Paris Hilton
+## Paulina Porizkov
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Paulina Porizkov
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Paulina Porizkov
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Paris Hilton
@@ -10495,33 +10486,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Paris Hilton
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Paris Hilton
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Paris Hilton
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Paris Hilton
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -10531,38 +10495,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Paris Hilton
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Paris Hilton
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Paris Hilton
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Paris Hilton
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Paris Hilton
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Paris Hilton
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Paris Hilton
@@ -10576,20 +10549,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Paris Hilton
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Metro Boomin
+## Paris Hilton
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Paris Hilton
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Paris Hilton
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Metro Boomin
@@ -10621,33 +10612,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Metro Boomin
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Metro Boomin
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Metro Boomin
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Metro Boomin
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -10657,38 +10621,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Metro Boomin
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Metro Boomin
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Metro Boomin
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Metro Boomin
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Metro Boomin
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Metro Boomin
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Metro Boomin
@@ -10702,20 +10675,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Metro Boomin
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Meghan Markle
+## Metro Boomin
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Metro Boomin
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Metro Boomin
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Meghan Markle
@@ -10747,33 +10738,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Meghan Markle
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Meghan Markle
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Meghan Markle
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Meghan Markle
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -10783,38 +10747,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Meghan Markle
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Meghan Markle
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Meghan Markle
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Meghan Markle
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Meghan Markle
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Meghan Markle
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Meghan Markle
@@ -10828,20 +10801,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Meghan Markle
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Megan Thee Stallion
+## Meghan Markle
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Meghan Markle
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Meghan Markle
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Megan Thee Stallion
@@ -10873,33 +10864,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Megan Thee Stallion
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Megan Thee Stallion
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Megan Thee Stallion
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Megan Thee Stallion
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -10909,38 +10873,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Megan Thee Stallion
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Megan Thee Stallion
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Megan Thee Stallion
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Megan Thee Stallion
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Megan Thee Stallion
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Megan Thee Stallion
@@ -10954,20 +10927,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Megan Thee Stallion
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Maya Rudolph
+## Megan Thee Stallion
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Megan Thee Stallion
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Megan Thee Stallion
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Maya Rudolph
@@ -10999,33 +10990,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Maya Rudolph
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Maya Rudolph
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Maya Rudolph
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Maya Rudolph
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -11035,38 +10999,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Maya Rudolph
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Maya Rudolph
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Maya Rudolph
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Maya Rudolph
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Maya Rudolph
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Maya Rudolph
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Maya Rudolph
@@ -11080,20 +11053,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Maya Rudolph
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Olivia Rodrigo
+## Maya Rudolph
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Maya Rudolph
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Maya Rudolph
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Olivia Rodrigo
@@ -11125,33 +11116,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Olivia Rodrigo
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Olivia Rodrigo
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Olivia Rodrigo
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Olivia Rodrigo
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -11161,38 +11125,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Olivia Rodrigo
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Olivia Rodrigo
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Olivia Rodrigo
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Olivia Rodrigo
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Olivia Rodrigo
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Olivia Rodrigo
@@ -11206,20 +11179,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Olivia Rodrigo
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Obama
+## Olivia Rodrigo
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Olivia Rodrigo
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Olivia Rodrigo
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Obama
@@ -11251,33 +11242,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Obama
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Obama
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Obama
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Obama
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -11287,38 +11251,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Obama
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Obama
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Obama
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Obama
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Obama
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Obama
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Obama
@@ -11332,20 +11305,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Obama
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## Nicki Minaj
+## Obama
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Obama
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Obama
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## Nicki Minaj
@@ -11377,33 +11368,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## Nicki Minaj
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## Nicki Minaj
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## Nicki Minaj
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## Nicki Minaj
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -11413,38 +11377,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## Nicki Minaj
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## Nicki Minaj
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## Nicki Minaj
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## Nicki Minaj
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## Nicki Minaj
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## Nicki Minaj
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## Nicki Minaj
@@ -11458,20 +11431,38 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## Nicki Minaj
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
 
 
-## MrBeast
+## Nicki Minaj
 
 ## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
 
 Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
 
 *Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## Nicki Minaj
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## Nicki Minaj
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
 ## MrBeast
@@ -11503,33 +11494,6 @@ The white tank top is the hottest wardrobe staple this summer. From its 1920s sw
 
 ## MrBeast
 
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Mon, 08 Jul 2024 14:55:11 GMT*
-
-
-## MrBeast
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Mon, 08 Jul 2024 15:11:57 GMT*
-
-
-## MrBeast
-
-## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
-
-Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
-
-*Published on: Mon, 08 Jul 2024 16:14:07 GMT*
-
-
-## MrBeast
-
 ## [and wander  Altra Cooked Up an Extremely Attractive Trail Shoe ](https://www.highsnobiety.com/p/and-wander-altra-sneakers-ss25/)
 
 It was only a matter of time before and wander and Altra Running met. The two brands have quite a lot in common, including their mastery of making stylish outd…
@@ -11539,38 +11503,47 @@ It was only a matter of time before and wander and Altra Running met. The two br
 
 ## MrBeast
 
-## [Action Bronson's Brilliant New Balance Sneakers Are Here (Again!)](https://www.highsnobiety.com/p/action-bronson-new-balance-sneakers-2024/)
+## [adidas' Killer Taekwondo Shoes Are Back  Flatter Than Ever](https://www.highsnobiety.com/p/adidas-taekwondo-shoes-2024/)
 
-Action Bronson may already be showing off his next minimal maximalist shoes , but the designer's still rolling out his New Balance 1906R sneakers.Action Bronso…
+adidas Taekwondo is so back , baby.The flat-soled, low-profile adidas shoe couldn't have picked a better time to return to the scene. If your eyes are glued to…
 
-*Published on: Mon, 08 Jul 2024 19:46:15 GMT*
-
-
-## MrBeast
-
-## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
-
-Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
-
-*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+*Published on: Mon, 08 Jul 2024 21:28:05 GMT*
 
 
 ## MrBeast
 
-## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
 
-Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
 
-*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
+*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
 ## MrBeast
 
-## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
 
-The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
 
-*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
+
+
+## MrBeast
+
+## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
+
+Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
+
+*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
+
+
+## MrBeast
+
+## [Nike SB's "City of Cinema" Dunks Is Even Better Now ](https://www.highsnobiety.com/p/nike-sb-dunks-sneakers-2024/)
+
+Nike SB's "City of Cinema" Dunk Low undoubtedly had folks talking in May when early samples landed on the internet. Now, as fresh versions surfaced ahead of th…
+
+*Published on: Tue, 09 Jul 2024 07:54:07 GMT*
 
 
 ## MrBeast
@@ -11584,10 +11557,37 @@ Nike is really on it with its skate shoes right now, from reborn models that loo
 
 ## MrBeast
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [_J.L-A.L's "Frosted" HOKA's Stompers Are Ice-Cold ](https://www.highsnobiety.com/p/j-la-l-hoka-shoes-ss25/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+Fresh off his Spring/Summer 2025 presentation — another _J.L-A.L banger of innovative techy menswear — creative director Jean-Luc A. Lavelle casually revealed …
 
-*Published on: Mon, 08 Jul 2024 08:00:33 GMT*
+*Published on: Mon, 08 Jul 2024 08:40:36 GMT*
+
+
+## MrBeast
+
+## [OUR LEGACY Hits The Ground Running](https://www.highsnobiety.com/p/our-legacy-workshop-natura-running-capsule/)
+
+Running has never been more in vogue. For many, it transcends being just a trend or a form of exercise; it is a way of life and the cornerstone of their commun…
+
+*Published on: Mon, 08 Jul 2024 09:57:14 GMT*
+
+
+## MrBeast
+
+## [Nike Gets to Work With Fresh Fall Workwear  ](https://www.highsnobiety.com/p/nike-workwear-clothes-2024/)
+
+The Swoosh doubles down on its workwear, offering up new goodies from Nike Life, a dedicated line of casuals for those days when you're feeling so sportswear-y…
+
+*Published on: Mon, 08 Jul 2024 08:42:48 GMT*
+
+
+## MrBeast
+
+## [Estée Lauder’s New Grant Program Is Funding the Future of Beauty (EXCLUSIVE)](https://www.highsnobiety.com/p/estee-lauder-the-catalysts/)
+
+Listen up, beauty entrepreneurs: Estée Lauder wants to bring your business to the next level. The cosmetics giant just launched The Catalysts, a new program th…
+
+*Published on: Mon, 08 Jul 2024 08:30:00 GMT*
 
 
