@@ -1,6 +1,15 @@
 # Latest Stories
 ## Tim Cook
 
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
+
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
+
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
+
+
+## Tim Cook
+
 ## [Ungatekeeping the 10 Best Hip-Hop Documentaries You Can Watch for Free on YouTube](https://www.highsnobiety.com/p/hip-hop-documentaries-youtube/)
 
 Few genres have been investigated, dissected and ultimately celebrated as intensely through documentaries as hip-hop. Take a dip into the endless vaults and yo…
@@ -19,15 +28,6 @@ Stüssy is returning to its surfing roots and is bringing longtime collaborator 
 
 ## Tim Cook
 
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
-
-
-## Tim Cook
-
 ## [Nike's Shockingly Good Foamposites Came From...a Video Game?](https://www.highsnobiety.com/p/tekken-8-nike-foamposite-sneakers-2024/)
 
 As random as some of Nike's collaborations seem, we often get pretty great sneakers from the Swoosh's unexpected linkups. With the drink brand Jarritos, the br…
@@ -82,33 +82,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Tim Cook
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Tim Cook
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Tim Cook
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Tim Cook
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -116,22 +89,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Tim Cook
+## Taylor Swift
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Tim Cook
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Taylor Swift
@@ -150,15 +114,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Taylor Swift
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Taylor Swift
@@ -217,33 +172,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Taylor Swift
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Taylor Swift
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Taylor Swift
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Taylor Swift
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -251,22 +179,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Taylor Swift
+## Tom Brady
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Taylor Swift
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Tom Brady
@@ -285,15 +204,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Tom Brady
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Tom Brady
@@ -352,33 +262,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Tom Brady
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Tom Brady
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Tom Brady
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Tom Brady
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -386,22 +269,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Tom Brady
+## Tina Fey
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Tom Brady
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Tina Fey
@@ -420,15 +294,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Tina Fey
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Tina Fey
@@ -487,33 +352,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Tina Fey
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Tina Fey
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Tina Fey
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Tina Fey
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -521,22 +359,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Tina Fey
+## Steven Yuen
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Tina Fey
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Steven Yuen
@@ -555,15 +384,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Steven Yuen
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Steven Yuen
@@ -622,33 +442,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Steven Yuen
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Steven Yuen
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Steven Yuen
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Steven Yuen
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -656,22 +449,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Steven Yuen
+## Sommer Ray
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Steven Yuen
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Sommer Ray
@@ -690,15 +474,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Sommer Ray
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Sommer Ray
@@ -757,33 +532,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Sommer Ray
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Sommer Ray
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Sommer Ray
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Sommer Ray
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -791,22 +539,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Sommer Ray
+## Sza
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Sommer Ray
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Sza
@@ -825,15 +564,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Sza
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Sza
@@ -892,33 +622,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Sza
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Sza
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Sza
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Sza
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -926,22 +629,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Sza
+## Sydney Sweeney
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Sza
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Sydney Sweeney
@@ -960,15 +654,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Sydney Sweeney
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Sydney Sweeney
@@ -1027,33 +712,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Sydney Sweeney
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Sydney Sweeney
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Sydney Sweeney
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Sydney Sweeney
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -1061,22 +719,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Sydney Sweeney
+## Walton Goggins
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Sydney Sweeney
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Walton Goggins
@@ -1095,15 +744,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Walton Goggins
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Walton Goggins
@@ -1162,33 +802,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Walton Goggins
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Walton Goggins
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Walton Goggins
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Walton Goggins
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -1196,22 +809,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Walton Goggins
+## Tom Holland
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Walton Goggins
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Tom Holland
@@ -1230,15 +834,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Tom Holland
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Tom Holland
@@ -1297,33 +892,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Tom Holland
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Tom Holland
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Tom Holland
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Tom Holland
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -1331,22 +899,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Tom Holland
+## Gucci Mane
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Tom Holland
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Gucci Mane
@@ -1365,15 +924,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Gucci Mane
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Gucci Mane
@@ -1432,33 +982,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Gucci Mane
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Gucci Mane
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Gucci Mane
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Gucci Mane
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -1466,22 +989,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Gucci Mane
+## Harry Styles
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Gucci Mane
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Harry Styles
@@ -1500,15 +1014,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Harry Styles
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Harry Styles
@@ -1567,33 +1072,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Harry Styles
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Harry Styles
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Harry Styles
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Harry Styles
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -1601,22 +1079,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Harry Styles
+## Jake Paul
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Harry Styles
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Jake Paul
@@ -1635,15 +1104,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Jake Paul
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Jake Paul
@@ -1702,33 +1162,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Jake Paul
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Jake Paul
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Jake Paul
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Jake Paul
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -1736,22 +1169,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Jake Paul
+## Jameela Jamil
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Jake Paul
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Jameela Jamil
@@ -1770,15 +1194,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Jameela Jamil
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Jameela Jamil
@@ -1837,33 +1252,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Jameela Jamil
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Jameela Jamil
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Jameela Jamil
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Jameela Jamil
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -1871,22 +1259,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Jameela Jamil
+## Elon Musk
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Jameela Jamil
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Elon Musk
@@ -1905,15 +1284,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Elon Musk
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Elon Musk
@@ -1972,33 +1342,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Elon Musk
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Elon Musk
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Elon Musk
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Elon Musk
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -2006,22 +1349,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Elon Musk
+## Gabrielle Union
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Elon Musk
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Gabrielle Union
@@ -2040,15 +1374,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Gabrielle Union
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Gabrielle Union
@@ -2107,33 +1432,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Gabrielle Union
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Gabrielle Union
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Gabrielle Union
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Gabrielle Union
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -2141,22 +1439,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Gabrielle Union
+## Giancarlo Esposito
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Gabrielle Union
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Giancarlo Esposito
@@ -2175,15 +1464,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Giancarlo Esposito
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Giancarlo Esposito
@@ -2242,33 +1522,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Giancarlo Esposito
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Giancarlo Esposito
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Giancarlo Esposito
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Giancarlo Esposito
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -2276,22 +1529,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Giancarlo Esposito
+## Gillian Jacobs
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Giancarlo Esposito
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Gillian Jacobs
@@ -2310,15 +1554,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Gillian Jacobs
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Gillian Jacobs
@@ -2377,33 +1612,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Gillian Jacobs
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Gillian Jacobs
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Gillian Jacobs
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Gillian Jacobs
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -2411,22 +1619,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Gillian Jacobs
+## Jason Mantzoukas
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Gillian Jacobs
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Jason Mantzoukas
@@ -2445,15 +1644,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Jason Mantzoukas
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Jason Mantzoukas
@@ -2512,33 +1702,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Jason Mantzoukas
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Jason Mantzoukas
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Jason Mantzoukas
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Jason Mantzoukas
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -2546,22 +1709,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Jason Mantzoukas
+## JB Smoove
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Jason Mantzoukas
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## JB Smoove
@@ -2580,15 +1734,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## JB Smoove
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## JB Smoove
@@ -2647,33 +1792,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## JB Smoove
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## JB Smoove
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## JB Smoove
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## JB Smoove
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -2681,22 +1799,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## JB Smoove
+## Madison Pettis
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## JB Smoove
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Madison Pettis
@@ -2715,15 +1824,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Madison Pettis
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Madison Pettis
@@ -2782,33 +1882,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Madison Pettis
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Madison Pettis
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Madison Pettis
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Madison Pettis
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -2816,22 +1889,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Madison Pettis
+## Austin Butler
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Madison Pettis
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Austin Butler
@@ -2850,15 +1914,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Austin Butler
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Austin Butler
@@ -2917,33 +1972,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Austin Butler
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Austin Butler
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Austin Butler
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Austin Butler
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -2951,22 +1979,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Austin Butler
+## Mark Zuckerberg
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Austin Butler
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Mark Zuckerberg
@@ -2985,15 +2004,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Mark Zuckerberg
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Mark Zuckerberg
@@ -3052,33 +2062,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Mark Zuckerberg
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Mark Zuckerberg
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Mark Zuckerberg
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Mark Zuckerberg
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -3086,22 +2069,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Mark Zuckerberg
+## Ariana Grande
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Mark Zuckerberg
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Ariana Grande
@@ -3120,15 +2094,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Ariana Grande
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Ariana Grande
@@ -3187,33 +2152,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Ariana Grande
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Ariana Grande
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Ariana Grande
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Ariana Grande
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -3221,22 +2159,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Ariana Grande
+## Livvy Dunne
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Ariana Grande
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Livvy Dunne
@@ -3255,15 +2184,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Livvy Dunne
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Livvy Dunne
@@ -3322,33 +2242,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Livvy Dunne
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Livvy Dunne
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Livvy Dunne
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Livvy Dunne
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -3356,22 +2249,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Livvy Dunne
+## Ali Wong
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Livvy Dunne
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Ali Wong
@@ -3390,15 +2274,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Ali Wong
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Ali Wong
@@ -3457,33 +2332,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Ali Wong
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Ali Wong
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Ali Wong
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Ali Wong
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -3491,22 +2339,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Ali Wong
+## Lizzo
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Ali Wong
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Lizzo
@@ -3525,15 +2364,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Lizzo
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Lizzo
@@ -3592,33 +2422,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Lizzo
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Lizzo
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Lizzo
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Lizzo
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -3626,22 +2429,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Lizzo
+## Alison Brie
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Lizzo
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Alison Brie
@@ -3660,15 +2454,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Alison Brie
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Alison Brie
@@ -3727,33 +2512,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Alison Brie
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Alison Brie
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Alison Brie
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Alison Brie
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -3761,22 +2519,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Alison Brie
+## Lil Wayne
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Alison Brie
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Lil Wayne
@@ -3795,15 +2544,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Lil Wayne
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Lil Wayne
@@ -3862,33 +2602,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Lil Wayne
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Lil Wayne
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Lil Wayne
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Lil Wayne
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -3896,22 +2609,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Lil Wayne
+## Adele
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Lil Wayne
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Adele
@@ -3930,15 +2634,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Adele
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Adele
@@ -3997,33 +2692,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Adele
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Adele
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Adele
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Adele
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -4031,22 +2699,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Adele
+## Lindsay Lohan
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Adele
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Lindsay Lohan
@@ -4065,15 +2724,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Lindsay Lohan
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Lindsay Lohan
@@ -4132,33 +2782,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Lindsay Lohan
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Lindsay Lohan
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Lindsay Lohan
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Lindsay Lohan
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -4166,22 +2789,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Lindsay Lohan
+## Addison Rae
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Lindsay Lohan
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Addison Rae
@@ -4200,15 +2814,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Addison Rae
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Addison Rae
@@ -4267,33 +2872,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Addison Rae
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Addison Rae
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Addison Rae
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Addison Rae
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -4301,22 +2879,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Addison Rae
+## Latto
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Addison Rae
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Latto
@@ -4335,15 +2904,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Latto
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Latto
@@ -4402,33 +2962,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Latto
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Latto
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Latto
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Latto
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -4436,22 +2969,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Latto
+## Aaron Paul
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Latto
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Aaron Paul
@@ -4470,15 +2994,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Aaron Paul
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Aaron Paul
@@ -4537,33 +3052,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Aaron Paul
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Aaron Paul
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Aaron Paul
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Aaron Paul
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -4571,22 +3059,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Aaron Paul
+## LeBron James
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Aaron Paul
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## LeBron James
@@ -4605,15 +3084,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## LeBron James
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## LeBron James
@@ -4672,33 +3142,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## LeBron James
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## LeBron James
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## LeBron James
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## LeBron James
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -4706,22 +3149,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## LeBron James
+## 50 Cent
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## LeBron James
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## 50 Cent
@@ -4740,15 +3174,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## 50 Cent
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## 50 Cent
@@ -4807,33 +3232,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## 50 Cent
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## 50 Cent
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## 50 Cent
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## 50 Cent
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -4841,22 +3239,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## 50 Cent
+## Kesha
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## 50 Cent
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Kesha
@@ -4875,15 +3264,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Kesha
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Kesha
@@ -4942,33 +3322,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Kesha
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Kesha
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Kesha
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Kesha
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -4976,22 +3329,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Kesha
+## 21 Savage
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Kesha
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## 21 Savage
@@ -5010,15 +3354,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## 21 Savage
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## 21 Savage
@@ -5077,33 +3412,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## 21 Savage
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## 21 Savage
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## 21 Savage
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## 21 Savage
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -5111,22 +3419,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## 21 Savage
+## Larry David
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## 21 Savage
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Larry David
@@ -5145,15 +3444,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Larry David
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Larry David
@@ -5212,33 +3502,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Larry David
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Larry David
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Larry David
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Larry David
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -5246,22 +3509,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Larry David
+## Seth Rogan
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Larry David
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Seth Rogan
@@ -5280,15 +3534,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Seth Rogan
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Seth Rogan
@@ -5347,33 +3592,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Seth Rogan
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Seth Rogan
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Seth Rogan
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Seth Rogan
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -5381,22 +3599,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Seth Rogan
+## Simone Biles
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Seth Rogan
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Simone Biles
@@ -5415,15 +3624,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Simone Biles
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Simone Biles
@@ -5482,33 +3682,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Simone Biles
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Simone Biles
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Simone Biles
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Simone Biles
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -5516,22 +3689,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Simone Biles
+## Pete Davidson
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Simone Biles
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Pete Davidson
@@ -5550,15 +3714,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Pete Davidson
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Pete Davidson
@@ -5617,33 +3772,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Pete Davidson
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Pete Davidson
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Pete Davidson
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Pete Davidson
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -5651,22 +3779,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Pete Davidson
+## Prince Harry
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Pete Davidson
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Prince Harry
@@ -5685,15 +3804,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Prince Harry
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Prince Harry
@@ -5752,33 +3862,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Prince Harry
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Prince Harry
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Prince Harry
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Prince Harry
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -5786,22 +3869,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Prince Harry
+## Princess of Wales
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Prince Harry
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Princess of Wales
@@ -5820,15 +3894,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Princess of Wales
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Princess of Wales
@@ -5887,33 +3952,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Princess of Wales
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Princess of Wales
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Princess of Wales
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Princess of Wales
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -5921,22 +3959,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Princess of Wales
+## Rachel McAdams
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Princess of Wales
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Rachel McAdams
@@ -5955,15 +3984,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Rachel McAdams
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Rachel McAdams
@@ -6022,33 +4042,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Rachel McAdams
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Rachel McAdams
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Rachel McAdams
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Rachel McAdams
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -6056,22 +4049,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Rachel McAdams
+## Reneé Rapp
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Rachel McAdams
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Reneé Rapp
@@ -6090,15 +4074,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Reneé Rapp
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Reneé Rapp
@@ -6157,33 +4132,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Reneé Rapp
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Reneé Rapp
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Reneé Rapp
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Reneé Rapp
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -6191,22 +4139,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Reneé Rapp
+## Rick Ross
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Reneé Rapp
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Rick Ross
@@ -6225,15 +4164,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Rick Ross
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Rick Ross
@@ -6292,33 +4222,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Rick Ross
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Rick Ross
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Rick Ross
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Rick Ross
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -6326,22 +4229,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Rick Ross
+## Sam Ashgari
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Rick Ross
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Sam Ashgari
@@ -6360,15 +4254,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Sam Ashgari
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Sam Ashgari
@@ -6427,33 +4312,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Sam Ashgari
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Sam Ashgari
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Sam Ashgari
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Sam Ashgari
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -6461,22 +4319,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Sam Ashgari
+## Sandra Oh
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Sam Ashgari
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Sandra Oh
@@ -6495,15 +4344,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Sandra Oh
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Sandra Oh
@@ -6562,33 +4402,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Sandra Oh
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Sandra Oh
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Sandra Oh
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Sandra Oh
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -6596,22 +4409,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Sandra Oh
+## Donald Trump
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Sandra Oh
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Donald Trump
@@ -6630,15 +4434,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Donald Trump
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Donald Trump
@@ -6697,33 +4492,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Donald Trump
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Donald Trump
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Donald Trump
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Donald Trump
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -6731,22 +4499,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Donald Trump
+## Diddy
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Donald Trump
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Diddy
@@ -6765,15 +4524,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Diddy
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Diddy
@@ -6832,33 +4582,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Diddy
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Diddy
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Diddy
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Diddy
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -6866,22 +4589,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Diddy
+## City Girls
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Diddy
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## City Girls
@@ -6900,15 +4614,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## City Girls
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## City Girls
@@ -6967,33 +4672,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## City Girls
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## City Girls
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## City Girls
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## City Girls
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -7001,22 +4679,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## City Girls
+## Chloe Bailey
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## City Girls
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Chloe Bailey
@@ -7035,15 +4704,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Chloe Bailey
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Chloe Bailey
@@ -7102,33 +4762,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Chloe Bailey
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Chloe Bailey
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Chloe Bailey
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Chloe Bailey
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -7136,22 +4769,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Chloe Bailey
+## Charli D Amelio
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Chloe Bailey
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Charli D Amelio
@@ -7170,15 +4794,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Charli D Amelio
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Charli D Amelio
@@ -7237,33 +4852,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Charli D Amelio
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Charli D Amelio
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Charli D Amelio
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Charli D Amelio
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -7271,22 +4859,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Charli D Amelio
+## Cardi B
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Charli D Amelio
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Cardi B
@@ -7305,15 +4884,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Cardi B
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Cardi B
@@ -7372,33 +4942,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Cardi B
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Cardi B
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Cardi B
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Cardi B
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -7406,22 +4949,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Cardi B
+## Bryan Cranston
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Cardi B
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Bryan Cranston
@@ -7440,15 +4974,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Bryan Cranston
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Bryan Cranston
@@ -7507,33 +5032,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Bryan Cranston
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Bryan Cranston
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Bryan Cranston
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Bryan Cranston
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -7541,22 +5039,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Bryan Cranston
+## Brielle Biermann
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Bryan Cranston
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Brielle Biermann
@@ -7575,15 +5064,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Brielle Biermann
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Brielle Biermann
@@ -7642,33 +5122,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Brielle Biermann
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Brielle Biermann
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Brielle Biermann
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Brielle Biermann
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -7676,22 +5129,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Brielle Biermann
+## Dua Lipa
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Brielle Biermann
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Dua Lipa
@@ -7710,15 +5154,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Dua Lipa
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Dua Lipa
@@ -7777,33 +5212,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Dua Lipa
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Dua Lipa
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Dua Lipa
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Dua Lipa
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -7811,22 +5219,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Dua Lipa
+## Drake
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Dua Lipa
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Drake
@@ -7845,15 +5244,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Drake
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Drake
@@ -7912,33 +5302,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Drake
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Drake
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Drake
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Drake
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -7946,22 +5309,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Drake
+## Jenner
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Drake
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Jenner
@@ -7980,15 +5334,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Jenner
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Jenner
@@ -8047,33 +5392,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Jenner
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Jenner
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Jenner
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Jenner
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -8081,22 +5399,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Jenner
+## J. Cole
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Jenner
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## J. Cole
@@ -8115,15 +5424,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## J. Cole
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## J. Cole
@@ -8182,33 +5482,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## J. Cole
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## J. Cole
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## J. Cole
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## J. Cole
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -8216,22 +5489,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## J. Cole
+## Jerrod Carmichael
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## J. Cole
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Jerrod Carmichael
@@ -8250,15 +5514,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Jerrod Carmichael
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Jerrod Carmichael
@@ -8317,33 +5572,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Jerrod Carmichael
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Jerrod Carmichael
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Jerrod Carmichael
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Jerrod Carmichael
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -8351,22 +5579,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Jerrod Carmichael
+## Jennifer Lawrence
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Jerrod Carmichael
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Jennifer Lawrence
@@ -8385,15 +5604,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Jennifer Lawrence
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Jennifer Lawrence
@@ -8452,33 +5662,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Jennifer Lawrence
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Jennifer Lawrence
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Jennifer Lawrence
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Jennifer Lawrence
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -8486,22 +5669,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Jennifer Lawrence
+## Joe Biden
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Jennifer Lawrence
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Joe Biden
@@ -8520,15 +5694,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Joe Biden
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Joe Biden
@@ -8587,33 +5752,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Joe Biden
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Joe Biden
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Joe Biden
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Joe Biden
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -8621,22 +5759,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Joe Biden
+## J.K. Simmons
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Joe Biden
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## J.K. Simmons
@@ -8655,15 +5784,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## J.K. Simmons
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## J.K. Simmons
@@ -8722,33 +5842,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## J.K. Simmons
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## J.K. Simmons
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## J.K. Simmons
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## J.K. Simmons
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -8756,22 +5849,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## J.K. Simmons
+## Kamala Harris
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## J.K. Simmons
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Kamala Harris
@@ -8790,15 +5874,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Kamala Harris
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Kamala Harris
@@ -8857,33 +5932,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Kamala Harris
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Kamala Harris
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Kamala Harris
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Kamala Harris
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -8891,22 +5939,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Kamala Harris
+## John C Reilly
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Kamala Harris
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## John C Reilly
@@ -8925,15 +5964,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## John C Reilly
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## John C Reilly
@@ -8992,33 +6022,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## John C Reilly
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## John C Reilly
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## John C Reilly
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## John C Reilly
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -9026,22 +6029,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## John C Reilly
+## Kardashian
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## John C Reilly
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Kardashian
@@ -9060,15 +6054,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Kardashian
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Kardashian
@@ -9127,33 +6112,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Kardashian
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Kardashian
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Kardashian
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Kardashian
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -9161,22 +6119,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Kardashian
+## Kanye
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Kardashian
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Kanye
@@ -9195,15 +6144,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Kanye
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Kanye
@@ -9262,33 +6202,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Kanye
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Kanye
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Kanye
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Kanye
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -9296,22 +6209,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Kanye
+## Zendaya
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Kanye
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Zendaya
@@ -9330,15 +6234,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Zendaya
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Zendaya
@@ -9397,33 +6292,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Zendaya
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Zendaya
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Zendaya
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Zendaya
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -9431,22 +6299,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Zendaya
+## Will Ferrell
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Zendaya
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Will Ferrell
@@ -9465,15 +6324,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Will Ferrell
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Will Ferrell
@@ -9532,33 +6382,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Will Ferrell
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Will Ferrell
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Will Ferrell
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Will Ferrell
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -9566,22 +6389,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Will Ferrell
+## Zazie Beetz
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Will Ferrell
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Zazie Beetz
@@ -9600,15 +6414,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Zazie Beetz
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Zazie Beetz
@@ -9667,33 +6472,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Zazie Beetz
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Zazie Beetz
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Zazie Beetz
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Zazie Beetz
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -9701,22 +6479,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Zazie Beetz
+## Bob Odenkirk
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Zazie Beetz
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Bob Odenkirk
@@ -9735,15 +6504,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Bob Odenkirk
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Bob Odenkirk
@@ -9802,33 +6562,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Bob Odenkirk
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Bob Odenkirk
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Bob Odenkirk
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Bob Odenkirk
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -9836,22 +6569,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Bob Odenkirk
+## Brad Pitt
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Bob Odenkirk
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Brad Pitt
@@ -9870,15 +6594,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Brad Pitt
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Brad Pitt
@@ -9937,33 +6652,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Brad Pitt
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Brad Pitt
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Brad Pitt
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Brad Pitt
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -9971,22 +6659,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Brad Pitt
+## Beyoncé
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Brad Pitt
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Beyoncé
@@ -10005,15 +6684,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Beyoncé
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Beyoncé
@@ -10072,33 +6742,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Beyoncé
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Beyoncé
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Beyoncé
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Beyoncé
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -10106,22 +6749,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Beyoncé
+## Bia
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Beyoncé
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Bia
@@ -10140,15 +6774,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Bia
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Bia
@@ -10207,33 +6832,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Bia
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Bia
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Bia
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Bia
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -10241,22 +6839,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Bia
+## Avantika
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Bia
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Avantika
@@ -10275,15 +6864,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Avantika
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Avantika
@@ -10342,33 +6922,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Avantika
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Avantika
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Avantika
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Avantika
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -10376,22 +6929,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Avantika
+## Bernie Sanders
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Avantika
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Bernie Sanders
@@ -10410,15 +6954,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Bernie Sanders
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Bernie Sanders
@@ -10477,33 +7012,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Bernie Sanders
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Bernie Sanders
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Bernie Sanders
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Bernie Sanders
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -10511,22 +7019,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Bernie Sanders
+## Big Sean
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Bernie Sanders
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Big Sean
@@ -10545,15 +7044,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Big Sean
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Big Sean
@@ -10612,33 +7102,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Big Sean
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Big Sean
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Big Sean
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Big Sean
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -10646,22 +7109,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Big Sean
+## BlockBoy JB
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Big Sean
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## BlockBoy JB
@@ -10680,15 +7134,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## BlockBoy JB
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## BlockBoy JB
@@ -10747,33 +7192,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## BlockBoy JB
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## BlockBoy JB
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## BlockBoy JB
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## BlockBoy JB
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -10781,22 +7199,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## BlockBoy JB
+## Biden
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## BlockBoy JB
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Biden
@@ -10815,15 +7224,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Biden
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Biden
@@ -10882,33 +7282,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Biden
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Biden
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Biden
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Biden
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -10916,22 +7289,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Biden
+## Bieber
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Biden
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Bieber
@@ -10950,15 +7314,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Bieber
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Bieber
@@ -11017,33 +7372,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Bieber
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Bieber
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Bieber
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Bieber
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -11051,22 +7379,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Bieber
+## Paulina Porizkov
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Bieber
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Paulina Porizkov
@@ -11085,15 +7404,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Paulina Porizkov
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Paulina Porizkov
@@ -11152,33 +7462,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Paulina Porizkov
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Paulina Porizkov
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Paulina Porizkov
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Paulina Porizkov
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -11186,22 +7469,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Paulina Porizkov
+## Paris Hilton
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Paulina Porizkov
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Paris Hilton
@@ -11220,15 +7494,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Paris Hilton
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Paris Hilton
@@ -11287,33 +7552,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Paris Hilton
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Paris Hilton
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Paris Hilton
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Paris Hilton
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -11321,22 +7559,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Paris Hilton
+## Metro Boomin
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Paris Hilton
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Metro Boomin
@@ -11355,15 +7584,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Metro Boomin
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Metro Boomin
@@ -11422,33 +7642,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Metro Boomin
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Metro Boomin
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Metro Boomin
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Metro Boomin
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -11456,22 +7649,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Metro Boomin
+## Meghan Markle
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Metro Boomin
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Meghan Markle
@@ -11490,15 +7674,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Meghan Markle
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Meghan Markle
@@ -11557,33 +7732,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Meghan Markle
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Meghan Markle
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Meghan Markle
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Meghan Markle
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -11591,22 +7739,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Meghan Markle
+## Megan Thee Stallion
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Meghan Markle
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Megan Thee Stallion
@@ -11625,15 +7764,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Megan Thee Stallion
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Megan Thee Stallion
@@ -11692,33 +7822,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Megan Thee Stallion
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Megan Thee Stallion
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Megan Thee Stallion
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Megan Thee Stallion
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -11726,22 +7829,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Megan Thee Stallion
+## Maya Rudolph
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Megan Thee Stallion
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Maya Rudolph
@@ -11760,15 +7854,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Maya Rudolph
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Maya Rudolph
@@ -11827,33 +7912,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Maya Rudolph
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Maya Rudolph
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Maya Rudolph
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Maya Rudolph
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -11861,22 +7919,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Maya Rudolph
+## Olivia Rodrigo
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Maya Rudolph
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Olivia Rodrigo
@@ -11895,15 +7944,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Olivia Rodrigo
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Olivia Rodrigo
@@ -11962,33 +8002,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Olivia Rodrigo
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Olivia Rodrigo
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Olivia Rodrigo
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Olivia Rodrigo
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -11996,22 +8009,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Olivia Rodrigo
+## Obama
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Olivia Rodrigo
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Obama
@@ -12030,15 +8034,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Obama
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Obama
@@ -12097,33 +8092,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Obama
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Obama
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Obama
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Obama
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -12131,22 +8099,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Obama
+## Nicki Minaj
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Obama
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## Nicki Minaj
@@ -12165,15 +8124,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## Nicki Minaj
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## Nicki Minaj
@@ -12232,33 +8182,6 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## Nicki Minaj
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## Nicki Minaj
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## Nicki Minaj
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## Nicki Minaj
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
@@ -12266,22 +8189,13 @@ Clarks was founded in 1825 and has been making high-quality leather shoes ever s
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
 
 
-## Nicki Minaj
+## MrBeast
 
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
+## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
 
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
+And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
 
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## Nicki Minaj
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
+*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
 
 
 ## MrBeast
@@ -12300,15 +8214,6 @@ Few genres have been investigated, dissected and ultimately celebrated as intens
 Stüssy is returning to its surfing roots and is bringing longtime collaborator Nike along for the journey.The Californian label just previewed its newest Nike …
 
 *Published on: Tue, 09 Jul 2024 15:50:31 GMT*
-
-
-## MrBeast
-
-## [Team USA's Basketball Shoes are Gold Medal Worthy](https://www.highsnobiety.com/p/team-usa-basketball-shoes-for-olympics-2024/)
-
-Every four years, Team USA is called upon to rule the basketball court on the world stage at the Summer Olympics. And this year, fresh off a tough World Cup Fi…
-
-*Published on: Tue, 09 Jul 2024 16:09:25 GMT*
 
 
 ## MrBeast
@@ -12367,55 +8272,10 @@ Nike  Stüssy are coming in hot with with collection of surf gear and those long
 
 ## MrBeast
 
-## [Clints’ Chunky Sneaker Reveals Its Wild Side](https://www.highsnobiety.com/p/clints-oasis-wild-cats/)
-
-Each time Clints previews a new sneaker on its Instagram page, it somehow manages to outdo itself. And with its newest pair, the Oasis Wild-Cats, the fledgling…
-
-*Published on: Tue, 09 Jul 2024 10:01:26 GMT*
-
-
-## MrBeast
-
-## [Vans' New Hiking-Style Shoe Is Stylishly Stocky  ](https://www.highsnobiety.com/p/vans-mte-crosspath-shoes-2024/)
-
-Vans has blessed the sneaker community with unforgettable styles like the imitable slim Authentic and the effortless Slip-on shoes. As the brand seeks more coo…
-
-*Published on: Tue, 09 Jul 2024 07:30:57 GMT*
-
-
-## MrBeast
-
-## [Kith's Beautifully Braided Birkenstocks Have Returned ](https://www.highsnobiety.com/p/kith-birkenstock-collab-2024/)
-
-And just like that, Kith's deliciously braided Birkenstocks are back.Kith's leading man, Ronnie Fieg, shared a teaser of his Birkenstock London Braided collabo…
-
-*Published on: Tue, 09 Jul 2024 14:56:42 GMT*
-
-
-## MrBeast
-
 ## [Every Year is the Year of the Clarks Wallabee](https://www.highsnobiety.com/p/best-clarks-wallabees-buy-online/)
 
 Clarks was founded in 1825 and has been making high-quality leather shoes ever since. In fact, the footwear label has such a dedicated following because it has…
 
 *Published on: Tue, 09 Jul 2024 14:00:00 GMT*
-
-
-## MrBeast
-
-## [Nike's New Compelling Skate Shoe Seeks to Solve Your Problems ](https://www.highsnobiety.com/p/nike-sb-ps8-sneakers-2024/)
-
-One of the most anticipated shoes coming from Nike's Olympics lineup — aside from its tonal Jordan 4s and reborn Jordan 6 sneakers — is the Nike SB PS8, an imp…
-
-*Published on: Tue, 09 Jul 2024 07:15:33 GMT*
-
-
-## MrBeast
-
-## [These Beautiful Clarks Get More Beautiful Over Time](https://www.highsnobiety.com/p/clarks-poliquant-ss25/)
-
-Alongside its typically tasteful takes on technical gear, Poliquant’s SS25 collection preview in Paris included two custom Clarks shoes that are both experimen…
-
-*Published on: Tue, 09 Jul 2024 07:00:11 GMT*
 
 
